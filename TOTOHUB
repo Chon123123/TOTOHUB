@@ -5,5 +5,5 @@ or game.PlaceId == 7258239416 then
 end
 
 if game.PlaceId == 9103898828 then
-    loadstring(game:HttpGet("https://raw.githubusercontent.com/Chon123123/TOTOHUB/refs/heads/main/RogueDemon.lua "))()
+    loadstring(game:HttpGet("https://raw.githubusercontent.com/Chon123123/TOTOHUB/refs/heads/main/RogueDemon.lua"))()
 end
