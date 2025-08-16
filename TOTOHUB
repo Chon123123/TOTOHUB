@@ -11,3 +11,7 @@ end
 if game.PlaceId == 18519254033 then
     loadstring(game:HttpGet("https://raw.githubusercontent.com/Chon123123/TOTOHUB/refs/heads/main/Jumpshowdown.lua"))()
 end
+
+if game.PlaceId == 15269951959 then
+    loadstring(game:HttpGet("https://raw.githubusercontent.com/Chon123123/TOTOHUB/refs/heads/main/LegendsBattleground.lua"))()
+end
