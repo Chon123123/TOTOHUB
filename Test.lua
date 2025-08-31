@@ -1,1 +1,3252 @@
-([[This file was protected with MoonSec V3]]):gsub('.+', (function(a) _eqfWwsOBonRK = a; end)); vBSKWbxFGSykuuqc=_ENV;IjgcTwUEhwEUdHD='m5w-=e4b0iL,cv6G5446wevci4ewg5,04Gw=eG-b6GL54c5Lvi65L==cO-,L4GLi0e-eGvL-ecw=cci&54GHLbeG5ewv6Gi0=Gs4,,Gvvw0c=-cG,L465=,c0w=4G4L,cwbLwv6=i,esi=eGwv-5GLice-CL,GGiveVei45G,bwu.J6w0L=i,-0c4w5,vLi4-6Gb,4cb04-w6iLqeeiw4cwcv4bc=6Gv,=b{w1-=6,Lwei5fcbb6i6wcL4e655c0bGLL445=ct5ev40M-b66L-G5,wb5--,cice4v6,Lbwwcv,G-LGe65ecc05vGi=eL}=,ibi-0-6M5Li4B5bw4GcL6=vw-vw0%54veLcec{6,e0i5v0b-6GeLc4-5L55GbbGGi,L4=5,vw0bc5iveenG,64-wv6cLe4-^i,Gvbiy=wGi,A4ec-b=-b64Gvc5405Gv40,cGLi=-^Lc40=5,cLLw4ww5,i00==vcEs,i4,wwvi06vwivec50w46wi5=0GG,=G,c6bL=i6c,t40b5wvvci-=LGG-6w5v00,5i66,=,c0,wbv6ie=L,eevwwvLb6=w6G,55iwc0bi}-LG:,v5L5vv505G4q-biwi56v605ic40Wb,6bewLi--vG-c35vGc6f0=GicL4be=56v5ib=0Gw,e=G5Gvw0b=leb5ccwbi-k6ew= 0,b4ww4v60G=564,Lb5wvc!00es*i55ccbc--6LNbcb05w,v6ibe-Le4e5.cbb6--4c=wR,,=eiw06vb6=,5-,ecc00-b66LeeLi=bbwv6=iw=b7G5bvb0w-iGNLevG,,6,bcyeiv94G5c-bLw6-6z5Li4p5bccPi6-L-=v6=ccbw-w6Gbee05ece0w0L=4GeLc4-50e6-4G5iveL5kccveiL=UGbL64-c6Gw0-5KiiQv6Lc=0=w6Lybc4=3LcL0b0Ge5GL,5405vb--RG-iG=b56v54=M6GwL0=-G-w=v60G=4Gv,w5ivw0F-cGig5ce4cw-vL0Gcci64b5GL-0v==60L54QGGv-bG-46c3=vw4Gw4vviwv4LG445c,005-46ii=4cw5cG0,-,G60L4w5=c,0-=-cv,b46w-wv6ci0=G84,,G0vwiw-cL60Lbw50v0ieivebD0,Gb4w,be=vG5,,b5bbw66eice-1Lc5c54G60iveb5icwbi-K6e56G=,v44:,vLiG-5 -,w4iweve6cLeeb<6cebL,bi5e5G,5wvPbv-=6,L}v0,w4iG660i6ee:b,vc,0i-46vL=eiLWb-5G66i5ee65c4b50==c6GL4ev5wG44#-=5,iiwkb-ecw4v6L5=,5R,cw,n,6viee=4-w5c60e-cG5wi9-,L4>-Z6=i4=65w5cve0b-6GeLLG-,ib0wL=wGGLv4=5,va-,6vL04:5ec-bGwG==<bLG445vvw5v45GwbGW0bcvbe,4wG-00c4L-400v==G,,w4iw+vb060eGGv,4Lw5v00vv0L-e,5c0Cbv-bG5L55-w5cw0,6GG4LG4-5Gcbbc==6cLw5ew-cc06-iL00c4e5cvw46-b6c4*=v65wbv6ie=cN-,Lb5e05Giieby=,,bwwb45-v6v,ee,5=vc0==0ewoL,vb=w,6&w=Gb,-c5b6wc6-iL=G0ie6wavb0=-LG-,wc-0ww66eice5ie4pw5vwb,==3PLv4Gw6--G=i6eeVcc5},v=iw=wGb,G4b5vc=i4=v)576cebc--6LL5e0oGc40p-v6,Lwei96=6wLv4ic=4Gicw4,0w=w6vL=e,5E=0wwvibMeeXic54cw66vi,Li4b5=c,0w-bbi=6g0,GwLww6vL5=b4wwwcv0=-,G9wiGGc0b5546eLL-0Zuc0050i=iG=L,4w5beL-=vGi=e4G5c=b?-G6wL4,N4c5,vw0i-60w=vx6,G4ewi65G,,=445vv=0iv-L,=G5iw56w0c=-GLLGGicw0%-.6eLvee<,Lb0i-5GRGGci4Lw5v00v64,=5w5vw-,0iq=MG6iL5005v,bG=,Ge,4=G==ii4c=c/,,b46wevLw=6i,ee,G-v-0b-466,w,ibWwbv6ie=cC-LL,sw,6wi4=v*=,i%GL66-Lw=6Me,cb5LG0==L6SLi4vw0vw0--ce-%v,6bewce4x6c-b5wvvv-R6Gi,ewDi,6G0v=0c=4Ge0i4-5Lvw00iv66L=e,5wci0Hebi=JGv-bL-560ivvL,=b=56,eiv=-3-c^ebwiv00G=,G,5wcGbv-=6,LYviLG40wb6-0,==h-5=c6bG-46vLw6,,5bewevL66-GGeLc4-5Lv5i06e4D5ic,0w-i66--Gvch4G04ewG5L0eG5=e40ew4i-=G,6cib=0iwL5wL--L,iwv+4vcLe=6cJLLbi-6=5GiLc4-5L--F5,-e,,fLe5,vw0i-6iv4J5bcL0=RwL64eeGOevw=I-J6iL,e45L,600-v64LLew5ec,00-jGqLv56qLcv0wG,6ii,4-Fvcbbb-L6c,ew5G,ceb,=0v5Leeevic6bi-0G=4c=45pc4i-5cG3LB,Lbwwevci-Lv4i5i65wi60i==,Hw,bGic600-Gc,,44L5},e4,iie0k=,,bwwb4=-4GG,b-,wevc0X-iG01icbb=w,6wibcGLi43Ibvi00-GG,L,c^b4wv6=i,ewliAlo44660Lee-sLc5b4LG0e=6Gb4ie-ww6b6LL-ee3cc-b0c40b=4J05_cvb,-w6ii660c54e_6vLic=,G,5wvwbv-=6,L*vvLGb0-<i-0,eesc,)4iw0-iGWL=e,5w-cGeiiG5L,ec5-cLbGcLi4e0%b,bc60b-iGILbecce4,wLvcG=LveG54cv0w,Gi5eis,5Lvi0e-cG-L0j,ce46w066L4e,7icebe0L=-GeLc4-06-w6LL,e,Lv4=5,vw0i=Dvb5vLew6v-0L=5GiLG445vvbi-=wGi,h4eL6b0-zG-iv4w265Gv40v==G,,04iwnvb06=0Gc,-4Lw5v00G=45vc=4,wwviiO=bGG,e4c-6vLi-=0Qj,44vw=v,i4=iFw,b4Gwevci-=L2b,04Gw4vvi==c.w,i0=wbv6ie=vh-,Lb5w0vGi4=v?=,,bwwi65ii=67e,cb-b,65i0=G&4,vb=w,6wvee9<b,6b4wc6-iLe-j0,Gb4-z6bi,ewoi,65=,-60Lce-PLc5b4,-0e=6M40Lb=w,cG00=b64,L445vv-60iGe4Evceb6-w6iLg4i5Mcebv--6,L5e0gGv40,-=6cLwe,5^cbb6-ew0L-eL55cibG-46vL4e,5wci0-==66Leec55e,w=6wiw=b(G,b4vui6,i-ew4550cc0--L6G=e6=54cv0=-,G-Lc4r5bc6ib-6G-L,455LcG04-v^=,i4w5Lvx00-6GeLc4-e4v500-GGbLv4=5,vi0i=%Gb,5b55cv-0L-Gb0=65bc 4e-=Gi0b=G5bv{ve0c=-GL,5405GGLcv=bGG,w4iwKve-L60,5,44vw5v00G==iL-i46wLvii*=bGc=iDGc=0c-6G0b_,ibiw=v,iw=b0Me45Gc04v-c<5iweGwbci6(ii=,;w,i46,00e=v6GN-,Lb5w06{L0=vX=,,0=cL6ji0=6hi,cb-wLG5Li=G3b,vbLw,6wii4w5L,6b4wc6biLe5a0vG0wwv6ei,e-)ic5bb-=GLice=hLvwb0-:64ive=7G5Lbi-F6bLGee*vc-0c--60L)e455c=b,-w9iLeebzGcebv--6,L54L5=c4bG-=GqLwei5?6b00-e66L-ec55c,bG=0FeL=e65wcv08-b66ce4c5-cv05-,6GLcevw4650w-vGULie65eccie=LG5LveG5Lcv0=-,5wGb4f5cc60L-cGiLL45LZcG00-vGiL,4=5i6Uie-6G4Lc4L5Lv-00-G-wLv4=5,v-0i=?Gb,54e5cv-0v==G0LG445,b55o=esi,k4b56v-5Q6LLLe=6,v-bi-iG40veGQ6ce05-5=0Cw,-4Lw5v4=hG=ic4i5bw-viiN=b?G,e4cw-vvie=0GG,44,L,0c55=c_b,b46wevL-LG0LneG5Gvb68L==,3w,i46L,0e=e6G04465=v=i5w0GLLi4J5ccc6-ic=6&e,cb5vc0_=iG0f4,vb=w,6wiieJQb,6b0-,6-iLe5?4==5ivG44-6Y-LL4-w-v30==0Ne,,c=bvwG64ivew0G4iwiv-6b-066Leec5-cL,5v6ei5ic=b,-w6b-&GL,ibww6v44veeG,,,b00g-G6,Lwei^6=,we6e0G-=Gvc5bcww64G:Lbe,5wcib6v=b-L0455-cL05-4i==eW0,bc6i5-iG^Lbeciib---vvb=ecJwcwbGTe60Leee5w5Lv-0e-cG-L054,bb4-0=sowL,4w5ic6Pb6eL5=68w,Lb,w,cwLLe^5rcvve06=OGbL64-L0bw-e6=G0LG445vv=0,=w6i6G4b56ve0c=--5,5405G600G==G,,wb=w}vb064e=L,-4Lw5v00G=iGv,L64wwviix=cG6,44cw=vLieL/GG,44vwiv,i-=i}=uG46wevcci=Lyw,005v!vvi==,fb,ib7wbGl^0=cj=,Lb-w0vGi4eG5v,,b=wi6cib=6pevcbvwL6-i0e5^4c-b=w,G4iiewhbc5bewc6-iL44?0csb4wv6=i6ewyvvbbbw66ec,e-Z,c5i0be64L-e=5RcwbL-tGi=0ee5=c-0i-560iGe4iec=05-wG5LZeiB6c,Gb--G_L546>Gcbbv-e6,L4,55lcbb6=,6cL=eL-5s6bG-c6vLie,5-ciiw6566Lvec5ccL05-06Gw6ev5Lc,0L-iGwLb4==7cc0i-Lw#L04F54cv0=-G=LLi4U5bGv0e-vG-cLLG50ve04=wG=,,4w-GeL0b==Gev,4-5,v50G-GGL3e4=5,vw,0=!G0L6bb56v-i&=5C-LG445vG=vi=wGG,34v566w0c=i=c,5405G>b0v=eG,,04iw=wG06=eGc6=4Lwwv0LG0cGv,L4,wbvii5=b5FeG4cw,vLL}=0GG,44vLcv,i0=iH0,bb8we6w,6=L b,0i=w4v6i==,Mw,vc0wbv6ieb5%-,,b5=0wei4e-X=cHbw-x6Nib6L7ecwb-wc65ii=GYL5eb=w,6wceek<0,6iebw6-Lye5Mv,GbbwvG4=eew55cQ0fw66eice-iwc5b6wG66ive4B,c0L=-.6vi605.cc=bL-560L-L6.vc=b,e66iL5ebw6),bc-i6LL4e05ic4bvvN6,L0ei5wcbbG-encv-eL55c0bG-4G6L=eG4Lci0K-b5vLeev5-c6vi-06GL4065=cc0w-G-!LbeG5ev00--,G5LLeG5Lwe0=-,Gw,e4?50c6ib-6G-L,455ccG04-v5=Gi4w5LvO00-6E-Lcbec=v50L-GG6Lv4=5,vwwe=rG0L64b5cv=0L=eekLG445vv=0,=-Gi,/L-56ve0c==GL,540w!v60v==G,c=4,wgv006=4Gc,-4L-5640G=bGv,44,wwvii4bwG6,e4cwLvLiw=0GG,4b5bcv,iw=i8b,b4Gwe66ie=Lxw,0bww4vvi==vy4,ibwwbv6ie=c>-,L{vw06hi4=GE=,cbwwi5cib=6*e,vb-wL65iv=GX4,vbb-06wiie1Ie=G50v404-,x-L,45GvvG0b=4eeKGc{bbw66-=v35Lib4w=-w6,ive=Y,cWw,cGi0=be0WGc-bL-564-cv,5:cGb,-w6ii6v,,ebe5Gceib=4Gv,i4ib6-=6,Lw4i5Zcbb6-0GbL-eL55c4<-vviv=b6v,G46we65i5L0455-cL05-4L==e_=c4c60G-iGELbecL44GwvvviweLCw,0e=-4v6ivLc4b5bc60e-LL=ec55,Gb,w,=lGiL,4w5ic6-ivvL4ee445vv500-GG==L6i56v60i=3GbLcGe,Gb6-bG-i,-w5Lc#07-v=wi-=i.D,b46we_c-i,=b55Gv40v=wb,e5XLci0ewv64Le,4bIw5v00G==L0e-5vc-bGi-e4G6,e4cw5e6-0G=L5-L5=v=0c==cLL4e650cbvGib=LM5,04vLv065-=68v,ibQwbvc5iG-,-evjwc,0G=LGn,=,6biwi6+ib=cLc4L5wv5i5=iew5e,vb=w,6?-e,4b-wivc0L=4DeLG46w,vGi==4i645qicjbbwc4L-GBe0c4=wiv{0i=iG4LL46w,656bi6eeocc-Lb-560iG40jGc=b,-w6GL(ebY66ecL--6LL5e0:Gcbbv-L54Lwei5!G-b6-46cL-eL5ew(bG-46vv_e,5-ciiw-i66Leec5bcL05-0yGcbev5=c,0w-iGLLbba56cc0=-LGbL0eG546v0L-,G-Li455bv50e=6G,LL4-50v604-vG=L,4b5ivQ0b=.GeLv4-5L6b00=5G4Lv4=5,vwLi=,Gb,P4e56v-ie=5G0c644w5v=0,=wGi,?4bL4ve06=-G6,54L5Gvc,0==Gv,wi*wzv006=eGc,bcww5v00G4vGv,e4,=wwbin=LG6,b4cwcvL,506GG,i4vwbv,iv=i#7v446wLvci==Lu5,04GL6vvib=,)b,ibwwb6=c}=c(4,Li0w06)i4=vN=,GcLwi6kibbe3e,vb-=LwGi0ewZ4,Gb=-=6wii4h3bc5bewG6-i,e55LcGb4-56=Liew_icOib--6eL5e-?vc500wG64,4e=5^cwbG-26bi6ee/vc-b6-560iGec9vc00=-w6iLZbc;6c4bce--)L5452Gc6bv=%6,,=x-5Wvwb6-c6cL-eL55eMbG-G6vLGe,5=ci04,w66L6ec-4cL0w-0GRL4454cc,0w-i5-LbeG5ev!v,-LG5L00=54c60=e,-0Li4i5bv40e=iG-LLGv50v004-GG=Lc4w5G5X0b=wGeci4-5,v50L-GGL#e4=5,vwL4=RG0L6bb56v-0v=5GvLG445vG=vi=wGc,k4L56vb0ceeL=,54c5Gv60v==G,,wpewpvL06=bGc,=4Lwe-J0G=4Gv,=4,w-vii70-G6,e4cw=vLi5=0sRc=4vw=v,L==, ^,046wivci-=L55c44Gwbvvii=,+w,ib4ewv6ie=c5M,Lbww0vGi4e5ec,,bwwi6vib=Gjec6bewL6wi0e-X4,vb==,-qiie5Ib,Gbewv6-L{bch0c^b4-L6=icew_ic7b,046eice-5bc5biwGG0iGe=hccwbc-!6bi6beeLc-b,-56iiGe0<vcLj4-w6,Lyeb86c4bc-=6LL54bHGc4bv-=6,Lwei5U4-b6-46cLeeL5wc0bGbw6vL=e,5-ci0y-b6GLeec5-cv0e-06GL4e,Le46-=-iGdLbe65evw0--LG5L04w54cv0=-,GwLi4I-b6w0e-cG-LL455icG04ewG=Lv4w5LvR0b-6Ge,=4-5cv50i-GG4Lv4=w6vw0i=MGbL6445cv-ie=5G0LG4b5vv=0,=iGi,(4b56ve0c=-GL,5405G54i(=LG,,w4ii-=,BaL64L5L4vw5v00G=4kM,e4,wwvi06=bG6,e4cw-vLi5,0-G,ibww=v,iw,v455ivL0Lvci-=L!5,04Gw4cvv-=cEw,ibqwbv6ie=c_-,Lb5w065ic=vk=,,bwLc6yii=6/e,cb-wL65L5=Gui,vbew,6wiieg5b,6biwc6=iLe5#0,G0bwv6bi,e=/icwbbw6GciceepLc5b0-w64iv4b;,cwbi-56bi6ee>vGbbL-560iG,c_vceb,-w6iLoebO66=bc-e6LL5e0hGc4bv4v6,L-ei5wcb0:-e5wvveL5wc00e-466L=455wcvv0-b66Le4w5-c,05-c=bL4ev5=v00w-LGELbc=5ecv0--,G5L0eG546c0=-vGwLi4;5bc60,cbG-Lv4550cG0b-vG4L,4w,+v:0b-6GeLc4-5Lv5ib-GG4Lv445,vw0i=*0OL6445cv40L=wG0,-,65vv=0,b=Gi,54b56-,0c==GL,5405Gv40v4-G,,=4iwsvb06=eGc6c4Lwwv0i5=4GG,=i5ecvii5=b55,e4vw-vci5=ceb,44vw=66iw=LsJ,,c4wevci-bc&5,i4Gw4bbi==cfw,ib/wbv6L-beA-c5b5eLvGib=v2e,,b40567ib=6-b,cb=wL65G6=G;b,vbbw,6wiieVL,,6bbwc6-iLe5u0v5iwwv6bi,ei}ic?bb=9G0icebzLc0b0wG64iv4b#,c-bi-=6bLsee-wv5bL-w60v5e4H6c=bG-w6vG0ebz6ceL6--6,L54L,ic4b6-=66Lwei5qviw0-e66L-e,55c0bG-40bL=e65wci0P-b66,bP45-c605-G6GL4ev50660w-,G_v0e654cc0-eiG5L6eG5bcv0=-,Gwc=4B56c60i-cG-LL45--cG06-vG0L,4w5ivniw-6G6Lc445Lv500-GTeLv465,vw0i=nGbL64,5cv60L=4G0LG445v6=0,=6Gi,e4b56ve0c=LGL,L40w,v40G==G,=w4iw0vbi4=e(e,-4L-,v0i0=4_w,=4,wwviLe=b:4,eb=w-6-i5405L,4bew=6-iw=6Yj,bbwwe6-i-e5W5c>4Gw46_i==csw,GbQw6v6ii,,;-,cb5=LvGib=vr=e5bwwL6kii=6ue,cb-c<65i0=G.0,vb=w,6wveel2b,6b4wc6-iLe-Z0,Gb4-JG5i,ew}i,680v50G-GG=,c4=5Lc5i-=LG696cebi-O6bicGwi5c-bL-560LTeiHvc=b,==6,LEe0/6cbbc--6L,544&Gcbbv-e6,Lwei5Ny-b6-e6cL=eL55c00--46vL=e65bci0#-b6ceWG,cebg0=-,6GL4ev5w40kb-cGGLbe65ecLxb65L5=,6wcLb1-j6vb-e45-c-0>00=wG-LL4554b--K6LL5e,4w5iv/0b-GGcLc4-5L6-,=-GGbLv445,vw0iewG,L64b5cv=0L=5G0cG4v5vv40,==Gi,=4b566i0c=4GL,5405Gv40v=,G,,=4iwwvbih=e3cc54Lwwv0iw=4GG,=4,w,viiH=bGG,e4cw-v6i5=0GG,ibew=v,iw=bLeeLwacLbG-GG6Y=,v4Gw4vviwGvL54L5iwL6iie=cr-,0GLcG0i=<cc,b4,55,44ciLe=De,cb-w0iw=466,,4ibew,6wiie4Hb,6bewG6iiLe5V0,vw=c60-=eGcVccebbw66eiL^0Li40wLwG0#-46vL=e,5wGiw4L5evIcc-bLwG0v=w^0,w4bwb646cLeebC6cebL6e0iewP55wv5bv-=6,L16w,bb5w0,=iGe-Gii6e=0M-46vL=bw5wci0;-LrwLeec5-c07cvbLe-bX=,Gb6wcv0Lw=6h,c5ecwwvci0e,5854cv0=,,?,G40ce55:00=,G-LL4554e-wv6ii4wG.ici05-i,Gi,e-Av,cv=i=-GG4Lv4wLebGwLvGL5-c.G,,0LwvG5G,,i445vv=0icvi0ee5-ce0b-G6eiv,=4G5Gv40v=w05ee;0cL0i-==0qw,-4Lw5v4-v6eL=4=5cwwviiq=bG6,e4cw-vLi=ewGG,44vwwi_-GGiLi405cc=bv-4=vVe,04Gw4v,5,Gc05,c0wwbv6ie=L,=evw-c604-06GLb4bw3vi0v=eG5,e46wLwv6,i0=GH4,,Gev505=i6GL0bo50vc64L0e5 0,Gb=,40,=eGc00b-wbcvbe-,GGLG4=b,=T64ive=Iie-wgv,iL=0G=,64Lwbvvb0-6G0,=bbwc-e66Lfeb26c-w5vwie==e,50c4bv-=6iw0Oc,,44wL6wi-=eev50c0bG-46,-wGLcw4cwc6iG5LLec5-cLbGc=06e5oO5bv=0w-iG%Le6ccwbvwL6ci0eeU,5ive0=-,GwLb66c54v-cvGL-e,4=w_cG04-vGweKkec,bewL6LLiLGb=5Lv500-vbc4hJG,Lb6-46bii-65wci0e506ML0454iwcv=0,=wGb-epLvTebwGG=i,e=5=c5be-iG4Lc,w4iwavb060bGc,-4L--GG0G=4Gv,G4,wwviLwewG6,44c-wvLi5=05Gc64vwev,i-=i5=,b06wivci==Lhw,0b-w46GLi=,_=,ib6wbv6iee6uL,Lb=w065i4=v;=,,0-wi6:ibe5Ae,vb--cN0i0=GF4c0b=w,6wL,4-Vb,Gbe-,6-iLe5w0c6b4w66=icew5vclib-(6eive-?,c5bcwGG0,be=rvcwbL-z6bi64b2Gc-bv-56LiGe4fvc=iw-w6iLJeL*6c4bc=e44L5e0&Gvebv-=6,cw445Acbb6-e6c,beL-5v0bG-46vL=e,54ciL^=566L4ec5-cL0v-0Ge,-ev5ec,c--iG5Lbe65ev#v,-LG5L0Lg54c60=e,-0Li4w5bcG0e-GG-,cp,50v-04e-G=L,4w5ie00b=PGe,{4-5cv506,LG4LG4=-evw0L=YG0L64ib=v-0L=55wLG4b5vv06-=wGi,+L056v40c4-=0,54L5Gvb0veLG,c=vcw*vL06=cGc,-4L--6b0G=LGv,v4,wwvi,S42G6,i4cwbvLL0=0GGce4vw0v,ib=iIZ,b46-Lvci4=Lh5,0b=w465iL=,<w,iLGwbvGie4c=i,Lbiw064i4ebs=cv5cwi6Libe6de,cb-wL4ii0ebO4cbb=wv6wiGb,dbc4be4,6-i,e5B0,GbL0e6=i,ew=0cxb0w6<e6Le-5wc5bGwGGbivb=e5cw05-J6Gi6e0dcvew=-5GwiG4c:vc=b,-wb5L!eGZ6cGbc-e6LLbv-pGc6bv456,L-ei55cb0w0v6cL-eL-6c00l-4G5Gce,5wci,G-b6GLebc45cL0i-0G4L4465=6,v:-iG0Lb445ev60-eL-GL04054cv0==vGwLGL=5bv40eb,G-L,45w5cG0LieG=L,4we0v100-65eGL4-wwv50G-G)bLv0=bvvwi5=EGGL6b,5cG-i6=5(FLG465v6b0,4w5=,xbU56vb0ce4GL,5bv5Gv60v=cG,,,4i=:6w06=vGc,,4Lw4v0L5e=Gv,v4,-bviiP=bG6vw4cwcvLiw=095,40vbwv,i,=iui,bb,we6w5i=L#i,0Lvw4v6i=e=Nw,vc0wbv6ie0L9-,,b5wc-bi4=vp=GLbwwL6Qcb0Grec-b--*65LE=G?cGvb=w66w,Le;70,6bbwc6bGwe5S0,Gibwv6ei,ew=ectbbw664ice-gLc50bwG64iv44/vcwbi-W6,i6ee;cc-v6-560iGebjvc4b,ew-bL+ebd6cebc-i6LLbv-gGc4bv-L6,L-ei55cb0w0v6cL-eL5bc00S-4G5Gce,5wci06-b6GLe465ecL05-0G=L4ev5=6,v#-iGDLbe65ec60-=ci,L04p54v80=-,GwLiGc5bc60e-6G-L,45wLv504-vG=Lc4w5iv&0i=wGeLv4-5Lv500-GG4=i4=5,vw0,=NG0L64ib=v-0L=5G0LG4b5vv=cb=wGi,Z4056ve0c==)e,5405G600G==Gc,w4Lwzvb06=e4;,-4,w5vi0G=0Gvc=biwwvLik=LG6,e4cwieei5=0GG,c4vwev,i-=iK=YG46wevcii=Lfw,0b-b6vvi==,Yc,ib5wbGqib=cZ=,Lb-w0vGi44vew,,b-wi65ibewXe,6bbwL6-i0=G!4,vb=w,b6iie5&bcIbewv6-iL0v;0,Gb4w66=i,ewwwc:bbw660LLe-gLc5b4LG0e=6Gbic4,-fcwi==-GL,444bL-560iGe4Dvc=iGbw6cLeeb!6cebLc=i5eiG,5wvwbv-=6,L.viLGb0w5c4ieeL6,,00Oww-iGbL=e,5wcb-e6=i6=6!vc54iwwv,6GL4ev5=c,0wGiew6b455ccc0--L6G-4G6c4b!-&6vGwLi4{5bc60ebc0w6L4=5ccG04-vGwebxec6v-0v-6GeLc45i,b6-w6cL4,%4c5,vw0i-6bie554c60--bG0G,,b445vv=0i64Liev5wL6eLKc=4Gv,5405Gv=wLciGv,-4cwbvb06=eGL-=5bc,0e-G,b1scz4,wwvi06cbiv44lG,=0-=0v4i6445Gwev,iw=i%{,b46wevci-=vBi,04Gw4v,w066L-4,5vvb=Gi0e58-,Lb5w44v-eGv,4,6b,wi6Wib=c0c40w=vc0X==G(LicFbvw,6wii=6ie4,w4v-ie=5G6,=cwbvwv6=i,e.0L==wbcvi{-Ge45-c5b0wG6=5cXyLc40w46F0L=Ieercc-bL-560v,6e=vc=b,-w6iL5ie>6cebc=e6cL5eiZGv-bv-=6,,w4b5<c0b6-46cL-eL5b=-bG-46vLie,5-ci05-bGwGvec5-cL04-0G/L4454cc,0w-iw-LbeG5ecc6i-LGwL0eG54cv0==vh=Li4w5b6e0e-cG-cLb050v504-GG=,=4ww,vb0b=5Ge,64-5Lv5iLe0G4,54=w-vw0i=<Bice4ew5v-ic=5G0LG44-nv=0v=wG6,S4i566e0G=-G,,5bG5Gv00ve4Gv,w4Lwg6=06=eGcv-,0w5vi0G=bGvc=4,w0R=iX=0G6cb4cw=vLi5=0q-O64vw=v,L==i<5,bbwbvvci-=L-6,0bqw46Gi4=,a-,i0ewbv6ie4cb,,Lbww06ai4e4H=cv00wi6wib4w2e,cb-wLG=i0eDa4,Gb=wv6wciec{b,Gbe==6-L0e55Lvbb4wG6=LLew}icVib-66ei6e-!cc50=wGG0Lee=l6cwbG-16bi64b,4c-b6-566iGe4Avv45=-w66LtevZ6cebc--GeL5eLgGc,bv-46,,w4c5Yc0b6-G6cLeeLw-cvbG-06v,be,5wciLh=566Lbec5ecL0L-0_5,,ev5bc,i=-iG#Lbb9w,cc0b-LOLL0eG54vGw6-,GbLibw5bc60e-c09LL4-50v=04-GG=,,4=5iv50be=GeL64-wcv400=5G4cg4=5,vwLietGb,F4e56v-i-=5qL,b44w(v=i0=wGi,;0b-ive0G=-Gv,54c5G60Li==GG,w4,w1vb06ebG6,-4Gw56e0G=4Gvv=5!wwv6i8=cG6,i4cw-64i5=LGG,,4vw4v,Lw=c1/,046w0vcie=L5-c54Gw0vvii=,aw,i0(w0v6i4=c1L,Lb-w0G5L4=vU4,,bGwi6Hibe6XG,cbewLG5i0e_74c5ccw,6wii0vob,Gbe-66eiLewP0ccb4wv6=,,L^Bic5bbwG6eLce-5+6cb0-U64vLe=Vccwbi-o6,G4eepcc-,b-56iiG40*Gc=bc-wG4LCeb266ew---6,L5ei2Gv4bve=)=LweL5jc0b6=d6cL-4c55cibG-06vLee,w=vw0{-066,wec5-cL,5-66GLbevw=c,i--iG26-e65ecc0=-LG5L04b54cv0=-6G4Li4k5bcc9c6vbwLv4v50cG04-,bi=65=iLb4w660ibec{4c4v=06-GG4Lv4wcvb5wi6LiL,54L5cv-0L-G0==655cVvbiw=wGi,14ece05-v64LL4-4,w=v40v==Gi==54cv05i5=GGc,-4L5Gei-e6eLve-tcv=bc= =L&e,e4cw-v0-0G4i6ev5vvev,iw=i(%,bibwevci-=LwG,04Gw4vvi==,hwc,0 wbvGiee=M-,Lb5w065i4=Gh=,,bwwi6l,be-2e,6b-wc65iL=Gz4vLb=wv6wiceAKb,6be-66-i,e5U0,Gbiwv60L%ewVicp0iw664icb-e(c5b6wG6,ivee(,v=w--}6Gi6e,Ycc-bL-5b iGec%vccb,-=6iL4vwO6c,bc=A6LLwe05!c4050c6,Lwei5vcbbG-eGFG,eL55c0i5-466L=4v5=ci04-bG5Leec5-6LcG-0GeL44-5=vK0w-iRGLb4e5ecc0--LG5c0Lv54ve0==CGwLv4o5beb0e=wG-,w455icG0cbvG=Lc4wwKvP00-6GbLc4bbwv500-GGvLv4e5,6=0,=XG0L64v5cv-0L=5i6LG405vve0,=wGivBbi56vb0c=eGL,040-G6v0v=4G,,=4iwwvb06evGc,e4Lw=v00G=4Gvcc4,w-vii;=bC5,eb*w6vLi5=0w=,446w=G,v0=i>4,bb-wevvi-ecL,,0bbw46-i==,lw,iG0wb6=iee=o-,cb5w6ELi4e-)=6 bwwL6Kib=6Ci5=b-wL65,v=G%b,v04wv6wiGeYhL,6bewcD-60e5#6,Gbcwv6ii,eww0c9b6w66eice-(L65c4wG66iveit,c4bi-Nb1i6e,1cc,bL-w60Lei4xvceb,=v6iL5eb5pce0K0,6LL5e0wLc4b6-=6,-0ei5Ucb0l-e6cL-eL=vc0bG-466L=e,5wcc0)-b66L04b5-cL05-4b-=eD6c4=L-=6,0G=0_b50vw0--LG5L45/c=4c-i6bGeLc4r5bc60-vib0L,4550cG0G-vG=L,4e5Gv}0b-6G-eL&=,ib,-w=w/-Lv4=5,v15L6-L5e5a4c6b4wcv-Leec5{wCvi0,=wGiL65c,vbc-6=4GG,5405Gv=-G6-Lce,4iw?vb06=eGc,-0L45v,iw=4Gv,=4i,Ge6i3=bG6,e4cw-vLi500uwc54vw=v,i%cviG40w:L=06=e6iLw45bw-4vvi==,:.-vrGv0if5=G6,eei5wv5b)==G?Lbevb-wi69ibebMe,cb-wv66i0=GQ4,,.ec60c-cG5,i455b,6iB=bG,:,c5b4wv6=ii6Lscc,bbw66eiLvb,5b55,cM0i=vT0L6bwbc-v6bi6ee!Lee5v6biL5G:i,Gb4w0v6i=DGeL55cebc--60-6vv5wc6bv-=6,Lf6L,i46w0vGe,=-ev50c0bG-46,ebubcM40w56HG5,=ec5-cLbG,ci4ewGGi0bw-w6LLww0{=,cb4we-vG0L0eG54c,VL6wL==iYvcvc60e-cG-LL0650cG04-v=LL,4w5ivF0b-6Geccb05Lv500-GG4,e4=wv6w0i=wGb,-4e5cv-LL=GG0,5445Gv=0c=wGic44b56ve06=-Gc,546-cv40v==Z-,w4Lwlv006=ie=,-4Lw56l0G=bGv,0c-wwviiRb-G6,44c=-wCi5=iGG,44vwcv,L=G-_j,L46w,vci-=LQ5=k4Gwbvvib=,F=,ib4Lwv6i4=c55,Lbww06ni4e5ec,,bwwi66ib=G>ec c,wL65i0b,)4,6b==,w0iie5%b,6be-=6-LcG-t0cwb4--6=i,ew!ivwbbwG6eiGe-<cc5i0=564iGe=tccw05-)Gi,4ee5_c-bc-560iGe4wic=bv-w6vLXeiI6c,ii--6cL54G{Gcbbv-e6,L4,55^cbb6=c6cL=eL5ewObG-46vv{e,5-ciLCbv66L0ec5ecL0i-0f5eYev5ic,04-iG8Lbe6ivcc04-LG4L04554v-LG-,GeLi0c5bcG0e-cG-L6,i50cG044iG=Lc4w-i540b=5GeL64-wwv5iL6iG4,w4=5Gvw0i=UGb-44e5Gv-0G=5GLLG4c=0v=06=wwe,)4056ve0c=bew,5405Gsw0v=eG,vwLGwtv,06=0Gc,,4L--0w0G=cGv,v4,wwvii}cGG6,i4cwivLi-=0Pe654vw0v,,6=i.5,b46we6a6,=L(5,0i,w4v6i=4,e^,ib=wb65ieee<-vLLiw06-i4e5O=,6bw-,6=ibe=}ec-b-wL65i04=E4c=b=wc6wiie7Dbc=be-w6-L5e5Y0,Gb4=Q6=iGewSic&b0w66ev0e-:Lc5biwG64ive=w=cwbi-HGiLAee)cc-0 -560iGb4e,c=b,-w6iL!eGs6c,Lb--6LL5bBuGcbbv-=6,L4,55:cbb6=v6cL=eLw-cLbG-46vLLe,5wciLS0e66Leec5-cL0--0Gev5ev5=c,i=-iG5Lbe65evqv,-LG5L0b554c60=-,-%Li4O5bv{0e-cG-,c9,50v_04=wG=L,4ww,bL0b=_Ge,-4-5Lv500,vG4Lv4=5vvw0L={Xi,%4e5vv-0,=5G0LG4cL0v=0v=wGi,C4056vb0c=-ai,5405Gv40v==G,,w9%wyvb06=eGc,-4Lw5b=0G=bGv,44,w-viiSe5G6,e4cw-vLi5=055,04vw=v,i4=iPM,b06,bvci-=L>5,0bww46G,U=,d-,ib4wbv6ie4c5i,Lbww06Mi4e4V=,,0ewi6ribe#he,vb-w66Gi0=GU4,vb=wc6wii0cyb,6bewv6-iLe5uicib4wv6=Lve=kic5bb-56eice-5LcGb0-s64i6e=u,cwbGL,6bi6ee55c-b,-56iiGeL4ec=b,-w66L_e0p6civ=--6LL545)Gcbbv=46vLweL5_cib6-e6cLi6e55cLbG-46vLee,5-ci0E=466Leec5-cL05-06G=wev5ec,0=-iG5Lbe6e5cc0--LGwL0eG54c60=-,GwLc405bc60e-L0-=vPec0bw-b6-G=L,4w5iv:0v-6GeLc4-5vv500-GG4Lv4=5,GwL==*GbL64e5cv=0L=5?5LG405vve0,=wGi,Ob=56vb0c==GL,5405GvG0v==G,,w4iw5vb06eeGc,-4Lwwv00G=4.e,=4,wwvci4=bG6,e4Lvebi-5GwLw,ib=w=v,iw=bLb4-5Gc00c=e=v1e,04Gw4v,Gw,44z,cbiwbv6ie=L0-ei5wv50v-e66Lv,6biwi6hib=cLc4L5wv5i5=iewK,,vb=w,67we6G,w45b0-06-iLe5_4==5ivG4e=5Gi,-4wwbv5i5iGe6uLc5b0wv4,=/:4ii4c506b0L=6h4Kcc-bL-560,Le4svc=b,4R6iLtebW6cebc--Gc,we05 c40w-=6,Lweiw,cb0)-e6cL-eL55600w-46GL=ev5wv50g-bS=Lee65-cv05-06GL4455=cc0w-iG!LLe65ivT0--LG5,GeG5bcvi4-vGwLG4P5cc60e-c5-OG455GcG0,-vG0L,0ww,vU06-6GcLc4L5Lv5i0-GGvLv4c5,vw0i=#GcL64,5cv-0L=iG0,-b=5vv=0,ebGi,54b-.vb0c=6GL,w405Gv4Lv==G,,v4iw,vbiY=eGc,=4Lwvv00G=4Gv,=0,w6viiv=bl-,ebww-6cic=0 v,4b!w=v,iw4i5w,bbvwe64i-e8!5,00-w46Li=e0/wc0b^wb6GieebV-cbb5wivGic0v%=c5bw-46Ni0=6!b,cbb0w65i0=G5-,vbew,60vieEs0,6bcwc6=iLe-10c-c6wv6=i,eiRic5bbw6b,ice-xLc-b0wG64ivi#n,cwbi-56bi6ee}6c-bL-56,Lve4Tvc=bi,,iS=L150vb0wcvwbL=Kt=,=4i0Z-c6,Lweiy64cw56bi5=4!4cec0bG-46vLeeG5wci0J=iGKLeev5-cc05-06GL4c55=cc0w-LG_Lie6wevL0--,G5LieG54cv0=bbGwLi4&50c60e-cG-,b4w50cGi0,-G=L,4ww=vZ0b-6G,c=4-5Lv5,b-GGbLv4=5,v465=rGbL6i=5cv=0L=5-4LG445vv=0,=wGi,RG,56v40c=-GL,5405GG-0v==G,,w4iw5vbL6i-Gc,-4Lw5v0v:=4/G=e4,w-vic4=bG6,eb6-ivLi-=0hL,44vw=655v=ip-,b4Gwevvi-=,+5,0P4w4vvi==cVw,ibOwb=Gie=6Z-,cb5wivGL0e0z=,vbw-56rib=65bc,b-wv65vc=G*4,vi=-e6wices!L,6c6wcGei6e52c,Gv=wv6=i,bww5cub,w66iic4iSLv-biwG6,ivi0q,cwbie2-ei6eLJcc0bL0*60,5p-PvcLb,b46iLZebw6vcbc-i6LLbe0ecc4bv=w6,Liei5Icbb6-eG6LceL5ic0,e-46vL=4v5ici0i-b=vLeec5-vci0-0GiL4i65=c,0w-vG6Lb445e6c0--,G5L0b654vi0==ZGwLi485bwe0e=iG-,e4550cG04=5G=,b4w5,vj0i-6Ge,-4-w5v5i--GywLv4=w4vwi<=}t-L6bs5cvbGi=5}7LG0A5vve0,=w=w,r4G56vv0c=-GL,bG-5Gv60v=cG,,-4iw4vb06vcGc,-4Lw-v00G=4Gv=,4,wwvii==bG6,e4c,LvLi5=0!b,44vw=v,wi=iAW,bb5wevci-=Li0,04Gw46=i==,%w,iqbwbv6ie=vR-,Lb5w0b=i4e4l=c-bwwi62ibeG!ec4b-wL65i0=G_4cib=-=6wi,e1Pi,6be==6-iLe555,Gb4wv6=LiewQicfbiw66eice-Mvc5b0wG64ive=S,c404-S6bi645Fvc=bL=-6LiGe4%vv-b,-w6icai=X6cebc--6L6we0w5cbbv-=6,c6ei5_cbio-v6cL-eLwYc0bG-4Yv,,e,5wci0n-b5cLe46w=cL05-0NvL4ev5=c,iG-iGYLbeG5ecc0-=cGcL0eG546v0=-,Gw,,4w5bc60eeiG-LL45-6;i04-vG=644w5LvD,4-6GiR=4-5Lv5c--GGbLv4=ebvw0i=NG0L64e5c6e0c=5G0LGc-5vv=0,e=4b,T40566-0c=-GLv5bc5Gvb0v=eG,c=4i-wvv06=0Gc754Lw5v00G=,Gv,e4,wevii)=bG6ce4cw-vLi5=0K5,44v-iv,iw=iV5,bb^weGci4=L+w,04Gw455i==,=%,ib-wbv6ie=Gs-6LL-w06wi4LbS=cGbweiG4ibe5?e5-b-4i65c0eL^4c8b=4,6wLce?%bccbewv6-ive5BL,Gi4-56=ivewpLcF,-w66e,be-?6c5bLwG64iv4456cwb6-xGbi6eefcvew=-566iG,wsvc=b,-w4bLOe,26c,bc-=6LL56T.Gc0bv-06,L=ei-xweb6-06cL=eL=vc0bG=w6vLie,5=ci0^-b?+L4ec5icL,6-06GL44Gwcc,0i-i5wLbe65ecci5-LG4L04454c60=-,bLLi4-5bv-0e-6G-cL,G50v-04-6G=6b4w5ivc0b==GeL64-5Lv5iL=vG4,=4=b4vw0i=3oici4ew=v-,e=5G0LG44w6v=i5=wU5,z4056ve5==-G6,5465Gv00ve4=w,w46w86506=eGc,-4vw5vv0G=bGv,44,ew6Lia=cG6Ye4c=bvLL-=cGG,,4vw6v,iw=il<c046wLvci==L(-,0iGw6vvii=,%e,iL1wbG6L6=c10,Lb-w07ii4=v=w,,biwi6 ibe=Te6c5QwL60i0iL_4S4b=e,64iieb2bGgbe4v6-cL4cY0c4b4-56=Lbew-iv_bb-e6ev-e-=,c5L0=864L=e=TccwLi-y6iLwee5=c-0,-560iG445ic=0w-w5cLDeG/6ce0L--6GL5eGqGcbbve=GbLwe65Mcib60b6cL-e655cGbG-46vLbe,=wvw0R-666G2ec=ccL,5e-6GLvev5ec,L4-iGwL,e65vcc06-LG5L04Gb5cv0,-,weLi405bc6L7-cG0LL4050vH04=GFiL,4b5i5w0b-6Gevcb-5Lv40004G4v54=wvvG0i=eGbGF4e5cv-,L=,G0,=44-bv=cc=w5i,,4bw-ve06=-w=,540evv4i===G,,w4Gws!bw,=eV-,-,ew5G=0Gb4IL,=bwwwh,i 00G66eb4w-65i5=cGGvi4ve=GeiweZ{F664644vcc-ecf5,G4Gwbvvve=,d=,vbYwGv6iG=c3-,L05i5vGiv=v-b,,bLwi61Le=6AL,cbLwL6wi04GCi,vbiw,6=iiLwpb,6i_wc6LiLe5K0c5b4ev6bi,eiAiz,bb=G6ecc4GWLc0b0-#64c5e=<,v-bi-e6bLeee^6c-iLbb60Lee45wc=L6-w6,L=eb54ce05--6LL5e0i6c40--=G-LweL5Xvii4-eGwL-ic55c0bG44r0L=455w5L0ge,66,b4v5-vR05bL6GL4ev==v40w-GG+c4e6e,ccie=:G5L6eGe0cv0=-,ww,=4I5vc6,L-c=4LLb-5LcG0c-vPwL,4w5iGYv=-6G,Lc4i5L6w00eGtcLv4L5,v00ib,Gbc6055cvL0L=bG0,044wG640,=,GiG04b56ve0ce0GL,040w0v40G==5,,04iw0vbi==eXe,-bc-0v0ii=4we,=4,wwvi50=b74,eb4w-vci5=60L,4b4w=60iw=Lr&,i46web-i-=Lg5,G4Gw4vvi=6w(w,ib:wvv6ie=cw-Keb5-wvGi0=v-c,,bw-i6oL-=6*e,cbbwL55iG=G5w,v,Gw,G,iiey%i,60wwc6ciLe590,G0GwvG5i,e-ricwbb-6G,iceG%Lvcb0-c64cvie),c6bi-56bG5eex6cbbL-660L0e43vc=0,=06iLceb=5ce0i--6LLee05ic40i-=6vLwbi5ecb0i-e66L-0=55c0iL-4GLL=e,5wcG0.4bhLLe4i5-5e054e6Gv44-5=v00w4,G>G5e6=ev-0-=bG5LceGebcv,=bcGw,44)=6c6cG-cw-6,45wecG0b-v-LL,4=5vv?ie-6GbLc4-5L65G5-G?-Lvib5,6Z0i={Q=L6bP5c6&0L=wG0cGbL5vvG0,==Gisw4b56vc0ce/GL,540w5v4,ve-G,,G4i4,vb64=ewccc4Lw6v0i<=4w5,=4,-evii,=bZ,,e46w-GLvb=0},,4b0w=:6iw=G0,,bbcwe6Li-=,A5,i4Gw4b=i==,8wc5b>wbv6ie4=g-c4b5-4vGib=vw=,cbw-e6%i6=6=L,ci--665L==G5w,v0cw,60w=en5e,6bewc6=iLe-*0,G^vwv6=i,ec9icZbbw6bcice-_LcLb0wG64iv4c2,c6bi-66biGeewcvwbL-v60L4e45Lc=i,-b6iLceb5Lcei=--Gywce05vc40c-=6cLwe,5Ccb5e-e6cL-4=55c0bG-40=L=e,5wvw0<-b66Le6,5-v405=46GLbevw4vv0w=eGC6ie65ecc,-=4G5,=eG-,cvL0-,Y=,e4Fw-c6cb-cG-LLi5w6cGiw-vl,L,0e5i6w0c-6k5LcLe5Lv5004GGLLvb&5,zc0ii-GbcE4b5cvG0L=GG0LG44-v4p0,=6Gi,c4bwGveLc=6GL,v40w,v4c0==5,,i4iwvvbiL=ewv,-bQw-v0ic=4c6,=4cwwvLiU=,e4,e4cw-L,i5=iGGv4,,w=60iweeO?,i46=e*Gi-eb75ce4Gbcvvi=e4lwc4bpwiv6ib=cw-kyb5-4vGL-=vlv,,0=wL6+Lb=65L,cb-wL65Le=G5=,v0=w,6=iibR5w,60=wc6eiLb,%0,GipwvGei,ew}ic4bbe675ic4=9LVcb0b,64cveGr,v-bi4w6bc5ee-cc0bL=w60L-e445c=L,b-6i,5eb=eceiG--5L6we0w+c4b6-=GwLwe,5=cbi*-eGhL-eL55v060-4G6L=065wv,0*-b*LLe4,5-v,05-i6Gc44i5=vL0w-,GBGie65ev,0-=,G5L0eG50cv,==0Gw,L4Q4wc6vL-cw-cE45wicG0b-v50L,4w5cvRi4-6N4Lc4e5LG5c6-Gp4Lvb-5,fe0i=40wL6bb5cvG0L=wG0,B445v4,0,=wGi,64b56ve0civGLc540-5v406==^vci4i-{vbvz=eGc,-iL-}v0iG=4-,,=,6ww6,Lv=bu6,eL6w-vLi5b05=,4bvw=65iw4v{3ci00we6ci-e0R5,04G=46ci=e,Bwcib(4Lv6LbG41-ccb5-ivGi4=vY=Gwbw-i6oLi=6jb,ci-=-65Li=G54,vLGw,60w=eB5i,60ewc6=iLewQ0,Gavwv6=i,4wuic_bb=6-Nic44sLc-b04b64iv45R,vbbi-K6bL5ee-cvLbL=4606Le45wc=b,=,6i,4ebwjcebc--6L,0e0wec4b6-=6vLw4iwicbi--eZbL-b_55cL0--4k-L=e65wci0N=b4GLeb55-Gv05=66GL4405=v60w=6G/Lie6-evG0-=6G5LLeG-vcv0=eeGw,G4+5bc60b-cw-c545w6cGv5-v5vL,40L=vJi6-6GcLc4=5Lv-00-G0vLv4=5,6e0i=:GbL6Gc5cv-0Le-G0LG44wv6<0,e0Gi6-4b-eve0c=,GLce40-ev406==5,c=4i-=vbiq=e=6,-4Lw=v0Le=4Gv,=46wwBiii=b5=,e,bw-{*i5b0 ,,40-w=vciw4v{l,vGiweG-i-eXM5,i4Gwbvvi=6wqw,ib7-bv6ie=c5-5Lb5-6vGci=v5,,,bw-j6TL,=65,,cb=wL65,e=G_4,vb=w,6wiieU=-,6bewc6=iLe5_0';TFxjCJZQ_GAtSvxct='-p7S&y>!}XFH4)+o)>7)FEKy>>4>+&}>oXy>Fo7&!)+!&F>}GFS&XFo+>74p>}4o7!}Xo}pC4ToS}}+o&!FXp}SQ+!pSF}Po>!4XS}yJo}SS4}7o}!+Xy}!L7}yS+}&oF!#X!}Xz&S!SV}>o4!7XX}HIy>XS7}}o+!&XH})T!XHyz+!&))SXFpEHF5O!yo4pSx&}oF7)}&oS}}+o&!FXp}S:)!pyH!p)So)oS&XXDEy)!47+>rH+7&}X)&!4+HmeH7+y!FXHJy!SpS>}4)S&XpH:>7X&+4X}H!&)!+)N!y+>&C>:9X7)X4&}>!4)74X7.ly}u&7pHyoz&)Fv&}H!44!+Hp&>>!)p7&4)^Xy}oX7yX7oSyXHppp}&+&&HH7p&>&p&!H)SSyF&H4!7FpS>y!oyp&4p77&}+X8)!47}&}FHS)!}4)&>X4&}>>4X>tX&+&X4o&yy47)}}pH)h4F))>&^+4KX>)Wy7)})o4F}4y74Xpoy&&ooy&HX71!)X4&+}M)}}&FpTFXHH4>p)774&4oypX}}S&yS+Xp}}&+4&&o(.)F>)&S4}4S&FSH}>FX)S7ySH)pfHXoy&&+yno!)+p&pX)o)!U)XSXX}cpys:w>!Ho7pXsF}yt})77&S+pE5F)I+S&)yoX>}p&SX4y7Hyy44Sp}}S&y&+}p+>47&!4))&F>B{X&yX&Syyo4}!&XSo}y4Hypy}&SDyR+&&X}p44!4+SSHX);47&4)qX>y4H7)XTo7&&opy7!u77}!o9IvF!{S!p4)&}FdPp>+}&7H}!oyypXy+4X}Hyz}Ho+)}}+!&FHypp>F)p&7>oo)>F4&+&})o}>SHX7p}7Ft&X>))+}+HpW}y4p&>44)SFynoXSy}&7y&oH}>&}S+!&)Fy<y!&7d&yFSCHX)H4>4)S7H})o4p&H)oXyXH}p}!o+7S&+p&7>Ap7!!+sorX!oS>pH)S}XLopy+!&pH!!+y&p}y)4}}Fyo}X+))74)>SHF&H&yF}y7pX7+4^4FooX>>)7;8HSpF74)7*oX)rF>&}&7)X}<SyX!}7py)F4&)!!+N}4FHp&!&4)7)X4&}>)4Xy)Xp+&X>4Xy+!o+XS4+4ySFHU)!4X&S)!X)!S4XoQp>xH&>p47+wX7o!>q!Ep!!S+pS)H}p{!p)+o&XHo!>y4pkyy4s}7y!}SNy)F>&&}c#4&4)&Y)!p)F>&X)lp>yo&7)Xpo&}&H)7p}Hp&&)H^p)F&+y&}):?X>4)p>ZXXo)>&o{7X}4oX}h4r7yF4+y&XF4S4!y)XS)44cH>}o}SpX&o+}}4!7HH&+)ypHX&&!4{4&F)&b)!p)X>&X)Np>Fo&7)Xpo}}&H)75}Xp&&)Hpp&F&))&CF!S&!0o4S)Fp7}>p4&74H}oXyH+&p)}p+}!&F)pp!y2&&SFXSG>o44y4XyoFy4+47F}op}yXH&&&}7+!!2FoppX4)&>&F774>y4XSpH4oyyX47&4}y+Xyu)4py!}+p>4Fy/X>4o4SyX}oo}44!y&})opyX+&p)}p+H!&Hyp}F=)XS4FXSQ>X4)S74.oXy)4yyQXlop!4Hyp}}pC4&FHOS}!})4>&X)up>)o&74H4oF}&H)7p}Xp&&)HppFF&))&pF}S&>))KSX4&o)>p4&y&})oPy!+&7dF4+)yM)}pp!>)X>}Fp^y>+o}SpX&oX}}4p7&Xpp}ypH&p}F}+}&H)&p7!X.^SXX4/7Xu4X74X}7byXH47SH +X&4Hy&#!}M}&y)zDX>))>>3FpGS}44)S5H}opy&4m&}}p+&&X)}p>FE+p&y44_y>X4)y4XyoXy4+47)Xpp}yXHH&&!)+p&F)&p7!}Kg&pFp74>y4XSIH4o4y)+}7!}&p&y&HS&O!X))&!)55X>+)7>gX}7}>yoz7X})o>}M4p7SF4+)y6)}pp!&+q>}FpV&>Xo}S>4AoXy44yyP}X+)y6+epX!)+y!KFX^4!pg*SXX)%&XJ4X7)X>7G>qH+&4}H+)!}H}p}F&))&pF!S&!7)y>mXoWy}44H74H}opyyHX&}}y)>yS+p&+F}4}!p)+S}y}ip>+4}+}Xpo4>!H)7y}>F&&)!p+7X7Hyv4>dp}!c)pS+y&o)SX}}7Xy7H4>}}H+)&yFyp&4^+&!SF)ppy4p!>4)pS}XyH&>>X}olX4HH77Hy)&!X+F&&>&V)SpFL&4>Xo)>&X&s&y42}y}}+o&&N+}y!>4p+yp+>C!!p4&>)FXo}XX477oXpoFypHp77}F+}&+H&B&H&pH!S)y&&y4D&&p)>o!XyH&>p47+}}XF)p44}+>!HHp&S>)+>&XFm&4>X)7S74X+}F6o}yX4>)4}y4pp9Hp))&&offo!&)}SpXpjrF44o7oX&o!&}o}yoH!pX}}Fg&X}y+T&>FHpmy4(X>F}}SFXo^}p}HopH}X+y>IH}pX}>X4&SXoA)>XF)k&H:4)7r)99yXo_&>>4p7F}!Ho&)HFp&S&))&}HSZX!p)7o;XXH)7+)+;py}F4>&H4p)}FF,&X}y)&!yXo_}H&)7>}X}oyyy4&!bXqopy}4aU4H47S!H))&4>&a)&XFpQX>))yS>}&SpX7H*>74!Sw&(+!&SHp^)}}+C&pF+4&>H4!SyXp)y74)}oy&}opy+H})}}p+4y!F)44!yHpazFp4)S&+*o+>S4>7p}pohX4Hoyu}}pyS}+Fp)H7)SS)XC&:F!oo>p)W+}Xp4)74}HoyySH>P}Hyp>S&+>&HH&4&>H4!SyXpk4>&4yS7&}+o&HHXpyyXHIy4!X44!7HpSoFpp&>F4)SFF>H&yX4F7&&&+oyp4&pF!)+Fy>>4)p&!)y&7X4H4>y)774&4oy>7H4)4}yoWyHHp)J!XHyr&Fy4oS}+&.y>H4p7pXGS4}XH+7S!&7>yX++(o!X44}!)4&pF}3y7&)>Z}>Ww47X47oy&&+XyFH&)&!)FppkH4)H>+F>*4!&44!}Xy74}+4&p&H47H&ro77yHF)H&yX}&p!)44>)X>#7>X4X7y}yo>yX4&7&}y)}}}+o&!FXp}SJ+}pyFF4H>X}}SyX>H4y)}po,X4HX7yHypy&pHFp3H4OH!7Fyo&F4C&>y)7+}Xp4)p4H)+>y:o4p+F+)XSXF}y&!>)4SXX)oMF;#!yo4pSK&}op7)}>+oy&H&py>}py!>X&&>FHp&7&4H7!Xyop>44&7yX7F}&oFHpX!yHXpgH4)X74)oppHSpXSH4XS>X(H#yX4&7o}y+)&+>4pySXFFyF!))&7}+rS}XXV>p44yTpybopp)}&SV&oH!&X!p)p&s+4SX>),&S4}}S}Xoo!yX4}+R}X4y7t}X+y&)HKCJF)/+74)+&SF4H4>SHo7)}XW&y4H)7F&c+!&SHpA)ypF}y&!p4&>))FS&y&o)>})S7X&}op7)!4p)&>HQy4FX))SXXXQ}H&tSS!}}SF>);77S})+DXjo!&oHp7DS}+pp)!>)4S4F7b4y}?y>>}&S>XHK&p&HHp!}y+py4H&py}7X}SoXHEX>yFXPOF44Xp44&0p}+*py+H!74}y+oy7!9pBSX+A&!Xozp!t}}Sp>)4&!3}4op&&o&yHHSpy}&X4&>HXp>>o+&S)F!nF7<4!o.XFHXyXXy7p&Ho7A}H+py}}+)&+F+4&>4F>&SFXoF7&4yopX>H}yy}p+}X&HBpy!ppp!+)}o}HS1}>))&Spyjn}>F)p7y&&+4yH!N7k}!)o&pHL4}!FF)S!>844!}X&oXyyoXyF}Y7Fy)4pQFF}+yS>FpynF}dX!>}4S7F>o)y)4H+&})oFy&!&7&}H+S&yH&44!yHp&&>Fu7!))4Spy}o!7A}4S}y&HXpy!X7Y}!)o&pHd4}!pF)S!>N^p7X4)7+&4o+SpXy)+!4H>lF4Mp}!X+>o4Fy+p!!XFS)})c>>HF>7+!yoop}HX+p}p+4y!F)py!>X&&>!X))7>4&ooy7R}>d4p7+&&+)7XHyS7yyX+S4!&4F!p)4&!X)Ty>>}&S>>X4)p>H&o7&7o}y:Hpp+S&)FS!Fy:p&y)7&yF7oH!E4XSSX>H&yy}g7>&yo7&XH47p}7+7o}F74}S4X&SFXXsk7&47+4X7H&yp!XpX}>+UYTFXp&!o)yS)X+H4>+Fpjy&++47}!FSG}}+Xy>>4pyyp)FS!Fy p>))}&SXXlp>7}AS7>y4Xp7HU+}S+o&&4F)pFS1)XpyX+oH>X4y7!XSH4>&}F77X)o4yp!}p!&vF4y}!&)XSyXXo)Xy)!>y)774&4o4>SHHp)}4F&y>}XpSS4F}y&!3)4Sp)H7HF7oySX4y+&})oFy&!&p)}F+&9&F)pF!&X&S)FFP&7&4)SFX&H&y)4F7&&&+)yFH&)&!)HXP}FX)S&yF7<4>p4pS&X&oo>5HeyX4>72&Q+}pj4i)X&o+&&HFSry!&}4S+!ppS!XXH7FX!o+pIHXoy&4o}p&!&)4}})FS+y4t&!S}}S}Xoo!yX4}+n}!4yyH!+7S>!47y}}!T7&oHHo4X)4ySH)77SXp+)SpHHo!}+)o&HFX+)!XHS&pF+g}7})}SoX!oX>}}W7FX)oFyS4}7p}H++j&HF)&!yX)&FFpp&!X)FSFy:h7yS4pp)yo+)yFH&)&}&+H&SFyp&74+7pp>=;7!y)77HF<oX>S4>+&X&H<&4!yp4}S)HS)F44&>+X}SS!p4}!&X3oyy&H4>}}y+}S4+4ySFHI)!4X&&>!XpH!o+yo}FHpp7&)!S)Fpo&yHHSpy}&X4&7}p)yS4+}A&>XH4>4)S7H})o4p&H)oXyfo4p}!))D}i+!SoFpp?7})}/)F}H}!S4}7)X&oppC4}7FXp+yg&F4pHS#+7SS>4p}S&XH7X}HNS7>4XSLX!))yyX&#4}oF&&&!%Q)S}X}SFF)(F>S)}SpXHo+p4}p7py)+FpSHp)5}>))y2Hyp>!>}4Sy>p4}!&Xcoy&}opy+H}+p&&FX;)Fy+XS})F&)FFaS!})pSHX+H47pH+o)}>HSp44}+&&XX4y7FXp4}p+7&7y}o+7(4XS>XqHXp4}p7y}>F&&F}X+)S4F}y&!BMFSp+nS}XXP>p447_p&FF+ySXp+}X&HIp&!}44!7+>S)X)6H7&4)SFX&H&y)4F7&&&o&yHHSpy}&X4&7}p4H!tXA&HFYxy>44X+}Xp44y>}S+4X}H&pX>4p&}SX}&FXH)&}vX4=7XpoSyoH)vpX!HFy)4&7H!p+X7}Fk7SS})}E&Fp44744+&pX+o!>44y7oX7HcpyHyop!+F!&y>&pF!p+&&XFFWF7g4Xoyy4g}7&}X)4}yo7&4!y)}S)FpSo!)Z!SSX4&}>&4Xp44X7F&}+opy}&S<&4H77p}y)4}}F&x}y4p&>44)SFyAo!Sy}4S}y&H}^4Ho+7>F4!S&Hy+XyHHF&S>quFyHX&&%y44pyp}&+&X7F4pK!&)}}7)S,4H})&SH4X7HF7oS74)}o&yF+X&H}&SL&4Hl&pFypH}7X&m}H&),S&Xpo>>Il47X}4+X&oHGyFFH+&X0F4pSFpgS!F4HJ&H844S74p7Sy4k}7&}XpX!)oSyF>4+l}4F}k4>X4o!&Xyoy>&pY7)X:o&ypHypX}o7&yXo&5oH&+!!y+7S4y4Ly!744+4F7oX>4)pS7X7F}yH!+o}!!++Sy}FoH}p+Fo4F>o!SL)4o}y)+)p)H)7F}&F)7SHD)}}>F#V+!y)}S&}+p)X>))SX}Hp}!+437H4Xei>xHy&HF)7y!HXoy8!J))S}Fy&pyH)X&4XXo&}!4S7&F&o4ySopS>}p)4>pF&SXXFQp>7))p4X>4&7oXS7SXy4Xy)}O7y>FF4S7Hy+}!)+pN)yo)yyWH>o}!k467H4XoS!+oy&HXd.+}yFXp4X7py&}XSp&yHoH744SoH}>4SSpX&+}y4)77&FX+4&QFypp>)pp&}FXo)Xp+>poF+p7XyHoy)4pp!!X))d!}&o}&4HpS!yoo)Sr4!oXy)4X7&}XoS!+4&yF}4+Ky&HXp4FS+&yF4)&pX!4XyoXXSXX7+)7X4XpX!)Hp&y!Xp)y&+ySX>)WS>!Fp7oy!o!&F)p9(}744>p4!oySo)FStXF+X&)F2&X}F)4y7F&SX})Wy>XH>p)}p4y&yFFop&)HppyFS+ySX4F7CX7)4y!)y7!!4+o7X}7)o>o)7()H))SyCF)74>S+N7HXoY)!&)yyXXy7Ly)4}&)X&py!HH)e!}y+p&)Hp7>!p++Sp}HV}!4)p&>X}+Syp)&7pX+j+>yXo7p!!))SXFySS>)U)7S4}p>yoH4>p}&o4>4HpS>!X)4!S4>&)}4py&y}X5)>X+&&FF4op!&)FSlX4+&>}+)S7Hy4oyLF!QH>}44!pXHKX>y)&7)HHt+}pH&7X!4p&}yFXp4X7+&&XFSpQ!}UXS4FeSy}H44p!F&)o>4H=pH!}p)>+FHp}!4)X&}HFo)y!)}SpFrp7yy+X&oF++yyX4+&p!&#>yd4+p}!X+6!p4y7X})op7yXpp)>DHy#o!)o&!yXoSoX7)HSoFSp;!&oH7)F)oyy!+)Sp4XpH!ooyy7FX)X>7)y&)X))p>}H}pq!p)}&}HooI}!HX&)F+7Xy4)Fyy}yo}>FH&S7>}oFS5Fy7>!&)pS&}Xo4XyoX&>4pYp}XXopyFp+y!)Fyp1!yoHyF}!o)}H4y7ZH7op!o)7&!}}+XyYFoSHXF+>>7Fp7F}YHH>)X)Syy)HopS4p+)SoHy7vX&)X&y4+&XyoppS*FyoX>)).7)XX:+yPH&7pX4op&&F}7+!_o&&pH47 }>oXS&4p77}>HS7X!Hop&S+SpH}}+SS!4>S>!S+oy>4HIS>p4H&F4)ok>yHo7)XV=&&X4+pXX>p}!)Fp&y!}+=SXXHIXX)my>yX!+4Xyoypo!SopSH4}14!O)&SXFS7H!}ZX>)X!Sy}X)a&*4y7Xy44&7&!XoI>+4&vX}+o+!y4!S)>X_ySp4)o3Xy+X74}Xo&SoH47(F!)}&4+ySy!p4)S!4yS)y4)&7&HHUE}p4&&>}4K7}XH}yp}GpX>H)X7+FX4oyoFp++>XBp&Y4y)o})HcpyH)))}p)!ppXF)XyoHF7)!poyyX)pSpXX+>>p!!7X!X4V&p}&+p>)HpSyyoo)&&4yoXFp++y7HHo)yp)5SF}y+5&)Xopy}pB7y}F)jp>y4X7))ySXX)o}&+H++oy)+pEHH)+)!p4&pp!))!7HXop4}74)S}H)p7}yoX7)F+p7!HH)7FX&:Xy4477&XH+4&&}HpF!+)p&>}X+4!7ovS&H}_J&)Xopy}&))!XFyZ!>)oH74HLo&>4)+SpF&)o&4H!p&FXp)>+FHlXXF%p&yFXp4}++&S}F4oz!&44y)Xp+H!H4IpX}})oS4+y9H!X;)>pF}p}>y)&7)HH+4!cH&uo!4+ey}+X&)>!pyy}F4qXFyoXS4)poHX)o)SwF&)o>4H_pHHX+Sy&+yz)!4)X&&FXo)}+o!S}X4Sp>}4}744y+yyp4+&p!&3>yvHpp}!p+R>S4!7Xy);pyy4X+)Xp+y74Fo7p!yH4SoFp)HSoFSwp>y)p7)Fpoy!FH)7hHy+}&+4&yX!!7p&p)yS>XF)X>y))7)y!)}poF1o!}!H}&oX=p!y}))7p}F)o&)4 o>!}pp!yFySX}Fop&yXpp!>^Hyp)!)+X}XFoypHppX>XFy?X!y/XS)H++H>p4)7X})p>&S4uIH!}Koy&)!p}!FpyS)))p4!&HHyHX)7p!&H}7y4y+)>y4+p&HXf!}p4+py}F4SSEX&Sy!4)p&&4)+4!jFHyX!S*7>>H4SHX7p&S}Fyp&>&+77S4pp>yo)+7>F&o4>4H^pH}po4}p)7UXXFkSy&FpRS} 4&poXSo!XyHX7SHS+&>}HSx!!&+X&yHpJ)!p++&&XHh4!UcyS}4)jP}SH&y)}Sopy&FXpS}d4HSoXSpV>&4XSSH+oH&oo)>yX&7Xy4HZ7}}4))>=Fy7}>)o7>!FXp+!p+>po4)p7Xy)F74}pp!&4F)7pFyoF>o+pp&}})4S!F&ooy4)&7&}X; Xy4&p)F)op&y+)h)Fp)yS}+p&yX!+}yo4p7yyoo)Sp4y)o&)HLpy!})p>+)yp}!FoL!X}o7F}/oy7X)pLm}744S1X&o}!X)o&pF!YX>)X!SyFXH}yzF>Sy}HH!y}4)oy!I+77pFF7y&4+)c)X7)y&4+p&pFX)4!p4po6}>4yS&XyoXyyHB{HFH)S}pHy&)XFjS&y}o7)!poypoHFSp}7HoS4}p+)&XFSS+X>)}SS+p7&>X+4!pX)a}Fp)&>X}Xo)}SH)lo!4)o&&Fy7+}qo>!XXSp&}>)pSSFpoH}>+FSpH7op&S4IpHF!+S>bFHqX}4zSy>4Hp+y!4HS}F+7S>y4}_F!y)X&o)4N&H744SFFDLp>nHFyy}+oyX}Ey774>74}SFyS!X!+F!>)y7X}!opSy+ppo>>+S&FFH7>>7o}y74&pF>X+S7oXyoHSF4S5y>>e4!aXyO>y)J&>>4F7+X&o}&o!p77}}4X2p!+p)>XX+SpXFoo>7HS7yX4)pp+}7o4>)+pp7X!))&7+)SXHy)p!)))o+X!HX>F})o+X&)XSH!yo7>H+7*>Fy7py)XySFF4+)!XX77X!yA&>)}>+)X7o)p>4y77SFH>3)>+4X>+HoS>}S+HSFX>7FFpo77+HH))S4oS&}H}))&7Fy&}F4p&Sy)}S4F7u>>}}+p+X}H>y+Fp9!!X4o&!!>pF!+XySy>>o)!XFpSF!yHy&S}F+)>oo&pX4y+p}>op&+}o)>!4+io+yXoX7p}+pS!X)opyX7pX}7H7&HHF)p!>F7&}>FpX!&XXS4}S:)7>}+ppy>)!>GH>7}S)+S%yX!)Xyo4Sp7}H+H>!HS+)!)47&y)p7FX&H77>!F77!F47S)Hj)>>X)+S!F}+!>SFo+X}oHpypFS+X>H)SS!HF+Fyo4y7H}))7>yH!p)>+47!p})o+}F)H&)Hp7>y>++&!H}toSpX+oXy)py7yF7S4>F+pyyFFp)>p)yp>}yp!>y+4&4!p)ySXX)S>F)4>7+X+o>y>oSp+}ypo}4FySSH4oH>p)F7yF7+F>yX>p)X!477>4)S/X&HXpFFR+7!++40y!>4)!+4pk7Xo4)>!H!oX!H6L&S!)oF}>+ypX}Fp!!yH&&H>+)7>oH!q+>7+Q7)4po>yX))So!)o>}So&=X!>oo}X4Syp!F4+&7)4S7!ooy>}XF7>}yo4&)}++XS)+4S>H)4)!4+7&)Xo)p7yX7S4ypH+&!}XGo}!)S7>H7)+!F))S)XSoy>oXX&X>Xo+>4}4o7yXH)>XHypo>)Fyy}!F7v}7)Hp>>ppXy!X>_Fy+)7>F47p+>74>S)4ppF>X4)yX>)oXS))!SFHpo)!&X>pXX+4pyH)p7SX&o&y}Xo7.>S)opFXSlF7)4)poXFo+!&)XpyX}H)&SX!o>XyoXp>XHp4}XF}tFy+4X7)FS7&F!,>y7)ySp}44oSHHop4!H4oy,Xp+y!7+y&7XHpc>X)SS>y&oyp)H)+&&}oSp>XSp7}&40yp})o4>4X!o}XF )>F4SS}XpoHy+!4+p}}+o&!FXp}SM)>3&FF))!SX>77XX(l>!4}iFXpopp}Ho+7}!4H7yFSwX>>+77X!S4&>>)XS>}oq&y)4!7F&}o7p&Hp)X}7F#&p>}LXS&)poX>_o)7&4y+&}XoFy&!&7>&}+yd)!ppp!+)}8p>&C>!X)>7oF&o)>!4F+}}XH&&o!Xp)!+X4&7}7p!SF)yS>F#oH>X)pr4XFHL>}4u7p}+F&yFHp7&}X+F&F>bEX7})pS+X}H}y+X)7>ySoHp+4S1!>p)o&yF7p+>yX&&>!X4}!7XSSHy+{}!VFS;7}>oHy7XH))S)+HD+FyoFyS)77!F&o&y>}&SpX7H}>7!)7H&+)Hy4X&7F!)44yS}&4)&>FXSo>7oF&+)pS)}+)X&0X!)}XB+}&XH>44}7)X&4Hpp7!7}}7oy}o!7/Ho+4}XHpp}Hy)4!)F}&S>))p!p)4&!X)H4!74XS4Fp17>7!}7p&e+Xy>Hj)L}>))yJHyp>!>}4Syy&o)>F4&o/}+Rpy+H!74}y+oy7!q;oS4)XhpFy%>7&4F8FXo47>HH77o}+)7S}X4,XS}oC&}FXp>74+7SXF4pp!7)7+}XpHUyX4>7Z&I+>7yF+)H}SF>&H}o+X>!4)7FF>+)p44+IpyCoFpH4S+>})o}SXF7p)>,4XSX>y4y!SX>7>XXo4&?H77y!X4HG4HXpF& +FUyHS)>}&HHS+X+p&yyFXp&yy4+>S}>p>X7oE7HFHpo>S)4o4H&x4>))FoqF7)y7&4+++X!HF&!X4p4y)47&4Hpg&SXXX&!>Fp}!FHpSH!>)+yFF++?X>+)>b4y7>}>X4&y>&/)!}+SSXy}T+>y)}S)X+o+p&HH+&}yF4&H>4pp}7)4o4Fy)c>)Xyo4XX4qyo}47!ypHyyy47p4S4o7&XH47p}7+7o}Fp4}>XX;SpyDoy>>4 +e}XH&yp!Xpy}>+EKOF!)<!pX4SX>p4}>S}47)y}oSp)}p7p}++}ppH+py}}+)&+F+4&!>F!SyF7o47y}}+)ypHyyy47p4y!4)y&XH{o!}+S7!}S^}!y+p7>F78HyQXXSHXSH>S?FF7+!+4X7oX4EXS})ol7}Sor>>)7pH!&+!>m)yo!}4oS&HF)p4S&))pX>})p!!XF77Xo+S!&4+pX!}oSpH!4p+Xp++&!H4py!o+7,5>y,4!S4H7)X4H&>&}}77>po!pFF>p)}&+H&4}+py!yX4&S>>uH&oFX7!})+F>>F)o!&}+Fy)HFpS}}+p&HF+44!>X}Sy>2oH7}47+)})H&y+!47>&}+ypKFF)}!+X)?&Xo4}>XX&Spy4o!7&H++X}yo>yl!T77&I)+B4FX4}>))+S}y}o+744Xo&XFHX7B4>+&}SF&&XHFp&S&+>e}Fy)_>)}4SpF7o4p44Son}FHyp4H!+;!oF;&yH>p3SU)XY&Fp45>y)>S.yq177&4p+4}!HppyHy77!4Fy*}FFp)!F)S&}Fp(H>+}4S>y}o&7{HH+}}yF)ypH7)8}CH>&H>+o&!H+SSFXXoH>!FF+&X4o&yy47)}}++yy}H)p+!+X&S4y4*y!744+4X4)p>&}!7oy7o!SHXypS!X)>y7XX4}>+F)o4XF4>>oX7&7Xy{Sy!Fq7H}!4ypp!ppo&7+y7!X7ayy7HHS+!yH}>y4>+4}FHpyo}77SXp)7yXFHoXy))}Qp!F))!SX>&pX4)Hy4FH74}}oH_44&p4!)+FIuH>6)}x+y&>F>H4>+}&7)X}*SyX!}7+}yo}y)H+p+S&))_&FS44>HX}SS>Go)7}4S+)y&oFp}HX+&!oF4y7!&.oS{)y&>F(4?!7Xpo}XyH4>>}}7Sywo>p}HS))&&+xq}F!)&!FX4SX>&EF7N4yS>X.HCyX}p+y}yo7&4>477!X+4ypH7p77}4oo}F749>p}R7yX>o/p2H!+&}FF4&}>}5)!+)}o}Xo44>XXp7)X+o}p}4F+}}XF}&)H+p}S}+pz4H7)&!pX4S}>p4}>+}474y}o&7wH4+}}yF&&XHFp&S&)HYyFpp7>4}4SSy46>7}4yoz}4F4yp47p4S4+ypJF444!p+7S4y4ny7)X&Scy}o!7&Ho+g}yo>yv!ip!&&+Fk{Fyp>!KXrSX>&_*7XXqS>y&o&73H))4}po7&4>4py&g)4j}Fy4)>X)FS&y&oH7&4++&}XoFy&!&p)&}++pNF4)}!yX)EpFp?+>}X&S7FyK7yH):7XXSo>p&H&+.!)F}&S!up>Sy)XSFy}1}S+)So>X}oX>SF&7S!>4!&7>47&!4))&F>=p>>)+J&yF>N>p44y+&})oFy&!&7&yX+4RoH!)F!o4Sp)XH(py+)F7py,o>Sy}&77ypo!pFFo=^>})p7!FFn+yyXXoXF!4F&HF+p!Xy)o>yF4Sy&1+)&+!&p7SX+!YFHXpH!o+yS+!FY4>p}XOc>yoHp+XHpF}44}yXXy.&!&X&&4F&qy!7}}7+>)H4yF}>7oy7ooy&X7l_>)4!74X})pSp)oO7XHt4&})HSFXF)oy}!}7+}yo}y)H+p+S&+>/&F+44>)X}SSy&oX>F4&+&}4H}y+};pHS4+py7F444!+X)Q&Fp4}>}X&SUy4oX7&4p+Xy?+Hp&HS+s!)F}&y!_x)SyX4SX>#qp74)7o&XpH4yX}p+y}yobyHHp)n}>))ybHyp>!>}4S+y&o)>F4&+&XFop>&4X7F}FFY&X>}pp!+)}D&F7py!74H&AXXBS>>}&7+yv+4p}HS+,!)Fy&XFF4}!}F+&S>>o>!XHF&p!}oF>FHp)4X&+4&)HF)_}>))ycHyp>!>}4Syy&o)>F4&+&X&4Xy4!o7!&F+oSS})aH!p4+&FXp4=>>Fyo&X7Ho>!}FSK}FoSy7FUp+}Fo>BX>Xp!SF)X&*}F)+>&44&pX+H%y)H++&}7FXy!!FpF!!+oy>}oo&!7)HoX!7)y>H}+7H!})HyHF}7yy)4Hz&H4p&!y+7o}F+Iy!}))S+X+H&y)!47yXNoHyp!v7>!)o_yyH>p>74)yo4X)4&>&Xc74y}o+72H)+y&4+!pbH8)4!}F&&F>4,!SpX}SSy4o)7}4&or}HH}yS!)+&}pF}&!!&pFS4+7;&FP4.>y)>SZy1o}7pH)7+}}F}yK!}p!&&)o9 Fyp>!<XBS!>&lF7B4yS>XgH9y!}&po&XF)&)HFp&S&+F&pH&pX!F)FouX!4(>F}}S7y&oFp4H}+&}FFX&yH>p:Sc+7#/Fp44>X}}7)X+o}p}4p+4}}H&yF!X+#!)F&&S!Yp>S})yY%F>4y>p)774&4o+p4HH+}}SHt&4!}pSS)F&&p>}BXS&4oo4X}4&>p}X7yX>oGp347+c}FF4&X!&ppSq)y&>FO4V!7X&SpyIoy>>4n+xX7Hpp}H&)4!)F}&y!/CHS})&o)>psp>+4}o&X7jy>7HHSR}XoSy>!&py&I+>%}F&)e>HXySXXFH}>}X+SSy>+S&&HySp!p4ySHFp44}&)4S)FF4L!>4)&JFyg>>>!47&&&+)yFH&)&}&HX&4>op!SF)o7S!)oH>pH+SF}pHJy>Xy+&}7Hpy!!Fp}>y+!7XF4o)!i4>oXyX.!7FHySF}7onS!4HDX>RFh&)F+)&!7XX&!>FoF!X4pp!FSoF&pFH+X>7o!pFHHpS>)opSSFSpo!)X3&}FDQp>+}&SFXp?&>X4F7F&_o7:}Hpp4}!))o4H7cX!4+p&7F7H}>I}}7}yNoFp_Hy7>}zF0&}!&pAS4)Xd&Xo4XS#)>o&XS4g>>}}7yyR+HT4Hp77!4X4&y>))&>oX}&7y}o)>+4}+}XFH4yX}&7F&4o7pp!}p+S4)HV}F+){>)X}SSy)4p>p4+7}&}o+yy4}7)}+++x&F))&!&X4SH>}1ySM44o}X&H)7&4F+}}XH&y.!4p}&&+p{X!UIHS&)+TVXHH4>p)774&4o+7GH))4}po7&4>4p+&B)HGy>4fXSA)po4X!H}y)4+7}&}+op4H!+&}pFX&yH>p#S:)}L5FF44>XX&Spy4oXp}H)7+}}F}&o!X))!)+F&&>)pF!p+&&XFFNF7.4>VSXpo+y}}p+&&XF)y&HHpS!y+&o4F}+p!!XF&y}4pM&SFyp>}Ho>pC4S7FS4+op7XS7S>}4}SpFp+H!QFSS}Xoo!yX4}+e}}+)7X!}pH!)o<&>FXp>}7XX&SFF4&>>)XS>}os&y)4!7F&}F)yFHp7&}X+F&F>xaS&)HF7>y&o)>F4&+)>So}yoH!pX}}FV&}}ypHS+)yy7F!+F!yHop7F&4o>&4H7S}yo&n44Fop}!FF&oXS+)>H)p7+FFopSH)VS!}oop>_!}Swy)oSp>Xo7F>+))yy}H+F!jF!S4FSoHy)44+&}F4Xyo}7p+y+)FS&Xf+o!)HypSF}Vo>!4XS}yOoF>)4F7SX}opyHH+)&!H+pk}HX)&SFX+i7>pQ}>o4!7XX}HZ>>Xy7+&}+Xp&!&7H&7F><FH)4)>SX)7)y4Ho7S}X+)>So}yoH!pX}}F1y7}ypHS+4F&pF}lo!5H7SXXX4o>!}FaH!))4yFFSo>>So>M}FFp)!F)S&}FpaH>+}4opXF4)>7}S7H&+oSS!Xpso!y)7&+Xy4&>))FS&y)l&>H4S7yX&F4y>4X7>!oo&&)H!pFSM)XO0Xo44>XXpSyX>H&y)!4S&}4+)yF!w7>!)oAyyH>p>74)+o&X)PF>&XoS>>XoSpo4>o!}yo7&4>4p4}S)HS)F44&>HX}S+>KoXSX4>+4X!HF&>H)7&}H+47+HypyS4)F0&Fp44!>X&SHy+Opy4HSty}Fo&ySHX))yS+}&oF!iX!}X%SFF)gF>S)}SpXHo+p&4&+&&Xo<y!Fopp},X}So>4p7&y)Ho+Fpo4ySFy7FX&oSyX!47F&}+yT4H!)F!o4Sp)XH3py+)F7py4cS7>H)SF}o)7y)F!oF}4Fyu4FX)b!HX+SX}Fz=!>4XpS}&)&7f4!+F!&oHy)H)opy>o77S>X4o!!XFS>!>o7&4F}h!Xy4)pX}op)&&+op7F+++>F4&7?!oN)&yXpW!F7oX>4)pS7X7HcyF!F7S&>4H&!F!o4!X)HS+F44y7H4!%SXpo+y}XS7}}o+!&XH})r!oHyy H7pX>)F!S4FSoHy)44+&XS4Xyo}72+}y+4ySH&o>!)))o}F}qo>!4XS}y,oF>)4F7SX}opyHH+)&}}F&_XHVp!>o)p&Gy}o+S))7oWyy4H>A4!po}poZV}Hp+)}7F 5y!Hp0!!4oSpFDH}>vX)SSy>oHSoXXp!!))Fy>X)+!!4+SSHX) 47&4F6Xy}o!7B4p+4XSH>yHXooX!!))SFH>o)S})o07}4:7y>)4Sp>o)&S>}p+>&}oSp>H7o7>+4}7&}Spp&X4FSo>7oF&XFFOyXo)!&7F++p&yFH&>}Sp}!o)!SXF}4.!7Fy7oy}oX7&4H++X};xSSX7p>}H+77H!Wp!SF)X7yFpo7!yF+poFfHX7o4&7H}S+yy&>4pyypFlb&>)pSS>)Hpo!Xo!y)HFS>!)Hy&+H!+i}pF4yS!>u+y)H+pXHS+Hy>47oyyX4o>p47+}X74y7XHo+7>++y&4HSp&y>))S)>pp%>}4XS>&4oXyF}(p+y)4pyS!y7&!4))&F>Pp>>)+w&yF>6>p44y++X!HF&>H)7&}H+47+Hypy&H)X&&Fo=y7&)>nXXo47>!FHly}S+X&>47sXyS+2p)HS)>>7)X&cF!C}&F)pSp>!oy>7H4o!}yoRyHHppX!FFb&F!)+p!!XF7p!++&yp)XpX}!)XpX4}7g}p++=&HFpp}&+X&FFF4}>>FyDXXo47&+4y74XSo&S>H)p)&p))&+F})_!pXFo4F!4F>oHS?)}Hop&+4Fpp&ooSp>F7pX}D+!&}}Fpp!pXyoXFSMF7&4y++ycoHp+FF7p}}+oy(X7pX!XFS&!>Fo>>))&SHX4)+>y4y+X&)4SypH+p}yS++&yH}p)!+)+o&F!4F&)H4S+}>KX&}47p+&}+Xp&HF))}SF>&>X55!!o))7y!y)+7y}F+4}4H!p}H>+!&&+op7F+++>F4&7_!oR)&y4>SHy+O}&FHpSX!)o7ypXy))&pFypHFXp>!EFH&lF!oo>p)h+}XS4)>7XS7}}o+!&XH})E!F+)&FFSp}!p)HS+y&pp7&4++)X&oHySHy7&S4+SpoHpp7S}+7&!H*4_!7Xp&nX}oX>>!47+>p+op&!X+o}p+7.}H7+y&X)o<7}+%y>4)SS&!>o)y)}pS;}}+Xy>>477!X+4ypH7p77oXS?HXXM>>ZXH7XX>oJ7HH!oy}HF+ypH}po>y))p4X&p!74)Fo}XyH4>!}F7o!S4)&HHph+}F)p54HS)>>)+FSo}7Y)y!FFS4yyH4yX}C7H&++XSFHT7>!X4SS&}&)/!!XF7&FHm)>)Fpm>F7)SpX!o7>&X+op7H!oHyy)SSXX>p7yXXpM!XyH4>>}y74XS+H&)H4)&!)HXQ7>>/+!H+7o&F>)X7})So>XH)oSXH!p)!Fo>S)!!pHS)F&ooFS4&>4)Ho;XX)y>p}+o7X!HFy)4&7H!p+X7}Fk7SS})!Y&FF44!7XpSpX+o}p}4+7yX}o)y+H+)&!)H!&yH764&!)4&SXHo)>4}&7o>XHS>S}>sz!Fo+&+XXoo>4)X_&HS447o4}N&>)4>y}X&o4&oHypX)7oy}HF+ySX!op>o)yS7F+oy7&)&SHXSoy>&!47y>po>7!H47S!H))&4>&8+}p)+S!F4?y>o)7+}}+oyp4}>+F&+F)yFHp7&}X+F&FHH)7S>XF&)>#/!7F4F7X!FoSS!Fppp!oF}GH>H)SS4F7 >>F4X>X)>Say.={>!Ho7pX0F}y74y77!Ho{&XHSp>74)SSX>54y>4)S7H})o4p&H)oXXHMp7SH}po!!)X&}>OUo&y+!&)>oU&>H4S7yX&F4y>XpSSXXHHyxH!jo!p+Zo}Fo))!o)So}X>4w>>4y74y3+)>X}H7W}!)o&pH%4}!pF)&7>D4y>4)S7H})o4p&4FoXXH#p&+HH77S&)FpXFo)7!!HHpyXSoXy>)7pXy&oppJH}7!S4+4ySFH{)!4X&SH!X_p74XpL!X4QSyHH)74&&o>7!HXpF&q)op)}pp!SF)>p>X7+4&}F!Sy>)HX>}437p}+F&y>}X)}!yFA#yH++p7H+!&)y))S>p44S!})oyy>!4pHyXH)yS!>B7!X+Q&!F}+F!p)poyF&o4y)4F+mXUo!&oHp7zS}+pp)H&)OSyFHS)X+H4>!}&7XXFo&p&4!+F>y4)&oXp;!yF++S)>}pSS>HI7FF+o+&XFop4}XH&yy!)+&&SF+m4F&+=&}Xovp>64!7))4S&Xyb7p}4po)XSH>&pH)Cp})4&ypH4+HS&)yo)!S p>+4}+}XF4)yXXS7p}4o!&)Hyp>S4)HpX!)pSS>4)&FXo+7>)H!VFX4Hy>&H4p)}FF6y7}y7yS}X)pSFpZ+>}FSS+}Ho>yyXX7+yo+)yFH&+o!++Hy7>&B)&X)oZ7F!+H&y4S7X}>J7&X}&7F&}F)&4HH):!F)S&p>)447H+!So>7j!&HFy7S}X+>>7FXSy&y))7pFHppS}X)pSFp<+>}FSSo}H0S7>H)SF}o)7y)F!oF}4)Xp)Fy)8SyFHSFF!E+7z)!vyXHH+>SF!_p!o+y&7H+,y&k+>e&>X2}!!}4S4FSoHy)44+&})4Xyp!4+py!+X&F!q8oS})X &FH4+!SH!pp}ooyy74+pyy0o!pFHoZSy))H&pX+pF>pXXpp!yCH7+HFSpX}oo>LF77X}XF)y4H&py}7X}&}FoK!>X)}oJXF)yyo}}7Xy&oHp+HFoF!>)b74}HpXypFP&!>FRp!+)Sp>Fp+HS+)<+Xyoo&yHHSpy}&X4&}}p#HS&)yeYF!4FyS)+77Xp_XSoX+7&&4oSp>Fv7!}X+Xp)}7p+&oXyxHF2.!yo4pSW&}op7)4o7&&&FXpYH&)&SXFm&>Fym4S*)>SyX4ppSS4y7>&4++7X})7S&>)7&XHlp!!}HF&pFp4y!&447)XFHPyXHS7?!)4py&!&)X&o))S!H&Ep&y)}o}y))S>p44S!})oyy>!4p+yXH)J!4SpHS++S7!}poo>y47S+}ypp7p)j7}}Xo>34Hyfo!4)Xp)H7)LSyFHSXF& o>y4)7+y&o>SpXySp!HoSp>H7o7>+4}7&}Spp&X4XoXF}Vv>p4++&})+!y&Hpoy}FF};)!y)&!oF7S+!+oFy&Hw6oX))yy>4H++X&o>ySHSo>!po7yS>)0)!}+SSXFpO77}4FZy>Xny&o4!+F}po+ySX>7p>HH+y6X)4)!4)&SyF7H}>pHH7}}y4Xy+!4+p&XF}yS!>p7y74+7}}&+S!pFX7FXo47>}4F7!}!4F&y4>7!&p+pSHH}uy&X)4o4>p)!>y)774>!oXyF}spo&}+4p&HH)+}S4!7pXo(y>7)+7y>Jx!7F4opS>)+HypF+7F!pFX7p}ypHS++S7!}poo>y47S+}yH)>44&7yX7F}ypFHp>!yHXy7XoL)>!)7SpXyip>+4}+}Xyo>p4HH+&}}Hiy!!Fp>y>)774}}+!!yF)o4FS4>>7F7p+!})&SS4poX&yH)7pH!)F!o4Sp)XHOpy+)F7pyXL}>A4p7+&&+)&!H&ppyy++SHFXIS!w4)SpX)WF>&}&SpX7H}y!}q7&&4oSp>F)7F!o47&)X!+F!4X}So>7oX!>4H%+XX+SS>4}+pyXH)yS!>pHyoHXS!X)oF!>H)oyF&o4y)4F+w}X+S>0F)op}F)!&yXop4>X4)SXF>rU7i4o7SXo+)SpH)o!}yo7&4>4py}7)4p!H7sX!4+p&7F7H}>oXH7XX>o<7H4Q7!!o+pyq>}p7}y+7SHH^jX!S)>+4X+oX7fHo+4}XH&yF!X72}!)o&pHc4}>+F)SX!S^}>o4!7XX}H9y>Xy7FyHo>&)4x7y}>+>o4HS44!!XFpy!)oo&pH!jFX++)p}4S+>>p4X&H})ISy>+FSX>&4}!o)!oF!H+)&44FpS>>)S>>!}p!&poXvXXop!SF)>p>X7+4&}F!Sy>)+)7,H)+y&4o7pp!ypy}7)4o4F4pS>H4)S4y&o+!p4+7!X4oyyo47)}}4F}&+!&poS4+>bpF}{o>!4XS}yboF>)4F7SX}opyHH+)&}>+p2}!7)>SFXX&EF!oo>p)V+}X}H4>)}&pH&4o7&)!}7y&.+>m}Fp)O>oX}S)>.o)>p}47oy&+o7H4_7!!o+pya>}pp&)+S,>X70X!v)!S}!Fwp>pX!S!}4opy}Hy+p}!FF&oXS+)>H)p7+FFopS44X+}Xloop&4p77&M+X7>HH)+!FHFS>Xg+4&H)Xppy&*4>&4yS7&}oyy>!&p)yFH)yS!>pp>7)}&+Fp+Hy4F4+4F&o4y)4F+V})++(4Ho+7>4oSyyHy+X&++FpH!y)X>y}&S4X&oy>7!}7py)Hpy!!Fp>y>)774}}+!!yF)qHXXf&>o4y+&}H4Xy>!47!&F+FypHF+)yoH}&p}y4XSo4)SFX&H&y)4}SS}XF}yyH>)&&XoFp)FX4}}r)}SXF>H4!74XS}Xpop>}!}7y}>F&&)4F+)&!X}y/F}?X!>}4SyXX)y>H}+7+}))+y!XHRy!y+Sd4>o4oS!FdL>>F4+7)Xyo)>HooSy)!S)yo+Fy+Hypy}SH!&yH754&!)!ppHSpXSH)pryF!H+77}>SXyHoXy>4bpX}kX}yLH7pX>)F!SyFq3H>p}R7H>yv!>)}o7yyXoHp7!>)F})FoS)FFE&7&4)SFX&H&y)4}SS}XF}yyH>)&!)H}pp>&p4!&)y&7y}{}S)4Fou>7H47HX.+}ypH<po!o)4!+Fpp!HX+p>+X&z>>24X74}4o>y&Ho7X} 77&yHH&XH&po!yX&&pF74DSy+>*XXyH&>44&7yX7F}yF})+p&4F)pHFy+ySXFpKoX);}!S4X+}}H4)yF}Zo7&4H}p&!o)4&HHCq}FF4)&S+pf)X>o)p44+7X>yH47HHX7>}LFj&XH>piSC)X&>Fl4G>XFySpyH4ySS4p7+}}4Sy7Ho7>S}+pp)!&)&!p)yo&X4wH7;4)7+y&oyS7XypH&Xo}y*Hpp+S&)oS!Fy)p>!4XC)FpoS>p}Hoy}y4!yy4.7H}pFV&!FSpp>)Hp&yX!by7oXX7X>HoX>>4hoH}Xo>y6}H7B}!)o&pHz4}>HF)SXX)4Xyo}ooX&4o4>SHHp)}4F&&)}!p4}S)HS)F44&>+F!S4FSoHy)44+&}+^py+H!74}y+oy7>}pXS}F7 >>F4X!H)TSyX4oXp})#S7XX+)i4H&7SS}+p&+F}4}!p)+S}y}pS>}4)S&XpH,>}4FSp}yF&&4HH)w!))+o4F++(SyFwKCy&s4>&4yS7&}oF7)47+Sy#H7c&F)pF!&X&S)!X34yo)>7X>HoFSy4ppHX++y7!HXpFS}+7p+!4)+74+&S4X)9F7G4)7+&4o>S7Xy+)ySH&z}4#p}!X+>o4FXxF7})7g4>y4)7+}_S}Xzopy+!&7p}7F#py!4))&+)Fo}Hsj}>X)>+4XXoFp}47o4yyHH7p!;7}}G+p&+>&pp!7XJBy>H4)S44F+}FOo}yX4>)4}X+Fe}H7+4ypFXjo!74&!4)&SyF7H}>}4o7!}Xo}puH>oy}p)H&>Fy+!!4+SSHX)C47&)4tXXS+oyF}!o7}p4Sy}Hop!!X+}i8HD+y>o4HS>Xy4!!&Xo7H}!o7ypXy7}yH+)&+!&7&y7F}9yH&c4>))FoOX)o+7&44K,>y+o&HH>+S&)))%)H4p&!y+7o}FF))>X4SS5})4oyHH!77&oHH&X})7RyS+p&+F}4}!p)4&!X)Gy>>}4S&>F4)y!HSp+&HHy&y!y7&!4))&F>/p7&y)p7HX}oyS!4Spo}FH!7SHpoy}}HH&XH>p6S5)X&&Foxy7&)pS7yB4y7HXmo)>p++L44&p4!)+FQ6F)u+S&)S7oX)o!>74p7y>}4)y!HS7p!Ho}&yFX)X}}+A&pF+4&!>FXSy}oo4yXXH7XX&ooyy!&7>yX++lo!X+!!y+7S4!!dy!Y)HSpyqo!yS4ppH}>+y&X})7>!S+pSHF}Py>XFHSXF>Wm7w4XS>XlHuyX4&7o}yF&ypH7)=!Fo>pX!p)!S}}4&&X4o)>F}1S X!+oyp4k)}}7HH&!FSpp>H)>SyXX))!!4SSp}Ho}yyHXoHX74yyF!H+yyS+pp)HU^S!F4)ZoXHo!>yHo7F}X+)Sp4Hp!}y)o&4FX%)&o+>pXF+4oSXF!Sy!pU&y!4+7p>S+o&HHXpS!+))&p}y=o>H)XSSF/o)>pFSSF>)K77S})oH}X4yy}FH77!yH!&>}pr)>!)7SpXHo!>>4pOy}o+HyFHy+&}S)o&+!!+p!pFp&F!)p7SSX)IHXX)y>}HHS7}y4!ySFop)!!+7&pFyz!!S4oS)X!(&>p4y7X>)o!yS4ppHX}+y&X}H77yy+FVH!y+S!pF)&DXSNFy)Xo74XHHK>>H)S;Xyo>y>>4py}7)4p!FypI!H)po*FaL!yo4pSj&}oF7)HXpS!+))y H!wo!p+To}FZ))!o4H7!X+op7(4&+}}!H&yF!H+y&&))dX>)7y&!)4&SXHo)>4}&7F>X4^7oH+7HX7F&&)}Xp+&^))S!H&6p>4)Ho(X>)yy+}Hoy>S+o&HHXpyyX+&SoFF/X&H)X&>F.4_>X)>S^y#oX>>4k+c}Xo&yoHy)&}p+733!y)H&SF+ppX+H4!&447)XFHMy)H+)4ypH!p)}F+)!FX}y:F}_X!>}4&7}oo)y!4&7p}y4XySFop)!!+7&pFy+!!y+N&HFp4_>)4++4>p4!7oXXo)}FF}>?H}pX}>X4&4HSvH>))4o&F>)X>yHo7F}XoS&o4>pX&}+4pJFo)4}7FSi)>4fX>S)e7)y)4p>p44S!})F4y44SpH!)+4D&H>+X!y4oSFXXDSyo)>7X>)o!yS4Fp)&4ogp&HS+^}>F!pp!Id)>!)&Sp>p4y>y)774&4oy>7H4)4}yo_yHHp)0!))+o4!p)!&TFF/)XFH}!c4}7XX>F4yXHF+E!o)H&XFSB+>))ppy!XUyyo)47XyX{}>,4p7+&&o>7XH+)o&XH!&yH_pH!pX(&7!ycpyH4}7y>!oy>7H4o!}yoKyHHp)T!))+o4!p)!SoF}/)XFH}!L4}7XX>F4>7HX7}}p+py}>}py!>X&S+!})pS}X}+4F&o4y)4F+JXRo!&oHp7jS}))p)H)cS!p4HS}XyoXSH)NS!}oop>g!}7&yHoly!Fopp}8X}&7!)po}yF!S}!pR!7F)>pX>oGmy&H47>!yF}yo4y)}}H)SS!Fyt+>}4)&&>)oF>)4F7SX}opyHH+)4}>F}&y>)p&!H)SSyF&H4>yFp7+}!oyypXS7+}yo}y)H+p+S&))S!!pIp>S)p7H>>oyyXXH7XX>owp4HSp!}F+yyHHppF!&)Xyi!XE>!X)>7oF&o)>!4F+}}!H&yp!477&p+}&oF!2X!}XkSX!y_7yH4X7yXp+H7yHyp!}y)opFFXl)yp+>p!Fyp7>4F!&)y))S>74oS>&}++7)}y+&}p)Hy}FypZ!oX&&>!Xh+7oXXk!X4kSyHH)74&&+)7XH4(o}>)XpHF)%+74)y7oH7oXS)FpoX>p4pp&447&}yo7#}H7OH!>Fyj)X)+p}S4oo4XXoS>KH)&p>Sopy44!p)S4+>SoFF)X&p)ppyH!pSS^4)7!X&op!yX!7yX7+47!HHaoSH+!5H!y1y&X)>^oX)UF>&Xo7H}!oy&oHFpX!)4py}!&pp&t+PL}H74)&S4+&7XXoX>!XH7XX>o?7HHF7!}+Fn&F}y)4S4F!o}FaNo7&)pS7y34>S&XX7>&&o4y&Hy77S}+y&>>&I+&FFpo&F4;&>y)7+}X7oo>>!}7Hy)Hy7_!}+!&XX}&NFo4&!p)7ovXF)>7+}^S}Xeopy+!&7p}7FMy7H!7gSe)!SSFpoH>>4y7XF&o4y)4F+aX74yyF!H+yyS+p&4H!c)74)+ppX)o!>&4pjSXpo+y}XSp+X7+X&XH!+H!X+>&n!HO!>S)p7HX>oyyXX)7!}Sop&HH}py!X)H&XFS7/>))ppSFF))!7XSo)>HoXSy4}pHX7+y7!H77>!)))&H!oV)!F)&;oX)R}!S4X+}Xyo>p&4>7HX&F&&HF!py>o)FSXX)p}!V)pS+y&d>SX4++oyX4!yy4c7H}pFey7}ypp>H)}Sy!!_y!744L!Xy27y4!47yX#oHyp!Qp)!+X4&>}7+ySXF&o&F4Q&>y)7+}X7oo>>!}7Hy)H!7m!}+X&XX}&*Fo4&!p)7o,XFp>SXXi+&X4o&yy47)}!o)H&XFSC+>))ppyXooH>X4SSj})opyS4ppHX}+y&X}H77yy+F6H!y+S!pF)&5XSYFy)Xo7FX+oyyy4So!}yo7&4}!pS>o))S!F7_p>yFXSS}oo)y!4&7p}y+!yyFo74!X))poH>+X!+Xo8X!!_y&p)&7!X+opSSH+S7}X+Xy!}HpX}>+TpHFXp&!o)yo&XHo!>yHo7F}X+)SpHHp!}y)o&4FXt)>o))S!H&Bp>yF!S+!pD>7!Xpoo})4Xy4Fo7>!XHH&XH>pUSq)X&>FK4M>X)>S*y%.X>>)G7XXnF}>Z477X!)H!&yHvpH!pXl&rF!oo>p)V+}})4)>)HS7p!H+}&yFX+H}E+!SoFppa7})&VHFdb!yo4pSi&}o77)4oSyy!+}7pH!)F}>4XpoHqZ&>4)>7yy} o!y}}SH}S+!yyH+p}!)o&p)FFp)!F)S&}FpzH>+}4S>y}oyp)4&7H}S+yy&>4pyyp)+S!FyRp&S)+SyF}d)>+4++&})+!7pHppS}p)Hp>Fy.X&H)X&>F*44>S4!SFXyJH>p4F7&}Xuq7XH>7X}>)oy&F)p!!FX}S!>&Dp74)7opX}ooy!HX7}&T+X7yH7lH!X)y&pXH)y>y4!Sy}o4FyXH)EpX>4!yy47p4y!o)m)}Sp7!o+>o}X+))SyX&Sp}He}yy4P7o&&o>7XH+)o&XH!&4HSGH>))4o&X))X>4HoS>}X4Hy)H+)4}y)o>7FX+)ypFXpp!p4&!4)&SyF7H}>7HH7>yyH)&)XpSS!oF4&XFSpT>)oppSFpj4!!4)+4X>+oyF}Xop}p4y>!4S+Y!))!&&Fp7y&!)y&7X4)!>HHo+HX!HH7yHyoX}>Ho&)HFp&&o)HS!Fyoo>F4X7)!pU}7&4podX2H}>7!)oS}p++&}>}pp!+)}o}Fp#+>}}}SpX+o}p}4p74X!+)x4HXpFS}+7p+}p)X&2F>o&F4m&>y)7+}Xyo>p&}Xovy}477yH7)O}}+9&pF+4&!p)7o;XF)&SXXpo}y+F4>&H4p)}FFKy:H!Uo!p+?o}F7)H>F)!S+y9QSSy}4+4y}F}y.Ho)&}p+7.d!y+>&X)oo&F4m&>y)7+}Xyo>7p}4o}y)oSf}41p}!X+>o4H7{X!})pSpF}H}>y4>+&X!4F70!&74}&+yy7>}Co>H)XSSX+o)>pFyS+}HoXyS4gp)}p4SyF})77&SF)pHFX+y!}4H&7Xy)!>7)>7)})oH7oH)7F}&Ho&HF!py>o)FSXX)+p>H4!Sy}oo4yXH)po})+!>&Hppyy!++7pH>)!&pFoS)!Xa4yo)>7X>H_X>>)57XX^F}>e477X!)H!&yHZpH!pXLS!XScpyH4>7y}X4)>>HS7p!H+}&yFX+H}7Hy&F>H)y&S)p:)FmoS>FH)oo})oFy&!&p)}}oS&X>}py!>X&wF!F))!S}}&hX}oX>>!47S!o+)&!H7pp!yHX&SXoT)>!)&SpXyo!>yHoS4}X+)7o4>oX}+FopX}!pyyp+&S!F+Ep&S)pS4F!o)p44X7F&}oH7+}y)}X5+}&XH>44!>+S&Fy4p&&pXX8py44H7X!47&XSF}yyH>)&}!oFp)!!4}}e)}SXF>H4>+Fp7)}!o&ypXSp+X7+X&XH!+H!X+>&3!HUF&y)p7HX>oyyoHH7F}yH&ySFop+&!Hp&p!ppF&)+7CS>))H>XFyS}}HC7yyX!77X>+)&)HH+o!)+F&&!os)!}+SSXy}V7S)4X7S}++)y!HS77!)F4&HF!p>SoFXSX>Xp7&y)FoH>y)S>pX)SG}SoF&)}op)}F+&C&F)pF!&X&S)FFi&7&4)SFX&H&y)4}SS}XF}yyH>)&!+H}pp!}+%74+&S4X)lF7T4!7SXp+Hy>HypXy)+!&SHpbH!})ySX>)2!>S)p7HF}oyyXXH7XX&ooyy!&7&}H+S&yH&44!&Fl&4>}6>So4+SHF7H&>FXXoVyAHXa4H&7SS}+y&>!p)4&}F)&>y}p_>}4XS>&4,7yX4}7p}po}f}Hyp>S&FXpFH74&!4)&SyF7H}>0X)7X}S++&)}opXyX+&LoF!)X&pFoS+FHp77&4)OXX&4zyX!47&XSF}>:})pH!S+pt)F}ny&!)S7oX)oXS))}QSXpo+y}XS7Fy)o7pS!)+H!XHy&}XHp7>yF!S7F>o)y)4Hoo})oFy&}op4yX+ySoFFkX&H)FpyXooH>}4yz!X>eS>F!47y>p+4p!}p+;!XX4&&HS4}!HX+7>}Soz!pFyp!!>oop4H++}}S)o&)FX)X!X+>&s!HpX!>+ SXF,H}!J)7SX})4!yy4q7H}pFx&}}ypp>H)>Sy!!Lp&p44o!}o4p7XX!7>XSoFz4Hyop!4F}&p>&W4!HX8&}!y:SyH4XoyX.+)7oHHp!}y+p7y4i+H!X+>&3!Hp7&y)FoH>y)S>pX)SO}SoF&)}op)}F+&=&F)pF!&X&S)FFe&7&4)SFX&H&y)4}SS}XF}yyH>)&!+H}pp!X)}74+&S4X)dF7w)=S!}oop>2!}S,&4o>p&H&)4}SF&S)>4qF&S4o7HXXoSy+H)7p>y+o&HHXpS}z))&p}SpF&)+7zS>))H>XFyS}}HU7yyX!7S!o+)&!H7pp!yHX&SXol)>!)&SpXy)!>+FpS>y!4p7oH)oX}4)oy>FX+H}}Hy&pXHj>>y4o7HF}oySX4SpoX4+Xp}H!pSX;FHpyFy)y!+Hp&>>!)pSo4)WXX4+o>>HXoH}!+SypFHp>!y)Xp)F!6S!p4HS}XyoXSH)7YyXFHH7yXS7py)o5&SHFB)&o)4&H>kp>>)+q&yF>6>p44Spo})+!y7Hppy}p++&}>}pF&)+7US>))H>XFyS}}H:7yyX!S&>p+)&!H7ppyS++p)Ho7y&!)>&SFFH4>yFpoXy}HSyo!}7t}oF&yK}XpH>o))SX!H(F!!)+o<XX)y74}4+!XJF4y&4S)}}HH)&4FSpp>)FoSX!XGoyoXX7X>HoFSy4HpHy>+y7!HXpFS}))p)}pwH74)p&7X4H4>>F7#yFKHP>}4d7p}+F&yFF!p>!pHyS)XH<F>yF!So}o4XyXX)S>>Sopy+H}oS}p++&}}Spp!+)}pSFF))!7XSo)>HoXSy4}pHX7+y7!H+op!))!&&Fp+S!p)4&!X)H4>X4F+}y)4&7HX&77&io}ydHpp+S&)+&HH74&!>FX,S>X4&SSXp+&}4oHpbH)p+S4+>7u!X+p&pX&&4F&Gy!7}}SKXoH&>F4pS&XXoFyF!8p!!S+pSHF>#y>X)y&7X4H4>7)>7)})oH7oH)7F}&Hoy&HHpS!y+&o4F4)q!4X}So>J{v7}4>oOXF4!y44SpH!)+4#&H>+X&lFo&oF&;X!<4)+4X+)77y})+E}}o!d4HXpFS}Hup4}pp>74+&S4X)qF7U4)7+&44>S74>)4X&+4&)HF)0!))+o4F++qS)}4&&X4o)>F}a7F>yo&&H4RpS}H))&p}Spp!4+!S)y4p7&p)&7!F&opSS4p7+}}F}ypH47!!)X4&XFF4}So++ppF>H4!&447)XFHlyF4!7+&m+X7y}<+7&GFopp>.3}!!}4SXXFH}>FX+oF&}j_y}HX7>S4++7p!y)+&H)>&FFpPp>oFSSpX+o}SSHopHX>+y7XH>+o!F++&yFypS&!)y&7X4)!>y)ASHXpHYy!HS7+!)4p&+}!py}7)4o4Fyp7>4}4SyFLYH>p} 7)}+F477XJoy}FF(y}HOpp!+X&&pF74)SyF&BXX+H&>44&7yX7F}y+Hy7&!)))y&>&pp!7XQ&7!>4+7z)}SBXpo+p&4boX}SHo&FH+py!y+Sp!Fyp7>4F!So!po4S!)yS7X4oyy4!&74}+oy&X}Spp!4+!S)y4eo&p44 !Xyq7y4!47yXhoHyp!qp)!+FXpS47+y!FX%&}FZfp>+}&SFXp(5yXHXSV&n+)&+>4+pX7Hy&F>rp}!r)pS+y&g&SX4yoo}Fo+yyHy7Sy!+yy7F4+!}&HpSF!!py!7)4SyX4H&>44+Sy}X4SypH47!!)X4y&}ptF&!)y&7X4H4>y)774&4oy>7H4)4}+4py>!!+pS&))&FF&4&>F)+SyXyOSS!4yS7}44!yy4G7H}pFJy H!jo!p+Vo}FH44!>X&&vy4o47&47+4Xv4Sy}Hop!!X+}RCH7+yS4FH&HFzOy>44X+}XF4+7p}X)4}&oS%}Hyp>S&F4p}!)p77}+OS}XX_>p44X7F&}477+47)}XJ+}&XH>44!X)Fo}FF)4SX}}&6X}oX>>!47>>po5&!HoQo}4)XS)!o%)!}+SSXy}c}S))S7SX++)7oH)7F}&F&&)H}7S!XX}&yF>4&SH+F/)F7H}!j4}7XX>F4y>4S7FS4+y7p!4)+S4FHO)y4E&!S}}SyX>H&>>XFo>&&o4y&Hy77S}+Fp)!p)F&!)7&>X)o)>HXo7)XFo&7oHHp!}4+p7yH7+H!>+F&pFpMo&S)pS+X})S>p44S!})F4ySFo7&!XH)&F}Spp!+)}o}FpL+>}}}SpX4%!y)!47X}FF}p+}4op}>X4y&F4t)!FXxS)X+4XSpF/zyXFHA>}4 7p}+F&yFHp76!X)Xy(>xE)>+}4S+!74Fp4)&74})oFpVH4oy!oHH&>HFpp!p)opSFp_+>}FS&L>)o}SS)p7+X}opy}!G7}}Fop&y!oP)!}+SSXy}p_S)4}kSXpo+y}!}7p}4o!&)>4pX!FFy*oH++p!>}4&&X4o)>F}NS>})o4yyHy74S4+X&F>}))}+Hp&>y4p&>44)SFy6QSSy4poH}>oFypHppoyS+p&+F}+S!+F)S>!Spp>+)}SpX}HG>}4FSp}yHo&)H}7S!XX}&+!)z>&S)pS+X}H}>p4+7}&}opy+H})}}FH)y7!S))SV)X&>Fx4{>X)>SzysoX>>46+w}Xo>yk!DpX}&+o&y>&pp!7X{SF!>)XSpX}oH&4l&y4H)7F&2+)&+>4+p&}F4pFF>4&!4)&SyF7H}>}4o7!}Xo}pA4SoS}7+oy>>}p7&)F&a&!74C>})!+4XXoFp}47o4y!F}>OH}pX}>X4&XFF4}!7F+pp>XH4!&447)XFHNy)H+)4y7N77yH7)v}}+e&pF+4&>H4!Sy}ooFyXH)xpXF+!yyFop4!X))poH>+X!+XodX!!_y&p)&7!X+opSS4p74X!+)r4HS%o!))!&7Fp5y>!)y7oX4oXy)Fp7)}!0&ypXS7Fy)o7pS!)+H!XHy&}XHp7>yF!SyF7o4p44ySZXHoppM4Soy}p)H&>FyZo>H+SSy>&w}744Ho}XoHo7X}}7y!o+4&X!X))}>HX&+>o)X&!)yppF&o!>+4ptSXpo+y}!}7p}4o!&)>4pX!FX}pp!+(F7}+AS}XXW>p44X7F&}o77+Xp+FS4o&&4F)pFSQ)F&!F+4d!SFyA >>4C7+XS+w}}o!/4HXpFS}+7y+}p)H74+&S4X)%F7I4!7SXp+Hy>HypX!H+X&SHI:)!pHy&pXHp}>yF!S+!pk>7!Xpoo})4Xy4Fo7>!XHH&>HFpp!p)opSFp5+>}FS7o}HoXySH+p)}p4yy+FHpX!S+AS)Fp+S!FF)&7>S4)SH4XeyX}+H>7Hyo!}7o>&)F)pH&o))&FF&)o>))}&SXXH}yoHH7X}S++&)HppS}p)H&}Fy X&))XSSHZo)So)>dXX+Ho7XX!7y>po&&!H+ppyS+p&+F}4}!p)4&!X)H4>X4F+}X74+7X!}Sh}}+Xy>>4pS>o))S!F72p>y4!Sy}oo4yXH)=p})+!>&HpoS}p+4y!F)44!S4oS)X!u7>p4y8XF7+oy)H!7&}p+y7!H+op}>F!pp!of)&X)47oF>oXSH4XS>XsHvyX4>7v&O+Xy>HT)B!X+>&c>ciX!&)oSyy&*p>7}v7F>>4X7p}}+FS4o&&4F)pFS#+>S)F4Ny>y)4+4XXoFp}47S+>pHX72}y)&}4+&&yH74}>o4HSXXSo+y)4phy}o+HyXHS7s!)+p&SFoIH!X)Sy_X)dp>yF!S7F>o)y)4Hoo})oFy&}op+}Ho7i&H4+X&OF aXy4U&!S}}SyX>H&>4XFo)ypHFM44&p4!)+F (H>#)!4)ySyF4H4>X4F+}F^4+7&!}S/}}+Xy>>4pS>o))S!F7hp>yFX&7}oo)y!4&7p}y4!y74>p)!)+HpoF)pF!&FoSH>&xyyo4F7Xy4oXyS41p)&)4SyF})77&SF)pHFX+y!}4H&7Xy)!!y)7S4Xyo4p&447+Xy+X7SHpp4}!))o4FS44>)4!S7Xp4&>pHH7}}yHy7H47oy}FFHpy}Spp&)+zSSFFo)So4)SFX&H&y)4F7&&&o)yF4&p)}&X4y&H>p)!pFHSXF&Lo>y}&7H}!oy&oHFpX!)4p&HF!py>o)4SXX)oo>H4!Sy}od4yXH)7p>Sopy+H})}}p++&}>}pp!4+!S)y4OX>F}}S7F+)p7XXdo7&&o4y&Hy77S}+}&oF!8X!}Xr&S!St7>o)>+}X74)7&}&o7&M+}y!>4pX!FX}zo!4+p>+}4&&X4o)>F}Z7)}+F47&X7oy}7F_y}Hbpp!+X&&pF74:S}FynXX>H&>44&7yX7F}&oFHpX!S)+S)Fp+y!+4HSXXS Vy)4pgSXF4)>7}S+)yH+X7yH}UH}7)yp!Fyp !H)poYX!oS>pHH7>}y+X7)H!pS}p)H&}FyfX>H)XSSH;o)>pFSSF>)_77S})oH}X4yy}FH77!yH!&yH7G474)y&OFHZp7/4)7+&4o>S7}F)4X&+4&)HF)L}>))&4FyOy!4}4SXXFH}>7)+.py+F4>&H4p)}FFY&!FSpp>H)>SyXX))>!4SSp}Ho}yyHXpH}X+S>cF)ppyS+Fp)H7)SS)FHSX!yI}yH)77y>!o7>>H)p)}HHo&)HFp&&o)Hw&Fyoo>F4Xo4XXoS>NH)+)>SCpy+4}7p}}F0y}HF7p!yFoS)F}pS>X}}7o}HoXySH+p)}p4y&oFHpX!S+WS)FpKS!p4H&}XyoXSH)7wyXFHH7yXS7py)oQ&SHFi)&o))&FF&4&>))FS&y&o)>})S7X&}oyy>!&+}y}+>s&H4p&!y+7o}FyP>SpXH&F>)oFp})w7}}Xo>^447pX}}+p&pH}4}!y)>o&X+pFS)X>+}FOo}yX4>)4}S)o&)F!p7!p)yS!Fyoo>44X7)!poHy!4ypoX4+X&)}o7>yX++=o!X+!!yHp&&X!u+>pFS7+F7oXyX4!oH}Xo>yY}Hp!!S+pSHF>gy>XF)&>XSgpyH4}7y}X4H>7Xy7F&HHy7SHp+)}()S&FX))o!))F&&X)B&p4)&S>X)op7HHX7&}o+yx&FHN!!y4oSFXXo)&p)F7!Xy+oy4HXp)yoo>7XH+)o&XH!&y}pp&>!)+Sp!SAp>+4}+}Xpo4>!H))4}o4p&)F!p7!p)HS!Fo p&y4o7HFSoy7&4}+4}HH}yo!o+X&}+ySoF4GXSXX)&>!Xg+7oXXO!Xy)p>&H!7+}p4SypH+p}S}+p&+F}4}!p)+S}y}Jp>4)!7)&4o4>SHHp)}4F&y>}Xpy>o)FSXF4pS>H4)S4y&oF7}4y%pX)H&ySFo7>!XF}&4!(doS4+7iS>)44>X4SSg})H)7p}y7p>p+)p!H++p&XX4&4HSkH>))4o&X))XSNXo7+XH;7p&4>oX}+Hj&X>4p&}SX}&p!)AXSSX)bHX!oS>FH)Up}F+!yyHpoS}p++&}}Spp!+)}o}Fpd+>}}}SpX+o}p}4p7+}}F}ypH47!!)X4&XFF4}S)F>;!!&)X>>}&S4X&oy>7!}7y}>F&&+}}+)&yF+pS>bp}!N)pS+y&=p>7}07F>&H)7>}X)}X(+}&XH>44!X)Fo}>))>S}+>JXX>H&>44&7yX7F}yyH>)&}>+Hy&>&6H>!)y7oXFoXy))}SgXpo+p&4>oX}+FopX}!py}A+H&p>Zp7&y)p7HX}oyS!4yS7}44!yy4D7H}pFtyvH!5o!p+Co}F744>oX&Soy4oS7&4S+4}FH&y7!47S&&oyc4H&)&}pX4&>>&o)SH4FS!X+HuyFXy+4&4H}2}HTpoS&+p&7>G)>&>)7ocF}0x>p4++&Xpo7p=HFS>yXF)py>}7I!})X&>y4p7>X)}SpXp(}p}4y7>&&H}>F})pFS}o_&}FXp>74)>pp>})!!!44SpX}oyp&H+oF&)Hy,}H=poS&+p&7>*)>&>FXS>y&N4>&4yS7&}oyy>!&+}yFH)&F>}7Y!})X&>y4Mo&p4):!Xy0/>H4p+ })++^4}DoR!+X4y&F4a)!FXeSFF!e+7A4X1yy)4!7*Xt++&2+}y!>4pX!FX}&7!+)y7}+LS}XX5>p4)G{p}44!y74>p)!)+HpoF)pF!&Foyp!X#7So4FS+Xyoy>SX!7yX7+47!Hy7.}H+p;2H&+y!*FHSXF>fr7:4XS>XZHlyX4&7o}yF&ypH7)b!FH&pp><p}!r)pS+y&#p>7}i7F>>4X7c!&74}&+yy7>}p+!y+&S)X)p&7&)pS7ykoFS>}o+VX}oLypH+)&}FHX&oXo7p>XFHS>FFUp>p4oUSXpo+y}XSSpy)oS&SH4r)&o+)&FH&R)!&}4&&F>l)>pXH7XX&ooyy!&7)yX+oSoH}zX&H)X&>Fz4:>X)&SoXyH&>p47+cyX4&y7!%7}}g+p&+>&*+&XX)i>!S;p>4)!7)&4oSp44F+}XyF)7SHpp+!}X}&pF+(}7})pS+X}H}>7X)7FySH)pLHX7>}?F.y7}ypFSHFypSFp))!w4SSF})4oyF4+7y}yoS7!Hy77!4H!&>}p)}&!+!S4FpU}>y}&7+>FH)7y!}7(}oF&ypH7)/!FH>pX!&4&!4)&SyF7H}>y4>+&y+4}7)HF)}X;+}&XH>44!X)Fo}!7p+&p4++4F&o4y)4F+h}F4ypX}7+o!)+}ySFX4}>o4H&>Xy)X>!Xo7)XFo&p&H)7}XS+X.}Hyp>S&FHyF!)lF7}+ S}XX_>p4)77XX}opyp4})}}y+>%&!47F&))Fo}HT.}>X)>+4F7)p>!H!7H}p4S&+47pX!X+!pHFXp>!sFHSH!yoHyH)S7SXo+)ypXSSp}+o}ypH}) }}+FypFy)o>))}&SXXH}>+X)SS}So!&)}op)}F+&U&F)pF!&X&S)F}pS>X}}SyX>H&7FXF7>&&o4y&Hy77S}+y&>>&8+}FF)Np>HH4!&447)XFHb>>H)74}y+yy4>4pX!FX}&7!+)&7}+VS}XXJ>p44HCp}F4!y74>p)!)+HpoF)pF!&Fo&!!X#ySo))SFF&o)>&!4S&X>o)yp}HpX}&+o&y>&p!&X)y#oX)zF>&}&7)X}CSyX!}7y}>HppF4F+)!FX}y^F}1X!>}4&7XXn}>p4pS}&}oyy>!&p+yFH78&H4p&!y+7o}XH))>!FS7+F7oXyX4!oH}Xo>yP}H7!yy+qpHHXp>}g)X&jy}pV!7)X7)>!oy>*4H7p&_o!7yHI+H!X+>&g>lhX!>)koPXXU>>W}Q7F>yo7pH}y)}}p++&}>}pF&)+7ES>))H>XFyS}}Hg7yyX!SyX7o4yyH4)&}4++yyFX+S!p)4&!X)H4>>Fpo}>!z!y44p7}}yF&&+}F))&yX}&qFo4&!p)7ojXF)>SXX&+&X4o&yy47)}}y+>n&!++}&))Fo}H*e}>X)>+4XXoFp}X7S+>p++j44&p4!)+FkGFF+ySXF7EoX)w}!S4X+}}o+H>>HyoX}!Ho&)HFp&S&))&}HStX7})yS>y&4H!FX)7F&}jTy}HX7>S4o7&XH}pp!p+}o}Fyw>7&X4&F>)oFp})n7}}Xo>G447op}!)!&HFp+S>++7SXXXU!SH4XS>Xh4HyHXypH!HoS&SHok)!pHSypF+p}!p)}oQF}kF!p4yoo})o}>SHX)}}+H)ySFSp!>)FoS)FF;&7&4)SFX&H&y)4}SS}XF}yyH>)&&FHF&>>&p4!&)y&7y}/y>>}&7+FF4)7p}H)4X&+4&)HF)T}>))&4Fyey!4}4SXXFH}>7X+o&&}E3y}HX7>S4+H7pFF+!!7+>S)X)rHSo4)SFX&4o>!XX7yyoo)yF4&p)}&X4y&H>p)!pFHSXF&mo>y}&S!>Xoy7oH)7F}&F&&)H}7S!XX}&yF>)pSF+FQ)XFH}!*4}7XX>F4>7HX7}}p+py}>}py!>X&S+!F)77&)4S&Xyb7p}HHo)}!4S&+47pX!X+!pHFXp>!QFH&!!y#tSH)XS>FAoX>C!}S;X7oX&)}!py}1+H&p>0p!&y)6bHXXJ>>x}17XX>oBpwHX7>}/F,&F}yp7SHFyo}Fp +>}}}SF>)i77S})oH}X4yy}FH77!yH!&yH7l474)y&2FH3p7x4)7+&4o>Sf}H)4X&+4&)HF)M!FHyg4!HpH!b)yS4XXH}>7X+opyXF4y&4S)}}y+>8&!F+F&))Fo}H8^}>X)>+4XXoFp}})o4>p++t44&p4!)+FKNF)N+74)>p7!y447z)}SaXpo+p&4F7pXE+X&X4B)D!))+o4F>+YSF}4&&X4o)>F}jS)>y++7HH>7F}p+p&o}Spp!+)}pSF4))>}FS&pX+e}>p4}+2X}oF>pHy+o!)+}ySFX4}}yF)S>!SKp>+4}+}Xpo4>!H))4}o4p&)}!py}7)4o4FypK!H)po^X)o+p44>^0>y4Dp94}7r}p++l&Hpp7Sk)Fpy!X)S7&)4S&Xy(7p})po)XS+Sy4F)+o!)+}ySFX4}!+F)&SXSpyy)Xo7)XFo&p&H)7}XS+Xz}Hyp>S&FXp}!)6F7}+KS}XXm>p4)77XX}opyp4})}}y+>c&!)7F&))Fo}Hf*}>X)>+4X>)p7y}+oH}>oFypHppoyS+p&+F}+S>oX}&>>&pp7XXoS)XF.&y)4&)4X&o>y)Hp+H!X+&&oFy4&>HX&&7>l{)7yXH7XX>o%p{HX7>}GFZ&XH>pcSA)FpyF74HSy}}SpX+o}p}4Fo)X7HSp)}HpXyy+}SHH79y&!)y&fFHEp7:4)7+yX4pS5Xy77& o}yQHpp+S&)+&HH74&!!FXM7>F4&S7X}+&}4oHpTH)p+S4+>7,!444}&)4S)FF4g>yFySp}Ho>yyHopH}y+y7XHSMo!X)X }F4)<>oX4Sy>S4)744X7SXO+)p)}p7Fy)o7pS!)+H!XHy&}XHp7>yF!S7F>o)y)4Hoo})oFy&}o7p}7F}&!FSpp>H)>SyXX))&p4)7!F&op7p),7}}Xo>_4H+op}>F!pp!oc)!}+SSXy}DFS)4X7SXN+)7oH)7F}&Ho&FH+py!y+Sp!Fyp7>4F!SyF#8H>p}n7y>yop&HH>py!o)H&yFy+X!S4oSXXX4}>4X?7oy4oy7S})+4}X+SyPF)))&p+Fp)H7)SS)FHSX!y1}yH)77y>!oy>7H4)4}yo7&4>4py}7)4o4Fyp7>4}4SyF7o4p44yShXHoppkH)p+S4HppF!)+}!>X&&4F&Vy!7}}SyX>H&y+XFo)yyH+p+!;7}}9+p&+>&pF!p+bSXXXpz7I4)7+&4o>!7Xy+)y>HF%}4Cp}!X+>o4F4pS>H4)S4y&o+7}4}oo}+oH>7!&7!yXHhpr!444!&+So}Fy(>7&)!#}>7H&>44&7yX7F}yyH>)&&}HXp)HS4}}a)}SXF>H4>SHo7)}!o7ypHyoX}S)o&)F!p&!p)yS!Fyoo!44X7)>o9>SX4++oyX4!yyXp7&!!++&p}Spp!4+!S)y4E>&p4)7!X7opSS4&o)}!+SypFHp}!y)XpHF!8S!7XHIyXy)X>}Xo7H}!o>ypXy7&!H+X&S4*0)!pHS&F!)p7SSX)DHXX)y>}HHS7}y4!yy47p4S4+yy,HHppS2))S+y4)S&TFySHy .}>E4p7+&&opy7!O+>X>HX&o>&p4!&)y&7y}C7>o)>+}X74)7y}++}y>H&Y}H{poS&+p&7>.)}&>)Ho%F}_N>p4++&}H+!yyFopF!X))7pHF?!!y4oS4XXo)So)>vXX+Ho7XX!7y>po&&!H+ppyS)+y7FXIX!!FHSXF>.iSH4!7SXp+Hy>HypX!H+X&SHuk)!pHy&pXHp}>yF!S7F>o)y)4Hoo})oFy&}op)}}oS&X>}do>H)XSSX+o)>p4SSp}Ho}yyHXo)}X+S>?F)+o!)+F&&>&<)!}+SSXy}E7S)4X7S}++)y!HS77!)F4&HF!p>SoFXSX>Xp7&y)FoH>y)S>pX)Ss}SoF&)}op)}F+&G&F)pF!&X&S)FFn&7&4FS+Xyoy>SX!7yX7+47!H47S!H))&4>&0+S}+_{PFF4}!XXcS!y}oH7oH+7HX7F&yF}X+d&uF)o4F&pS7})yS>y&iFSFX7+&X4o&yy47)}}y+> &!H+}}7X&&4F&ry!7}}SyX>H&>FXFoS&&o4y&Hy77S}++&yH&.)>)+&o&Fp?77_)>&>>X4yp&447&}yo7f}H7+)!X)SS+X)^o&y+!SS}oo+yX}}74ys+op4HF+S&)F4&y!p)y})Fo&!!X)xSo4+SHF7H&y)XX7>y6+)&!4&pp!4+HrIHS+y!HXHVy!SooyH4X7y>XoH&o4!pXyH+Xy>H<)r}7Hy&F>H)y&S)pz)FCoS>FH)oo}Fo+yyHy7Sy!+yy7F4+!!+HpS)X!?&>pFS&pX+z}>p4}+tX}oF>pHy+o!)+}ySFX4}!FF)SXXS91y)Xo7)XFo&p&H)7}XS+XA}H7+)!X)SS+X)doS&+y3)FX4OyoHH7F}yH&ySFop+&!Hp&p!p)y!pHpyp>!/>SpXX+4Xo)p7}X!7>XSoFJ4Hyop!+F}&p>&s4!HXO&S!yTH7HXyOS}o+HyXHyoX}H)oy!FX+H!X+>&U!Hp7&y)FoH>y)S>pX)S^}SoF&)}op)}F+&l&F)p}}S)Xo}FyJ>7&)FeF>aH&>44&7yX7F}yyH>+p&FH}y7>&p4!&)y&7y}{7>o)>+}XH4)7y}++}y>H}m}H poS&+p&7>np>&&X+o=F}s_>p4++&}H+!yyFopF!X))7pFH.!!y4oS4XXo)yo4)7!F&opyyX!7+>po>p!}p+o!)HX&4Xop>>XFHS>FFRp>p4o(SXpo+y}XS77y)+X&SF+Y)&o+}pXFSoo>)4!S&XpoyS!4Spo}+H!7pHpoy}4HH&!FSp7>)Hp&}X!iyyo)47X})4o>>XX7+&oHX7!Hyop}&)!&+Fp+S>++7SXXX^!SH4XS>X24HyX4&7o}yF&&HF!py>o)FSXX)+p>H4!Sy}oo4yXH)po})+!>&Hppyy!++7pH>)!&pFoS)!Xw4yo)>7X>HoX>>46+t}Xo&yoHy)&!H)!&yXosF>X4)ppFHo!>yHo74}X+)7o4>oX}+FopX}!pyyp+&S!F+_p&S)pS+X}H}>p4+7}&}opy+H})}Xp++y}Hpp}S*+}&FHplySo4)S}FSoXp}4}7o}!+Xy}!2pF&&+4Z4H>)&}yX4&S>&E!SH4FS!X+HM>>Xy+4&4HX_}HTpoS&+p&7>Jp>&>X+oMF}Ed>p4++&Xpo7p1}!o&}+F0y}H^pp!+X&&pF74a!>F>ooyz_}>h4p7+&&oFyp4VpX!Xo{cIF)N+74+7y7!y)p7d)}SnXpo+p&H+oX}y)o&FFXpHypoSSoXHYF>yX&S}y4oH7}4>+oyXH}yp!)+pXXHHyS}y)4&H)F&!F+4U>XFyS7y4oXyS)xp)}}o!E4Hoop}!F!pp!oxH>!)ySp!yE!yH)S7y>!oy>7H4)4}+4py>!!+p&o))pXF4oo!>4XxHX>NF>p4p7o>Sopy+H}oS}FH)&XFSp<>)Fo&)FFp&>))&+4F&d>>)4poH}Xo&yoHy)&}>HX&yXol4>XFHSXF>:k7I4XS&Xooyp&H+oX}y)o&FFXpH&aoppXHy44>H4!S>Xp4CyoHH7FySH)&)!)+p!)H)y)!Sp7S)Fyo}FH))S&FSS7Xo0>p}4po)}FH&&)!Qp}}!X4&o}pp!S!FpuoXHo!>y4p%yX!+H>SHyo!}yo7&4}!p+yp+>Y!!p)o>)FXS4}ob>yXXH7XX>oWpZHX7&}o+yx&Hpp7S/+>p>>44W!})nSpX+H&>p47+)y>4&y+!R7}}s+p&+>&R+!H+7o&F!)XSpXFo&>74&p&H47H&N+)&+>477yhFFo4H&:4>))FoiX!oS>pHH7>}y+X7)H!pS}p)H&}FyRX>H)XSSH2o)>pFSSF>)h77S})oH}X4yy}FH77!yH!&7H>g)>))H9oX)PF>&Xo7+>Xoy&oHFpXyHo&7yFo8H!X)S&VX)Pp&S4o7HXF4S7)H)cpX}4!ySFop+!XH)y&FSpp>H+}SyXX)H!7FySFyH4ySS4po)X9+SyFF)+o!F++&yFypS&!)y&7X4)!>y)iSHXpH<y!HS7p!H+>&yFX+)!!)S&pXH0}>y4X7HXXoS!*H)7p>SoF7)47+S&)HH&X}yp}>H+7Sy!!<y!744+4Xyx<>H4p+?}!+SypFHp>!y)Xp)H!1S!p4HS}XyoXSH)75yXFHH7yXS7py)o_&SHF )&o))&FF&4&>))FS&y&o)>F4&+&})oFy&!&p)}}oS&X>}p}!o)!SXF}4A!SFSS7Xo{>p}47o)y&H&77!3p}}!X4&XFF4}!7F4*!y}pb>}4XS>&4oXyF!}+)y++Fm}4Op}!X+>o4FSoo>)4!S7XpoySX4Spo})+!y&Hppy!!+ySoH4:X>)Fo&>!X0+7oXX2!Xy)p>&H!7+}p4SypH47!!)X4&XFF4}!7F45>y}pd>}4XS>&4ooSpH)p!}7+p&HF!po!pHySoXHpS>yX&S}y4oH7}4o+oyXH}yyFop4!XFXm)H>+X!+XoNX!!ay&p)&7!X+opSS4p74X!+)K4HSVo!))!&7Fp%y>!)y7oX4oXy)Fp7H}!oy&o44pX!)Hoy>}Xp+SoFXp!Fy+p!&4!S+Xp)S>p4+7}&}opy+H})}}p+4y!F)44!X)Fo}F7)+&pX)+4F&o4y)4F+/})++64H>o7yyF+OrH}p#!p)+o&FFWp!U4X7XFOH:y)H+)4y>O77yH7),}}+j&pF+4&>H4!Sy}ooFyXH){pXF+!yyFop4!X))poH>+X!+XozX!!Ry&p)&7!X+opSSH+S7}X+Xy!}HpX}>+xpHF!xS!p4HS>XyoXyH4X7SXk+)ypXypo!H+X&S4kr)!pHSypF+p}!p)}oAF}wF!p4yoo})o}>SHX)}!o)H&XFSJ+>))ppyF+oH>X4SSc})opSS4Fo)X7HSp)}HpXyy+}SHH76y&!)y&7X4H4>y)wSHXpHKy)H+)4}>P77y!))e}}+P&pF+4&!F)p&_XXoX!i}:7)}+F4y>)7oyyuF;y}Hfpp!+X&SHX!(yyo4F7X}))p>FH!7y!o+4&XF)+o}>HX&+>o)X&!)yppF&o!>+4pMS}+m7yXHX7!yH+Xy>HT+H!!)S&pXHd>>y4X7HXXoS>QH)7p>y+o&HHXpSX_))&p}SpF&)+7KS>))H>XFyS}}HV7yyX!SyX7o4yyH4)&}4++yyFX+S!p)4&!X)H4>SHo7)}!o7ypHyoXX7)o&)F!p&!p)yp!F++p!>X!9p>oo)SX44poX>+X7HHX7>}CFO&XH>p.S5)X&>FR49>X)>SQy3oX>>4Z+u}Xo>yV!RpX}&+o&y>&pp!7X1fy>o44S44F+}F*o}yX4>)4}X+Fv}H7+4&yFo +>ip}!x)pS+y&;&>H4S7yX&F4y+Xpp)!!+7&pH&pH!S)y&&y437S<4)3XFyH4yHH!7+}pHAy&!}p!&&+FJH!y)&!p4HS}Xy4y7X})7X>Xoypo4>+XypF&y&HHpS!y+&o4Fy+pS}F!S>FS.Fp44+BpX>H}yp!&p4}HF<&X}yppSHFypSXooH!74yVXX7+oy)HXoH}Xo>y%}HpX}&+o&y>&pp!7XY#y>o4+S)Fp7+&4g&y4H)7F&voOy!Fopp}AX}&F!)TX>S4+7)FDE!yo4pSd&}++p4HXoyXpF}&!FSpF>)X4rp>yfp&p4)o!X+4p7X!474XS+H&)H4)&!)HXp0!og+!H+7o&F>)X>+X%7X&4o&>S!}7py)+XpS!)+H!!)S&FX)+p>F4!SyXp)S>p4+7}>Sopy44!p)S4+4ySFH%)!4X&S+>}WoSI)qs!XS+oy)H!77}p+y7X47jo!))!&&FpTy&!)+ppF>4!SpXo7)>Xo4&o4>pXyH+!&SHpGH!>)ySX!)A!>S)p7HX}oyyXHH7X}StG&)HpoS}FH)y7!S))&H)XpyF}oH!74y#!XS+oy)H!77}p+y7X4HSpyS+Fp)H7)SS)FHSX!ys}yH)77y>!oSp4H)p!}7+pp&HpwH!})y?y!Hp7&y)FoH>y)S>pX)St}SoF&)}opH&&+ySoFFNXS4)XSSFko)7)FSSF>)e77S})oH}X4yy}FH77!yH!&S>4g)>!)7Sp>&npyH4}7yyy4H>7Xy7F&HHy7SHp+)}8)S&FX))o>+FXSy}ooFyXXHSS>y+o&HHFpy}&H)&!FSp7SHF>Sy!!QX>FXGS&>+4&7p)c7}}Xo>N4HXpF&Y+Hp+F!{S!7XHuyXy4y!&447)XFHC>7Xy7p!H+}&y}!py}3+H&p>Dk!>S)7oH>!oySX4ooo})oFy&!&p)}}oS&XHpp7S}+Sp&XooH>FXSo)})H)>44&7yX7F}yF})pX!S+_S)!oe)!}+SSXy}ooyH4FoSyo+)Sp4!o!}yo7&4>4py}7)4o4Fyp7>4}4SyFcLH>p}K7)}+F47p}Fopy}H)&F>}7W!})X&>y4dX>F}}o)>!4&S>47+{X}ojypH+)&}&+H&SFyp&74)yppX)o!>74p7H}!oyypXypo!H+X&y!&)X!X+&&oFy4&!&)HSSXy8&p444oMX4H}yo}A7F&}+>poH&pH!S)y&&y4a+&pX}x!F!o4>p4}7y&&o>7F!)+yS}+*&o>&pp!7Xf&7!&)XS7}&S4X&oy>7!}7y}>F&y>}F+)&yX}yPF}<X!>}4SXXFH}7+X)wpX>F4>&H4p)}FFByS}yp=&H)X&&FoVy7&)4zXX74oy)4F7&&&+)y}4SpXS}+}p)FX+S!p)+S}y}(p>4)!7)&4oXyF!}ory+4py>>47&!4))&F>v%)>+}4xp!d.>p4)&74})oFpJHF7!}+FY&X}y+b&yF3pt>+4M>})!+4XXoFp}4FS+>pH4t44&p4!)+FPhH>+y!}4H&SXy)!>7)>7)})oH7oH)7F}&Ho&+}Xp4>o+4SX!H.>!F)pSpXo)S>p4+7}>Sopy44!p)S4+>7pH&h!}&)ppSFp2+>}}}SpX4s!y)!47X}FF}yF}4+FS}oz&}FXp>74)So4X+4}!7})^SXpo4>!H))4}+4ppy!++H!X+>&f>0=X!>)lodXXh>>I}aS7>yoFpH}y)}}p++&}>}pp!+)}o}Fp%4!!4)+4X4YSyHH)74&&o&7XHyTo!F)XpHHsp!>o)p&iy}piS)4X7SF^+)7o4&7H}S+yy&>4p7yp+&9!!74&!&)HSSXy &p444,pFS+o&H4Gpy&&+SSoH&)!&p)pP&XooH>>4yoyF)4oy+4HS7&&+)7X}p+z}4X4&&HS4}>o4HS>>SKpy)FpS&}!oyypXS7p}++}7SH}po!!)X&}>rpK&y)}7H>yoy>y4>+&X&F4>&H4p)}FFV&!FSV+>)Hp&&y4d+&p4)7!X&opSS4p74X!+) 4H+op}>F!pp!o*)!F)&ZoX)YF>&}&7)XFo&p&H)7F}&F&&)H}7S!XX}&yF>4&SXFpx>!Oo+p4)&74})oFpUH)p+S4HppF!}+}&))Fo}HrI}>X)>+4XXoFp}})o>yy4>y7!P7}}3+p&+>&p&!H)SSyF&H4>7Fp7)}!o7yp4&7H}S+yy&>4p&ypoSSoXH3>>yX&S}y4oH7}47+oyXH}yyFop4!XFXc)4y+!!4+SSHX)g47&)>BX>*4oy+4HS7&&+)7XH7+I!))!y&Fp=4!HXI&7!y:F7HXy?S}o+HyXHyoX}&)oy>FX+H!X+>&r>.dX!&)oSyy&bp>7}M7FF>4X7p}Xo0S4o&&4F)pFSt+>S)F4qy>y)4+4XXoFp}})o>yyb>7XH>)&}4+&&yH74}!})oS!XXw}7T)>o&FpH4yo}&7o&4+yp&H7)4}SF&&4!H F!!)+ogXF)y74}4oX&}oZyo!&7p}7FDp>}>+X!>X&&4F&gy!7}}SyX>H&7XX}o)}FF}>rH}pX}>X4&XFF)yS)++ppX+H4!&447)XFH,yF4!7+&?o>7y!)+y&3F+Ao>i3}!!}4SXXFH}>7)+,pyXF4>&H4p)}FFPyS}ypp>H)>Sy!!pz&p4H7!Xy+oy4HXp)yo+H&!Ho)o&X)Xp)H&+S>o4H&SXy)X!=Ho7)}!W&ypHyo!}+4py>!!+p&o))pXF4oo!>4X5HX>sF>p4p7o>Sopy+H}oS}HH)&XFS5+>))!SSFHo)&p4H7!Xoop7N4&+}}!H&yH!H+y&&+pSHF}.ySyXX&7!yeF7HXy3SXp4)>OHS7F!)Ho&FH+py!y+Sp!Fyp7>4F!SyFg_H>p}xSS>yop&HH>py!o)HySFy+X!S4o&!XX4}>4Xc7oy4nS7S})+4}X+Sy_F)))&p+Fp)H7)SS)FHSX!yb}yH)77y>!oy>7H4)4}yo6yHHp)3!FHy_4!HpH!C)yS4XXH}>7X+opyXF4y&4S)}}y+>G&!F+}!>X&&4F&my!7}}SyX>H&7)XF7>&&o4y&Hy77S}+y&>>&V+}FF)L&y}p5>}4XS>&4R7yX4}7p}po}d}Hyp>S&FHp}F>4&!4)&SyF7H}y)X)S>}SOp&)}opF}++y&yHS+!!y+7S4!!pS&p)F7!XHopSS)p7+X}opy}!97}}Fop&y!o )!}+SSXy}o)S))>7SFp+)7oH)7F}&F&&)H}7S!XX}&yF>4&>++FN)>}H}!54}7XX>F4y>4S7FS4+y7p!F+yS4FF#4y4U&!S}}SyX>H&y+XFoy&&o4y&Hy77S}+7p)!p)F&!)7&>X)o)>HXo7)XFo&7oHH+&}pH9yH!y+H!>+F&pFp%o&S)pS+X})S>p44S!})F4yS!4pX&}oSa)}Spp!+)}o}Fpb+>}}}SpX4P!y)!47X}FF}y7}4+yS}o=&}FXp>74+7ppX))!>y)lSHXpHqy)H+)4y747&+>47&!4))&F>cpX&y4+YHXX%&>o4y+&XS4Xy&}op)}F+&O&F)pF!&X&S)FFx&7&4+fXX>Ho7X!47yX7+4j4H+op}>F!pp!ow)&X)47oF>oXSH4XS>X0HtyX4&7o}yF&ypH7)*&!H&&7>Bp}!b)pS+y&_p>7}Eo>>&o7pj4}7P}p++n&F+pH}7X&&4!X)7SyX&xp>yH&y44H+2})++54}&o(!+X4y&F4i)!FX_S)X+H4>+)SS4&4oS&oH)p!}7+p&y4(p}!X+>o4F++p!>X!hp>oo)>})S7X&}oF7)HXpS}K))poF)pF!&FoSFF+ny>y)S0!XyR7y4X!7o>p+)&!H7pp!H)!&oFp+y>o4H&SXy4&>}}47Hy}oopo}X+}}y)o&4FX)XS)+>pXF+4oSXF!Sy!pi&y!4+7p>S++>7HXpX}!HH&XH>pI&H)X&&FoPy7&)pS7yj<7>!)#+1}!+SypFHp>!y)Xy&F4C)!FXu&7!y5F7HXymSXpo4>!H))4}+4p&)F!p&!pHS&pF+9}&S)pS+X}H}>p44S!})F4y>Xp+}y!o!&4Hpp}!yX&S+!F4)Sy}}S%XoH&>p47+_}F4&7X}7)&}4+&&yH74}!y)>o&>})FS)4F+}Fao}yX4>)4X74p&)}!py}R+H&p>?G)>+}4S>!74y7)}OS}XMopy+!&p+}Ho7;&F)+X&7FFl&!&)77&44SHy/o)y+!4op>r++f44&p4!)+FrDFo+y!;FHS>FFdp>p4o_SXpo+y}XSSpy)+>7SF+77!X)X&!!H*X!>)jDHXX%&>o4y+&X)4Xy7}op)}F+&G&F)pF!&X&S)F}pS>X}}SyX>H&7)X}o)}FF}>fH}pX}>X4&XFF4}S+F4ppX+H4!&447)XFHWyF4!7+&E+X7y}=+}&QF+py>Ic}!!}4SXXFH}S7)+xp}+F4>&H4p)}FF<&!!<j)S4+!:p!!_7!>4)7)XH4oy)4F7&yo++7X!)+>yS)+y7FXxX!!FHSXF>3GSH4XS&Xooyp&H+oX&)H>7SHpp+!}X}&pF4p!>)}4SXXFH}74)+3p}+F4>&H4p)}FFA&FH!p+S1)Xpy>))SSgXoo)yco}>!!47X}FF}7c4+op!+X4y&F4f)!FX6&!!yg+yH4o7y>!o7>>H)p)}HHo&)HFp&&o)XpXH7oo!)4X.HX>BF>p4p7o>Sopy+H}oS}p+4y!F)44}SHp&FX!.H>pFSSpX+o}p}4p7+}}F}ypH+p}S}+7p)FF)SS)XsSXF>/?7d)7tyXFHH7yXS7py)oO&SHF*)&o))&FF&4&>))FS&y&o)>F4&+&}Fo+yyHy7Sy!+yy7F4+!!>+S&Fy41>&pX}o}>&H&y44H+<})++t4}7o0yy+7xJH}pf!p)+o&Fp{77#X!s&>Xo>p&447&}yo7f}Hyp>S&FXyF!)gF7}+<S}XXA>p4)77XX}opyp4})}}y+>V&!4+F!>X&&4F&iy!7}}7o}HoXySH+p)}p4y&oFHpX!S+lS)FpcS!p4H&}XyoXSH)7nyXFHH7yXS7py)oj&SHF0)&o)F&+Fyvy!SF!SyF7o4S!4X7F&}+o&HHXpS!+))&pH4p&!y+7o}FF))!7XSo)>HoX>&4o7y&&o>7XHyio!4)XpHFXp>!<FH&XF>pN>X)K+}F5I7>XH)o!}yowyHHp)J!))+o4FSoo>)4!S7Xpoy!64}7XX>F4y+Xp7>&!HppoF)p}}S)Xo}FF))>X4SSb})4oy)4F7&yo+)yFH&)&!)+}ySFX4}>o4HSXXSo+y)4p yX++HyXHS7z!)+p7SHF+)}7FSw)!HQX&y)}7HF7oyS!4yS7}4F4yy427H}pFd&)F+44!>o7py>X)p7&)4S&Xyb7p}4+7yX&+)&)4&)&}p+7;R!y7>&X)>o&F4W&>y)7+}}o+HyXHSp+!)+p7yH+:H!X)S&?X) p&S)F1)F74S7)XH7X>yo}&H47pyy!+7y>F)3)!HFoS)FFk&So4H7!Xy+oyFHXp)!o+)&!H&pp!yHX&SXoq)>!+&SpXy)!>+FpS>y!4p7oH)oX}4)oy>FX+H}X+>yKFXpb7}+{&7FXo)S!4yS<XHoppIH!pS}p)H&>FyEX&)+>SSFpoH>}4y7X>H%7Sy4F+Hyy4Syp})70!S+FS)!oQ)!F)&o&X)bF>&}&7)XFo&p&4)7FX&+)y&>47&}>+)&p!HdX!&)oSyy&6&>H4S7yX&F4>7}e7H&}+HpgH))}!pF(S+>}<oSd)}.!X>?S>F!47>>pH}p}}y)&!4+HiZF)#+74F7p7!y%77v)}S<Xpo+p&4p77&?Hy7&}Xp>S&+4&&Fyp77})yS>>p4X!FX)7F&}3Ky}HX7>S4+>ySHF44}7HplX!p44SFXH+4X&{Sp}4y7>&&++>F})+yS}oZ&}FXp>74)oppX)o!>74pcSX44)y!HS7p!H+}&yFX+H!!)S&H>H)y>yFX&,>ooHy!4o7p>yo4&HHXpSX,))&p}SpF&)+7NS>))H>XFyS}}HB7yyX!77X>+)&)HH+o!)+F&&!op!&X)y7oXFoX>SHoS!}X4)y!HS7H!)F4ye!&pS&=+!Y!!p)U>)4!S&Xp4p7y4+qpX>H!7p}op)yX+4SoH>0X&H)>&FFpGp>oFSSpX+o}SS4p74X!+) 4Hoop!))!&7FpaH>!)oSp!yooyH)S7yy&o}p4HH+}}oFopX!}py>o)4SX>X4)!>FXS+yo4XS!4y/pX&+!y+HpoS}p++&}>}pp!4+!S)y4i>&pX}G!F!o4>p4}7y&&++7F!)+yS}+3&o>&pp!7XE3>!&k77()}SIXpo+p&4p77&lHX7>H7)^}}+1&pF+4&!p)7o:XFp>SXXw+&X4o&yy47)}}++yy&F)T)}&X&&pF74_S!F&S7yL9}>_4p7+&&+X7X471o}H)XpHF>pF!p)pSo!Sxp>+4}wSFp4)>>HS7!!)Hoy)HF7&!)+&o4H&p>!))pnHXXI&>o4y+&}X4X>7Fo7H!XHH&XH>pZS6)X&&Fo^y7&)pS7yvoF!>XXo&&&o4y&Hy77S}+7&oH>4}!pF)D>!p4}S>X}+}Xioop&4p77&2+F7>}p)#}}+W&pF+4&>+FXo)>>)Sy+)77X}Xo!7HHX7>}OHH&!!Ve)S4+X0p!!w7!>4)7)XH4oy)4F7&yo+)y}4SpXS})or}Fy)&}pXXAoX)(F>&}&7)XFo&p&H)7}XS+X/}Hyp>S&)+p}!p4&!4)&SyF7H}>+X)7X>Sopy44!p)S4+X&F>})+&+)Fo}HBe}>X)>+4FS)pyFX!7yXBoHyp!_poyy+1pHFXp>!aXDSXF>,17k4XS>XJHGyFXy77&HHyi}Hpp+!}X}&F!)p7SSX)bHXX)y>}HHS7}y4!yy47p4S4+yyAHHppS,))S+y4)S&:4++4F&o4y)4F+C})++A4}7oP!+X4y&F4G)!FXYSFF!d+7s)}Qyy+4p7j})op& +}y!>4pX!FX}pT!4NF7}+nS}XXm>p44X7F&}oFyo4})}!o)H&XFS<+>))p&4F&uy!7}}SF>)G77S})oH}Xo&yoHy)&}>HX&yXo;4>XFHSXF>V^SH4>SFXpopyoXS7p}++}7SHH+)!X)SS+X)A!>S)H7)!poHy!4o7pyNo&p}H!+&}HFHpy!&pp>H)}Sy>y4X!7FySFyH4ySS4po)Xw+SyFF)+o!F++&yFypS&!)y&7X4)!>y)mSHXpHGy)H+)4}+oSy4>4pS>o))S!F7:p>y+nS}XXg>p44+hpX>H!7p}op)}}oS&X>}pF&))XSSFro)So4)SFX&4oy)4F7&&&+)y}4SpXS}+7p)!&+S}S)}S)F&3p7i4F2>yX4pp&H47H&Q+)&+>4p>yTHy8+>ip}!d)pS+y&bp>7}/o&>>4Xy>!&74}&+yy7>}p+&))XpSFpg4!!4)+4XXoFp}47o+ypHXT44&p4!)+F1/FFp!!+X<SX!y4+S>XYPdy+Hny}4!)4}X+F }!)+4!FX}ykF}VX!>}4SH!po4S!47S>})+)yH}op)}F+&poHH+X!7FoSFF+_y>y)Sg!Xyk7y4X!7yXIoHyp!l7!yy)+pHFXp>!,XASXF>92754XS&Xooyp&4p77&gHX7&}Xp>S&+4&&Fyp77})yS>y&4FS}X)7F&}i?y}HX7>S4+>ySHF44!yHpE4!&44SFFp+4X&gSp}4y7>&&H+>F})pFS}o<&}FXp>74)So4XX4}!y})zS}+B7yXHX7!yH+Xy>H{+H!FHylX!7)o>F)+SyXyeSS!4yS7}44!yy4m7H}pFf&F}y)X&7FoS)FFG&7&4)S}FSoXp}4y7>&&H}>F})pFS}o<&}FXp>74)>&SFFH4>yFpoXyoH47H}X)4}&oSl}Hyp>S&F4yF!)#F7}+3S}XXD>p4)y pXF+!yHHpoS!+o7&XFXp!&H)X&>Fg)H>yFyS+}H2!yyX!77X>+)&)HH+o!)+F&&!oW)!}+SSXy}ppS))>7SX!+)7oH)7F}&F&&)HFp&S&))&FF&4&>+FXS>yo4Xp44yS7}4F4y+Xp7>&!HppoF)+X!44o&>XX)H>X)>Suy<oX>>4%+{}Xo>yg!epX}>+IucFXp>!_X SXF&do>y}&SpX7HjyFX&+)yyH4a}4Gp}!X+>o4F>pS!F}4S>!p4}7}X&+&}4oHpKH)p+S4H77l}yp7SL+}&YFp_+7&)pS7y6oFS&XXo7&&o4y&Hy77S})oSHFXhS>+4)SpXSOpyH4}7y}X4)yXHSSG!)Hoy>}Xp+SoFXp!Fy+p!&4!S+Xp)S>p44S!})F4yXHF)}&oo+7pF+44}&)4S)FF4d>!4SSp}Ho>yyHXpH}X+SysF)ppyy+pSHH}dy&!)y&{FH0p794!7SXp+Hy>HypX!H+X&SH_2)!pHy&pXHp}>yF!S+!p%>7!Xpoo})4Xy4Fo7>!XHH&XH>p1S=)X&>FZ4v>X)&SoXyH&>p47+)y>G>7XH>)&}4+&&yH74}!+)y&&X)o)!&}&SpX7Hi7&X&77&ro}yCHpp+S&)HS!Fyoo>F4X7)}oo)y!4&7p}y4XyyFo74!XHHy7}ypFSHFypSFp))!=4SSF})4oyF4+7y}yoS7!Hy77!4H!&SXov)>!)7SpXyo!>yHo74}X+)SpH)p!X&+p7SHF+)}7FSm)!H X&y)}7HF7oyS!)yS7X4oyy4!&74}+oy&X}Spp!4+!S)y4vSyo4)7!X7opyyH!7y!o+4&XF)op!))!y&Fp+S!FF)&7>S4)SH4XPyX}+H>7Hyo!}yo7&4>4py}7)4o4Fyp7>4}4SyFLdH>p}/7)}+F4y>X7+XypH}5&H4p&!y+7o}F}Eo>!4XS}yToXSy4ppH}>+y7!Hpop!)F!So!p)X&!)>&SFFH4>+Fp7)y}opp&H47H&,ouy!Fopp}JX}&p!)fH>S)Fo)XXoyS!4SpoX>+X7)HXoS}p++&}}Spp!4+!S)y4R4!S4H7)X4H&>>XX7y!o+F&XHSPo}>)Xp)F!;S!F4)o4Fj4&>SXUS>y!4p78H)p!}&+ppp!ypy}7)4o4Fyp7>4}4SyF7o4p44ySJXHoppNH)p+S4HppX!H+}!>X&&4F&ty!7}}SyX>H&y+XFo)yyH)7p!f7}}v+p&+>&pp!7XAky>)4o!+Fp7+&4:&y4H)7F&1+Fy!H+)n}7Hy/o!>)<SoFyoZX}/!p44X7F&}o774}y+)y7FPy}Hkpp!+X&&&FHNS>y)&+4Xy)py)H!77}p+H&!Hyppyy)oSHFXNyS&)}o4XH4}>y}ooXy}opp)}pp+X7+X&XH!+H!X+>& !Hp5!!4oSpF,H}>pX)7X}S++&)H!pS}p))J4FHj!!yXo6XXX4X>>)FSpXpooSS4p7+}}4SypH47!!)X4&4HSJH>))4o&X))X>yHo7F}XoS&oH)pXy)+!&SHpv)S4+Ou&FS)/>)X!Ap>,oX7y}X7XX>oGpKHX7&}o+yk&FHA!!y4oSFXXo)&p}H7o}HoXyS4hp)}p4SypH+p}S}+p&4H!V)74)XSFy}07!+FpoX>p47p&447&}yo7<}H}po!!)X&}>zpS&S)7SoF>H}>7X)o&y&47pzH}7!S4+X&F>})+&4)Fo}H%G}>X)>+4XXoFp}Xpo+}FF}>DH}pX}>X4&XFF4}S4++ppX+H4!&447)XFHPyF4!7+&goS7y!o+&&cFo2o>3M}!!}4SXXFH}S()+;p}+F4>&H4p)}FFu&!FSpp>H)>SyXX))!>4SSp}Ho}yyHXoHX74yyF!H+yyS+pp)HLWS!F4)xoXFD+>y4ySS>!oy>7H4o!}S)o&)F!p7!p)ypXFSoo>)4!S&Xpoyy!4ypoX4+X&)}o7>yX++Oo!X+!!yHp&&X!{+>pFS7+F7oXyX4!oH}Xo>y(}HpX}&+o&y>&WH>!)y7oXFoXy)FpSF}!oy&oH4pX!)Hoy>}Xp+SoFXp!Fy+p!&4!S+Xp)S>p4+7}&}opy44!p)S4+X&F>}p7}+HpnFy4p&>44)SFyf5>y)447y}yo4^4HXpFS}+7p+!X4}}l)}SXF>H4>S}47)}!o7yp}&7p!H+}&y!y+H!>+F&pFpCo&S)pS+X})Syo}}7X}S++&)}1p)!!+&&p!p+!!+Hp&>>!)pSo4)OXX4+o>>HXoHXXo>>*HX7kS}o/y7HXc)&!)y&DFHjp7s4!o:Xp+Hy>Hy+}}y)o&4FX)X&o+>pXF+4oSXF!Sy!pA&y!4+7p>Sopy+H})}}p++&}>}pp!4+!S)y4%X>F}}S7>44yp})j7}}Xo>z4HS)4!))!&7Fp)&!p4HS}Xy4ySH)7TyXFHH7yXS7py)om&SHF;)&o))&}HSCX7})yS>y&o+!FX)opyXF4>&H4p)}FF_&FH!p+S3+>py>o)&SwX+_py0o}>!!47X}FF}p+}+pFS}oC&}FXp>74)oppX)o!>74p7H}!ooypXypo!HoS&y!&p}S4)H/}Fo4oSXX}Sy}oo4yX}X+)X>4Xy+!o+Xy!+y7pH&t!!+)ppSX+p7>X4XS!>HoX>>4QoH}!+SypFHp>!y)XSHFX<S!34)Sp!yooyH4X7SFM+)ypXS7Fy)o7pS!)+H!XHy&}XHp7>yF!S7F>o)y)4Hoo})oFy&}op)}}oS&X>}(o>H)XSSX+o)>p4SSp}Ho}yyHXo)}!+SypFH7}!y)XpHH7+y!FXHmy!S{pS))j7SXF+)7oH)7F}&F&&)HFp&S&))&FF&4&>))FS&y&o)>})S7X&}oyy>!4pH!!+ySoFF%X>)HrpyXooH>X4S&/})op7p).7}}Xo>W4H+op!))!&&Fp+S!p)4&!X)H4>+FpS>y!4p7oH)7F}&Ho&)HFp&S&))&FF&4&>))FS&y&o)>F4&+&})oFy&!&p)}}oS&X>}py!>X&S+!})pS&Fs+4F&o4y)4F+,})++h4}X+Hy&HX&>>&p4!&)y&7y}Ry>>}&7+>}4)7y}}+)&Vo}y=Hpp+S&+p&7>sUF&&FXsX>4H}!24}7XX>F4yXHF)}yyH!7p}yp7SQ+}&KFpd+7&)&SHXSoy>&!47+>p+)&!H7ppyS+}&oF!MX!}X6S>!yooyH)77y>!o>>S4F)4}y4py>!!+p&())S!F&1p>4)Ho_FS4>&+FHp}XX4)SoX+7!&&+7p3FH5!!y)pxpFpQ+>}FSSpX4K!y)!474XS+H&)H4)&!+H!&SXoR)>!)7SpXy)X>SHo7)}!o&ypHyp!}y)oy4FXE)&o+>pXF+4oSXF!Sy!pU&y!4+7p>S+o&HHXpS!+))&p}y?o>H)XSSFIo)>p4SSp}Hm}yyHXoHX74yyF!H+yyS+pp)HuCS!F4)RoXHo!>yHo7F}X+)SpHHp!}y)o&4FXY)>o))S!H&cp>yF!S+!p/>7!Xpoo})4Xy4Fo7>!XHH&!FSpp>H)>SyXX))>!4SSp}Ho}yyHX+)}!+SypFH7}!y)XpHH7+y!FXH?y!SGpS))e7SXF+)7oHHp!}y)o&FFXe)yp)HS!Fyoo>44X7)}oo)y!)&7p}y4!y+Xp7>&!HppoF)+X!44o&>XX)H>!4SSp}Ho>yyHXo)X>+SypFHp}!y)XpHH7+y!FXHcy!SgpS))=7SXF+)7oH+oX}y)o&FFXpS>o)+SX!)n!>S)77)y44p>p4+7}&}opy44!p)S4+X&F>}))&EF&p>F74Q!})QSpX+H&>&4H7S}yo&84H7op!))!&7Fpp&!H)SSyF&H4>&Fp&S}o+Hy>Hy+&}}F4&H!}p7SoFXz}Fp4)Sp+X3HFk.!yo4pS9&}oF7)}&oS}7+oy>>}pp&))>_&FpoH!}4ySPXoH&>>XX7+&oHX7!HS0o!))Xp)F}VS!F4)QoX)^F>&}&7)X}:SyX!}7y}>F&pX!4+py7)+o4H&.4>))FofF*z!yo4pSG&}op7)HXpS!+))&!FSpp>)HpSHX!Uy>pX.oyXylE>H4p+:XQo!&oHp7ZS}+7_4Fo)&!+X4&&>&RH74)!?SX7oo>>!}7+y)H&p&}i),!}+!o4FX;F7})+r+!p4Fp4)&74})oFp3H)p+S4HS77HF44}&)4S)FF4c>FFySp}Ho>yy4o+4X&4y>p!}p!!S+7S)>4tH>!)>oo>XoX7X})7X>XBspoH++XypF&y!}X+R&o)+&HH74&>)FXS>>6oXp44&SS&}oH7)4S+S&)HH&!FSpp>)Hp&HX!.o>pFSSpX+o}SS4Fo)X7HSp)}HpXyy+}SHH7<y&!)y&YFHAp7x4)7+&4 7S7}y+)&Ao}ylHpp+S&)+&HH74&!)FX_&>X4&S7X&+&}4oHpRH)p+S4HS7.HF44}&)4S)FF4l!7FySp}Ho}yyX!77X>+)&)HH+o!)+F&&!o*+&X)y7oXFoX!SFp&S}o+HyFHy+&}}F4&H!}p>SoFXU}Fp4)Sp+XlHFS)y74XH7FX!o+p:HXoy}7F4&XFS7w>))}&!y4#o&p)!o!>p4oyHH!7y}p4yyoFH7S!yH!&yH7x474)+ppF>4!SpXo7)>Xo4&o4>pXyH+>yFHppp!oHS&pF+x}&S)pS4F!o)p44+Qp})+!y&HpoS}p++&}>}pp!+)}o}Fpa4!!4)+4XXoFp}}4S+>poFI44&p4!)+FG1FF+y!p4HS>Xy)!>HFp7H}!oy&oH4pX!)Ho&HF!p>SoFXSX!)Io&S4o7HXFoySX4Hpo})+!>&Hppyy!++7pH>)!&pFoS)!Xv4yo)>7X>HoX>&4o7y&&+H&!Hybo!F)XS)}p^H>!)y7oX4oXy)Ho7)}!i&ypHyo!}+4py>!!+p&o))pXF4oo!>4X:HXXv>>h}V7XX>oJpnHX7>}OFq&XH>p;S?)X&>FW4 >X)>S y(oX>&4o7y&&opy7! +y&}Hpp4}p5+74+&S4X)mF7,4)7+&44p7&})o}}>F&y4H&py}7X}&yF>4&SXX46&!j)y>7}hS}Xzopy+!&7F}po:&XFX72SN))S+y4)pS&X+c}X>H&>44&7yX7F}y}Hop!!X+}gRFF)&!HFHS!XSqpyH4>7y}X+HyXHS7:!)+p7yFoLH!X)Sy*X)0p&S)F{)F74S7)XH7X>yo}&H47pyy!+>7pF)9!!7)pSHX!A>>pXYS&y}o!7&47+HyyH&ypFHp}!yFyjXH7+y!FXHqy!SDpS))=7SXF+)7oH+oX}y)o&FFX+H}SHySoXHeX>S)w7)Xp)SyoHH7FySH)&)Xp7!y!+SSoF+#X&)+SSSFpoH!}4y7X>Hx7Sy4F+Hyy4Syp})7W!S+FS)!oRH>!)y7oXFoXy)Fp&SFX4H>7Xy7F&HHy7SHp+)}O)S&FX))o>H4!Sy}ooFyXH)po})+!y&HppyyX+ySoH4OX&H+7pyFF4HSyFSSp>)PKyS4Fp)yo+H&!Hydo!F)XS)Xoe)>!)&SpXy)X>yHoS4}X4Hy>4F7p}p+o7SHpp+!}HS&}FoY!>X)}o_XX)y>pHH7>}y+o&HHXpy&&+}04FH)}!yXozX>}Up7)Xp&pX+s}>p4}+zX}oF>pHy+o!)+}ySFX4}!})oS!XX<}7Q4XeyXp+Hy>Hypo!H+X&y!&p}S4)Hv}Fy4oSXX}Spy)4p>p4+7}&}opy44!p)S4+4ySFH{)!4X&S+>}WoSo4H7!Xy+oyFHXp)!o+)&!H&pp!yHX&SXo9)>!+&SpXy)!>+FpS>y!4p7oH)oX}4)oy>FX+H!FHy&pXH*>>y4o7HXFoy7&4}+4}HH}y>!o+X&}+ySoF4tXSXX)&>!XE+7oXX%!Xy)p>&H!7+}p4Sy7})pX!S)+S)!op!&X)S7oX)o!>&4p7y>!oS&oH++!yp+p7yHH+H!!)S&7X)+p!!4!Sy}os4yXH)ooX>4Xy+!o+Xy!+y7pH&f!!+)ppSXooH>X4S7+})opSy)!S)yoo>7XH+)o&XH!&y}pp&>!)+Sp!SooyH4X7S}++)ypHS7p!H+}&yFX+)!X)SykX))o!>FXS+yo4XS!4y8pX&+!y+HpoS!o)H&XFSw+>))pSSFpoH>}4y7X>)oXyS)Qp)yoo>7XH+)o&XH!&y}pp&>!)+Sp!SL7S)4X7S}++)y!HS77!)4p&HF!p>!pFO&&>}k!S&)7oH>y4&>pHH7}}yHypXHX7>}/FV&XH&po!yX&&pF74#>FF>o)>Y4>p})D7}}Xo>m4HXpFS}+7p+}p+p&yXx&}Fw{p>+}&SFXp_wyXHXSu&#+)&+>4+p&&FHyF!)uF7}+iS}XXV>p4)Spo})+!y&HppyyX+SSoF)_!!7)pSy!!j7!>4)7)XH4oy)4F7&yoo&yHHSpy}&X4&>!Qp!&!)>&SFFH4!7Fpo}y}47p&H47H&h+)&+>4+pyLHy&+>sp}!8)pS+y&_p>7}hS>>>H4pd4}76}p++3&F+pH}7X&&c!X)pS!X&ny>!H&y44H+n})++?447o7&XX4y&F4f)!FXTSF!yGpyH4>7y>!ooSpHHp!}y)o&4FX0)&o)HS!F>4oSX4X<)FS)SyoHH7F}y4XyoFop)!!o&&pFy+!!7+>S)X)RHSo4)SFX&4oyHH!7y!o+F&XF)op!H)!&yXo,4>X4)7oX)o!!&4p7y>!o+Sp4>+!ypHo&)}Xp4>o+>SX!HY>!F)pSpXo)S>p4+7}>Sopy44!p)S4+SSoF)s!!7)pSy!XlSyo4)7!X&opyyH!7y!oo4&XF)+o}>HX&+>o)X&!)yppF&o!>+4pqSXpo+y}!}7p}4o!&)>4p>yp))S!F73p>H4!S>Xp4g>&}}7!y&o7pH}y+&}p)H&}Fy)ySX+7pyFF4HSyFSSp>){qyS4Fp)yo+)yFH&)&!)+F&&>&p)!F+&S)F&H4!&)>S)Xp4HyX4&7o}yF&yHF!py>o)4SXX)+p>H4!Sy}ooFyXH)oo})oFy&!&p)}}oS&X>}6o>H)XSSX+o)>pFySo}HoXyS4Up)}p4SypH+p}S}+p&+F}4}!p)+S}y}ap>4)!7)&4oXyF!}77y+4p7p!+){}}+0&pF+4&!p)7os>)4HS}4>+&X4o&yy47)}}y+>;&}p+p&+)Fo}H<N}>X)>+4X4,SyHH)74&&++p}H}+D!XH!&>HSpF74+7pp>}4}S&}&74XHHiy)H+)4y747yF>47&!4))&F>Pv)>+}4&7!7)y7XXS+&X4o&yy47)}}++yy&F) )}&X&&pF74BS&F&S+yW;}>(4p7+&&+H&!HyCo!F)XS)}p7S}XFH&7!ygF7HXyuSXp4)>gHS7F!)Ho&FH+py!y+Sp!Fyp7>4F!S>!po)y!477p>So&7)H!pS}p)H&}FylX&H)!SSF74HSy4y/XX}4oyHH!7>}p4yy&FHpX!SoBS)Fp+S!FF)&7>S4)SH4XqyX}+H>7Hyo!Xyo7y4Hyp4S&+4&+Hy3X&S)pS4F!o)p44Spo})+!y7HppyyXoH>p}SpF&)+7WS>))H>XFyS}}Hh7yyX!7yX7+4%4Hy7_}H+pelF)I+74F7p7!yB+7R)}SnXpo+p&HH+&}y)o&FFX)4!X)S&9X)4)&S)F^)F74S7)XH7X>yo}&H47pyy!+yyxHHppS?))S+y4)&}7FyS+yZx}>B4p7+&&+Hp&Hy#o!F)XI4FXUS!L4)o)!SMFS))7oSy)4HyXXy7}!Ho7&y}!py}e+H&p>iLF&y)p7HX>oyS!4pJp}H+!y>HpoS}7+oy>>}pp&))F<S>)44>X4SS^})o}>!!47oy7)FS!F&7yyX4H7FHS)s>)X4S!XSTpy)})7)XFo&7oH)7F}&F&&)HFp&S&))&FF&4&>))FS&y&o)>})S7X&}oyy>!&p+yXH)p)!)44}&)4S)FF4r!*)!7oXphYp}47oH}!+SypFHp>!y)Xp)H>DS!p4HS}XyoXSH)7<yXFHH7yXS7py)o8&SHFT)&o)HS!Fyoo>F4X7)!poHy!4ypo}4+X&)Fop)!!o&&pFy+!!+Hp&>>!)pSo4);XX4+o>>HXoH}!+SypFHp>!y)Xp)F!2S!p4HS}XyoXyH4X7SFZ+)ypXS7Fy)o7pS!)+H!XHy&}XHp7>yF!SSy4o)y!477py&op&HH}py&yHHy7}ypFSHFypSFp))!R4SSF})4oyH}&7y!o+F&X!4pX!S+dS)>)+S!FF)&7>S4)SH4XxyX}+H>7Hyo!}>4p&)F!p7!p)HS!F>tpSE)&o}X!4&>7}Hoyy&op&HH}py&yFXy7}ypFSHFypSFp))!#4SSF})4oyHH!7y!o+F&XF)op}F)!&yXoL4>X4)/oX)O}!S4X+}X}ooy!HX7}&do>p&Ho)4!yF&&7>4pXS&)HhHXFu!>+}US&>yH4p4}>)}}f+os&Hpp7S5+&p>!X)p7&)4S&Xyl7p}4y7>&&o}>F})+p&FX4y&F4j)!FXl&>X)m4>y4yS4&4oXyF!}++X+4py}>47&!4))&F>kp>&y)p7HX>oyyoHHS>}yH&y}!4pH&}o7io!X)}!y4oS4XX4X7))>sXX+Ho7XX!7y>po&&!H+ppyS)+y7FXUX!!FHSXF>(hSH)>VyXp+Hy>Hyo!XS4p>S4X+H!F+!&+>=LX&yX)o4y!_Sp44&SS&}+)7)HopS}p))poF+pH}7X&S)!X)NS*}H7)y*o}>!!47>>p+X&!HyppySopp)FF2SS)4)goF!)X>>HooF}X4Hy)H+)4Xy4p7yFo)v!y+>&:>NpS&>FX&7y&Z4>&4yS7&}oo&H4SpyyXoySoH!1X&H)FSS>)o)&p)H9!Xyl7y4X!7yX7+47!Hy77!4H!yyH7p4!y)4o&F40+!y4XjSXpo4>!H))4X74p&)F!p7!pHS&o!)po}yF!S>FS;Fp44yapyXH}pSHo)}}:+oi&FX+X!H4oS)XX)H>F)!S+yLoXSy}4+4&!+XV4H&7SS}+7p)Fy(S!p4)goF))X>>HooX}X4H>SXy77!HH>&y}!pX!FX}yp!)+p>H}4SpF7o4p44oI7>yo+p^4}7W}p++t&HH_!!o)ppyHpoH!S4yY!X>+o7XHXo)X!4SypH+p}yS+p&+F}+S!p)+S}!S<p>+4}+}Xpo4>!H))4}S)o&)F!p7!p)yS!Fyoo>44X7)!poHy!4ypoX4+X&)}o7>yX++_o!X+!!yHp&&X!3+>pFSSpX+o}p}4p7+}}F}ypH+p}S}+p&+F}4}!p)4&!X)H4>X4F+}>y4SSpXy77&0o}y:Hpp+S&+&&HFS(y!&}4S7!po)y!477p>So}yoH!pX}}Fnyc}yeo>H)>SyF}jo>!4XS}y#z}SyHopH}>HSp+F)+o}p+7s}H}+>S4XX&}FUlp>+}&SpX7H}>qX>po!H+>pS!)i)S)+4&&Fyp77})Fl)XXoS>:H)oo})o}>SHX)}!o)H&>!S)o>)Hp&&!!ay!744+4Xyi*>H4p7X}FH5y}}4p!!S)+qH!yeySy+&S4X)MF7P)7tyXp+Hy}Hyo!}yo8yHHp)n!!)SS+>H)!>yFXS4>oo)>F4&+&})o}>SHX)}}}+o&!FXp}S=)XpyFpoH>>4yT!X4*SyHH)74&&o>7XHS3o!))XpHFFp!!+X;SX!yJp7HXyo&})H1y}4!)4}oH7SFX!w&}yHX7H}FpSSc)Fo4X!oS>pH)+)})oFy&}op)}F+&L&F)pF!&X&S)F}pS>X}}SyX>H&y+X}o)y44_(44&p4!)+F65F)=+74)>y7!y)&Sy}&S4X&oy>7!}77}oo>h}HH+)&}F+r}!>)y7})JSoy&rp>7}zo4yo4}y>!&74}&+yy7>}pF&))XSSFPo)So4FS+Xyoy>SX!7yX7+47!H47S!H))&4>&R+&!)>&SFFH4>oFpo}y}4Sp&H47H&(+)&+>4poy7HyO+>Dp}!=)pS+y&Gp>7}#SS>>H4pj4}7v}p++A&F+pH}7X&S+!X)&S)X&a&>SH&y44H+:})++f4}SS7yy+HM1H}pd!p)+o&XHo!>yHo7F}X+)&oHHp!}y)o&4FXz)!pHySoXH#X>S+i7)Xp)S>FX)S7ySH)7HHXoy}})Hy7Fy+!!7+>S)X);HSo4)SFX&4oyHH!7y!o+F&XF)/o!H)!&yXoG4>X4)Sp!yooyH4X7SF9+)ypXSp+X7+X&XH!+H!X+>&T!HqX!&)oSyy&oHy!4ypo}F+X&)FopH!!+ySoF4%X>))ppyXooH>X4S&i})opSS4Fo)X7HSp)}HpXyy+}SHH7=y&!)y&7X4H4>y);SHXpHwy)H++Xy&4b7yHH)/}}+T&pF+4&>+)H&7y&<4SXXSo}y&4S7y!&p4}HF0&)F+44!oH7.}y4p&>44)SFykoFSy4ppH}>+y&oFHpF!yHX&SXou+>XX}S!XSa77HXy7yyyo+Sp4>+!ypHo&)}Xp4>o+>SX!HB>!F)pSpXo)S>p4+7}>S+o&HHXpS!+))&p}y_o>H)XSSFMo)>pFSSF>)B77S})oH}X4yy}FH77!yH!&7H>j)>))H#oX)UF>&Xo7)X}aSyX!}77y)+X&SF+2)!!)S&7X)+p>H4!S>Xp4UyoHH7FySH)&)!)7>yX++<o!X+!!yHp&&X!j+>pFSSpX+o}p}4p7+}}F}ypH+p}S})+y7FXbX!!FHSXF>uUSH4XS&Xooyp&4>oX}y)o&4FX+H!X+>&,>vaX!&)oSyy&Qp>7}(7F>&4X7}}))}XG+}&XH>44!4+SSHX)?47&4)<XXy+oyFHX74XS+H&)H4)&!FF}&+}pp)S&)S7oX)oX7}})op})4)>7}S7p&)Hy9}H}po!!)X&}>;p7&yX4=HXF/!>+}27X>yopp4Hy)}}g+o%&H>+X!+Xo^X!!qSyo4)7X>)o>yS4Fp)yo+)yFH&+o!)+}ySFX4}!y)>o&X+)FS}XF+}F0o}yX4>)4}>oSyF>4poypFFu4>4))S}}4S&FSH}>y4>+&>pH)>+Xpp+S4o&&4F)pFSm+k&!Xo9p!c}}S7y4uSSS47o)}X+S&+F)p!!S+7S)>4p;S&)S??X+4!SpXZ7)}!o&yp}p+y}+4py>!!+p&o))pXF4oo!>4X.HX!oS>pHH7>}y+X7)4>pS}p)H&}FyNX&H+7pyFF4HSyFSSp>)NlyS4Fp)yo+H&!Hygo!F)XS)XoO)>!)&SpXy)X>yHoS4}X4H>7Xy7F&HHy7SHp+)}U)S&FX))o>H4!Sy}ooFyXH)ZpXF+!yyFop4!X))poH>+X!+XoRX!!vy&p)&7!X+opSSHopH}X+S&+F)pp!S+pSHF}Iy>XF)SXXSpIy)XoS>>Xo+po}Xo!}y4py&F!p+!pHSSoXH^X>S4+7)Xp)y>+HH7X}SoD&)HpoS}FH)y7!S))&H)XpyF}oH!74y?!X>)py)H!77}p4SyH})p!!S+pSHF}_y>XFHS!XSm77HXy7y>Xoo7oHHp!}>+p7yHH*H!X)SyjX)Up&S4+&7XXoX>!XH7XX>ok7H4n7!!o+py#>}pHS4)ypSF73o!>}}S7>)4&7&X7+:}}o!:4HXpFS}Fop4}pm+74+&S4X)OF7u4)7+&44yS7H+)4X&+4&)HF)x!))+o4F>+7SF}4&&X4o)>F}Z7FX!o+p34Soy&oHpp:!o)4S=)}&!y4uX>F}}oo>4oFp})c7}}Xo>M4HSOo!))!&7Fpjy&X+77oX)o!>&4p7y>!o+Sp4>+!ypHo&)}Xp4>o+>SX!HR>!F)pSpXo)S>p4+7}>S+o&HHXpS!+))&pFSpp>H)}SyXX))>X4S&K})4o>>XX7+&oHX7!Hyop}&)!&+Fp+S>++7SXXXd!SH4XS>Xv4HyX4&7o}yF&&HF!py>o)FSXX)oo>)4!S&XpoySX4ypoX4+X7H47oy}FFHpy}Spp&)+OSSFFo)So4)SFX&H&y)4}SS}XF}yyH>)&!+HFpp>&p4!&)y&7y}W+>y)&7)})v&p&4p77&?HX7&H7)Q}}+k&pF+4&!!FXSy}ooFyXXH7y>y+o&HHXpS},))&p}Sso>H+SBS>)o)&p4Xk!XS+o>!HXo)}y+SypFH7}!y)XpHF>pF!p)pSo!SUp>+4}jS}o+HyXHSp+!)+p&SHp2H!})ySX!)ZX>S+_7)>oh>SX4++oyX4!yyXp7&!!++&p}S7p!++}&pF}4=!})F&pXy4oy)4}SS}XF}&oFHpX!S)+S)Fp0S!p4HS}XyoXS)4X7SFa+)7o4>oX}+FopX}!pyyp+&S!F+sp&S)pS+X}H}>p4+7}&}opy44!p)S4+X&F>}p7&4Hp/}y4p&>44)SFyao!yS4ppH}>+y&XFHpX!S+LS)Fp+y>o4HSXXSpVy)4pKSXF4)>7}S+)yH+X7yH}hH}7)yp!Fyp1!H)pofX)o+7XX7tc>yo7pD4}7l}p++(&F+pH}7X&&4!X)SS}X&_7>}H&y44H+m})++D4H>o7&XX4y&F4t)!FXTS!XSupyH4>7y}X4)>>HS7p!H+}&yFX+H}7Hy&F>H)y&S)pJ)F_oS>FH)oo}Fo+yyHy7Sy!+yy7F4+!!oHpS)X!G7>p4H7!Xoop7m4&+}}!H&yH!H+y&&+pSHF}YySyXX&7!yVF7HXy%SXp4)>THS7F!)Ho&FH+py!y+Sp!Fyp7>4F!SyFJEH>p}BSS>yop&HH>py!o)HySFy)&!}X4SH>}jo7oXXo}Xy+oy4HX+X&)o>7XH+)o&XH!&y}pp&>!)+Sp!Srp>+4}+}Xpo+y}!}7p}++}f}Hpp+!}X}S+H7RX>X)!3HXX:>>MXH7XX&ooyy!&7&}H+S&yH&44!>F^&!!!Y>&p4)7!X7opyHH!7>}pHmy&!}p!&&+7.H!y)&!p4HS}Xy4y7X)7?yXFHH7yXS7py)o,&SHF6)&o)HS!Fyoo>F4X7)!p1Fy!4ypo}4+X&)}o7>yX++Co!X+!!yHp&&X!v+>pFS7o}HoXySH+p)}p+SypFHp}!y)Xp)FXLS}14)PoF>)X>+}ooX>!oySp4&p!}++p7SFo_H!X)SS+X)Dp&y)+7HXXoS>cH)7p>SoF7)47+S&)HH&X}yp}>H+7Sy!!ESyo4)7!X7opyyH!7y!o+4&XF)op!))!y&Fp+S!FF)&7>S4)SH4XZyX}+H>7Hyo!}S)o&)F!p7!p)ypXH7oo>)4!S&XpoyS!4+vpX>H!7p}op)yX+4SoH>/X&H)FpyFpoH>>4y*!Xo)pyHH!7y!o+4&XF)+o!H)!&>>o)X>XF)&S!SooyH4F7y>Xoo&oH)p!X&+p&y}!py}7)4o4Fyp7>4}4SyF7o4p44yS7}4F4yy47p4S4+yy{HHppS8))S+y4D>&UXXo)>XH&>44&7yX7F}yyH>)&!+H}pp!y)H74+&S4X)OF7<4)7+&4o>S7}X+4yXF&y4H&py}7X}&yF>4&SXX)ix!No+p4)&74})oFp?H)p+S4+>7p}y))&pF>o}H{Z}>X)>+4XS+oy)H!77}p+y7X!}pX!S+_S)47+yS4XXAoX)5}!S4X+}X}ooy!HX7}&h+>7yHp=H!>)yp!F4pS>H4)S4y&#4SX4Spo}FH!77HpoS}}+o&!FXp}SO+bpyXooH>>4yo!F&4oyHH!77}p4yy}}Hp)!+F&y&}7)}Sy+&S4X)/F7s4)7+y&o4SiXypo!H+>pS!)R)S)+4&&Fyp77})F3)XXoS>BH)oo}H+!y7!o+H!XH)y6}Spp!+)}o}Fp*4!!4)SyX>H4>&XFo)}!+S&+!H+y!yFyy&F4C)!FXJ&7!y9pyH4}7y>!oS&oHF+!yS+p7yH}+H!X+>&k>6=X!>)Co_XX{&>o4y+&X&oHySHy7&S4+>pxH!)}!HF=&}>}pSSo4H7!Xy+oyFHXp)>poF&!HyMo!4)XS)!op>&X)+oo>X)!>yFpS&}!o+ypXS77y)+X&SF+V)&o+!pXFSoo>)4!S&XpoyS!4Spo}+H!7pHpoy}HHH&!FSp7>)Hp&!X!gyyo)47X})4o>>XX7+&oHX7!Hyop}&)!&+Fp+S>oX}SXXSo+y)X#7)}!o&yp}po!}+4py>!!+p&o))pXF4oo!>4XRHXF)y>pHH7>}yo!p44&oyXpF}&!FSp7>)X4&#>&eSS#4+o!>p4Cy)H!7&}pHppy!Xpyyy+4vHFF)yS)XU&!!y44SH4FS!X+HOyXXy77&4+y9}H;poS&+HpXHS4oSXF!SS}oo)yXX)7o}Soo&)}op)}F+&poH>+X!+Xo0X!!Oy&p)&7!X+opSS47o)}X+S&+F)p!!S+7S)}pCH>!)>Sp>KK&7}4!o&X7HH7y}&p)&XF)y>}Xp+SoFXp!Fy+p!&4!S+Xp)S>7X)7X}S++&)H!pS}7))7pFH/!!>)pR3>yY+&p)>o!>p4oy)XX74!oo>&X}HpFyy+pSHF>Ny&!)oppXHo!>yHo74}X+)7oHHp!}>FopXFX+)}SHSSoXHGF>yFXSo}oo)y!)&7p}y4!yy47p4S4+yyIHHppS/))S+y4)pS&Xo(}X>H&>44&7yX7F}y+Hy7&!)))y&>&pp!7Xt^y>})y!+Fp7+&4t&y4H)7F&{+!&SHp H!>)ySX!)r!>S)p7HX}oyyX}H7X}S=w&)}opF}++y&yHS+!!y+7S4!!#4!S4H7)X4H&y+}}S7y/o}p}HH+f}!H!&SXoa)>!)7SpXy)X!SHo7)}!o&ypHyo!}+4py>!!+p&o))pXF4oo!>4XwHXF)y>pHH7>}y4!>7XppH!!+ySoF41X>)FoSHX!C>7oXX7X>)a>SSHopH}F+y7X47wo!))!y&FpTy&!)+ppF>4!SpXo7)>Xo4&o4>pXyH+!&SHpqH!>)ySX!)p!>S)p7HX}oyyXXHS7>yoFpH}yoS}pH)ylFSpF>)FoS+!XTyyo4F7XFr48>SXXSy&4+H&!H>pp&hFy6XFy+y!!XHSF>y4)7*)S%yy44HyF4!7+&l+X7yH7)4!yX}&;Fo4&!!FXSoyo4XS!4Spo})+X7)4&pS}H))poF)pF!&Fo&>!XD+7oXXx!Xy)p>&H!7+}p4Sy7})pX!S)+S)F!ZS!74)o4F64&>SX;7+y!4p79HX+y&Xo77yHF)H&yHS&p!)pY>S)F7)>oo4>H}RS>})Uv>y4>7>S4+yy7F4+!}y+7&4Fyj47&)4S+FyoXSS4p74X!+)=4HS8o!))!&7FpMy&X)S7oX)o!>&4p7yy!oy&o44pXyH+Xy>Hv)h!X+>&W>^^X!&)oSyy&Vp>7}v7F>>4X7p}y++S4o&&4F)pFSk))S+y4T>&7XXo)>>H&>44&7yX7F}yyH>)&!+H}pp!y+s74+&S4X)dF7A)6S!}oop>U!}7Fy)+X&SF+8)!!)S&FX)44!0X&SS>u,>7!Xpo*})+!y&Hp+p&y+yyEHHppSI)F&!F+4w!}Fyo4y44yp}4l7o&&opy7!x+&yyHXy&>&p4!&)y&7y}ooyH4X7S}++)ypXy7+!H+X&SH1T)!pHS&F!)p7SSX)uHXX)y>}HHS7}y4!yy4%7H}pFN&)F+44!S4oS)X!h7>p4y&gX}oX>>!47+>po>p!}p+o!)+}ySFX4}!FF)SXXSw_y)Xo7)XFo&7oH)7F}&F&&)HFp&S&))&FF&4&>))}&SXXH}>}4o7!}Xo}p?HF+&}&F4&y}Sp7!o+>o}F+))S&X&/^yfo}>!!47X}FF}y+}4op&XX4y&F46)!FX9S)X+H4!7+7(yy)HN>}4w7p}+F&&+}Xpy>o)FSX!H24&y4o7HXXoS>cH)7p>S+o&HHF+S&)))7pHn+!!S4oS+XX))>44SSp}H{}yyHXoHX74yyF!H+yyS+pp)HPmS!F4)RoX)z}!S4X+}}o+HyXHSp+!)+p7y4!7)&o+>pXF+4oSXF!Sy!pm&y!4+7p>Sopy+H})}}p+4y!F)44!X)Fo}F+)+S>}}&xX}oX>>!47X}FF}y+}+op&FX4y&F4x)!FXISFF!K+7t)}#yy)4p7Q}ooS&g+}y!>4pX!FX}&+H++pS4}4&&X4o)>F}L7!y{op&HH>py&}+ySoF4DXSXFo&>!X:+7oXXk!Xy)p>&H!7+}p4S&+47pX!X+!pHFXp>!uFHSF!yUpyH4>7y>!opSpHHp!}>+p7SH7po}>X}&p!){FSSX)o4XXoS>hH)7}X!F4yo}7NF>!)&yy}XoHyF+S^<X)44>!4SSp})H)y)4F7&yo+Fy+Hypy}SH!&yH764&!)y&qFHwp7a4!oYXp+Hy>Hy+}}y)o&4FX)X&o+>pXF+4oSXF!Sy!p_&y!4+7p>Sopy+H})}}p+4y!F)44!SX4S)X!^7>pX&Sp}Ho}yy}yoHX74yyF!H+yyS+pp)HWQS!F4)6oX)VF>&}&7)XFo&p&H)7F}&F&&)HFp&S&))&}HSQX7})yS>y&o+S}X)oyyXHopf4}7{}p++#&H&pH!S)y&&y4PoSo4+SHF7H&y+XXoryLH+#4H&7SS}+y&>>&z+&}FSo&F40&>y)7+}Xyo>p&}XoF}>F&y4H&py}7X}&H!)EX>S4+7)X!oS>HH)+4}H+!yo!o+X!XFXy7}ypFSHFypSFp))!i4SSF})4oy)4}SS}XF}yyH>)&!+oFp)!>4}}t)}SXF>H4>SHo7)}!o7ypHyoXX7)o&)F!p&!p)yp!F++p!>X!?p>oo)SX44poX>+X7HHX7&}o+y#&FH(!!y4oSFXXo)&p)F7!Xy+oy4HXp)yoo>7XH+)o&XH!&y}pp&>!)+Sp!S(p>+4}+}Xpo+y}!}7p}4o!&)>4pX!FX}&7!+)}7}+US}XXG>p44X7F&}o7>+Xp+FS4o&&4F)pFS(+>S)F4Gy>y)4+4XXoFp}X7S+>p++O44&p4!)+FhsF!lS!p4HS>XyoXS)4!7SXp+Hy}HypX!H+X&S412)!pHS&F!)p7SSX)=HXX)y>}HHS7}y4!y74>p)!)+HpoF)pF!&FoSHX!cyyo4F7X}))p>FH!7y!o+4&XF)+o})+Fy&F)p&74+&&>F)QpSH4XS&Xooyp&HHp!}y)o&FFX0)yp+FS!Fyoo>44X7)>oo)>F4&+&})o}>SHX)}}y+>pp!X+}!>X&&4F&iy!7}}S+Xy{&y)H)S&&&opy7!QpFy>Foz5H}ps!p)+o&XHo!>yHo7F}X+)Sp4Fp!}y)o&4FXJ)&o+>pXF+4oSXF!Sy!pc&y!4+7p>S++>7HXpX}!HH&XH>pf&H)!SSFpoH>>4y7X>)o!yS4ppH}}+y&XFHpX!SozS)Fp+S!FF)&7>S4)SH4XvyX}+H>7Hyo!Xyo7y4Hyp4S&+4&+Hy^X&S)pS4F!o)p44Spo})+!y7HppyyX+SSoF)m!!&)pSyX!*yyo)47X})4o>>XX7+&oHX7!Hyop}&)!&+Fp+S!p)+S}y}.p>+4}+}Xpo+y}!}7p}++}x}Hpp4}!))o4FXnF7}X)Zp>&p>SX4>+&X4o&yy47)}}++yy&F)<)}&X&&pF74h>F+>(X>p4y74!4S&}4+)yF!K7Q}!)o&pHw4}!7X4&&>&uo74))o&XHH4yoXS77}oo>;}Ho+)&&F&pp>Z{}!!}4SXXFH}7+X4S!&}Idy}HX7>S4+X&F>}po&+Hpl4y4p&>44)SFyWo)y+!4SS>7HXz44&p4!)+F%LH>_)!4)ySyF4H4>X4F+}>p4+>!!}S(}}+Xy>>4p>yp))S!F7Vp!SFX&HX!oS>7H)+4XLH&yS}ip+&!HppQFX)ySXoppSFH))S&FSS7Xoj>p}4po)}FH&ypFH7}!y+g&o>&p!&X)ooo>X)!>SHo7)}X4)yoHS7H!)Ho&)HFp&S&+>pXF+4oSXF!Sy!pQ&y!4+7p>S++>7HXpX}!HH&XH>p(&H+7pyFpoH>}4yw!Fyv7>44y74&&o4y+4ypXyS+p&4H!v)74)+ppX)o!>&4p=SXpo+y}!}7p}4o!&)>4p>yp))S!F7Kp!SX}&X!pz)7&4Spo}++Xp}H!pS}7FHpyFy)ySX)ypyHy4H>FXyo)y<qSSy}4oH}Fo!y+!JpXyy+7v4Fy4}!M)oo&F!)X>o}ooX>!oS&oH)pXy)+o&SHHM)&o))&FF&)o!>FXS+yo4XS!4yjpX&+!y+HpoS}p++&}>}pp!4+!S)y4cX>F}}o4>4v!p})m7}}Xo>64HXpFS}+op+}p)}74+&S4X)5F76)>7)X4oyyy44)4}X+F{}Ho7+ypFFo4H&24>))Fo;X!oS>pHH7>}y+X7)4>pS}p)H&}Fy=X&H+7pyFF4HSyFSSp>)q9yS4Fp)yo+Fy+Hypy}SH!&yH7A4&!)>ppX)o!>74p/SX44)y!HS7p!H+}&yFX+H!!)S&7>H)y>yFX&W>ooHy!4>7p>yo4&HHXpSXW))&p}SpF&)+71S>))H>XFyS}}HI7yyX!SyX7o4yyH4)&}4++yyFX+S!p)4&!X)H4>SHo7)}!o7ypHyoXX7)o&)F!p&!p)yp!F++p!>X!ep>oo)SX44poX>+X7HHX7>}KF0&XH&po!yX&SHX!%yyo4F7X}))p>FH!7y!o+4&XF)+o}>HX&+>o)X&!)yppF&o!>+4pLSXpo+y}!}7p}++}/}Hpp+!}X}S+H7gX>X)!uHXXv>>8XHS=X!+oyp4,)}}7F4y)!&p!S4)H3&FH44!&FSS7Xo(>p}4!o)y&H&77!Tp}}!X4&XFF4}!!F+pp>HH4!&447)XFHQy)H+)4}H477y}p)d}}+r&pF+4&!p)7ow>F)>>!}vS}Xropy+!&p+yX+ySoFFvX}bHpySXooH>F4yo&X}H4yH}}7>&oHXp}Hp))&poXpHHS+yS4FHSFF!_+7g4XhyX7H4yXHSSg!)+}y!>4poyp+!u!!p)o>H4!SyXp)y>4HHSS}y4!yy47p4S4++7pH>)!&pFoS)!X?4yo)>7X>HoX>&4o7y&&o>7XHy*o!4)XpHFXp>!QX9SXF&5o>y}&SpX7Hj7!X&7!&eo}yMHpp+S&)+pXFyoo>F4X&Q>^ooSX)y+4}H+!y>Hp+P!o)H&F!S))>)X)epX)))>HXSS7y)4yp}4Ho)y&4Sy7Ho7>S}+pp)FF)&>)X*S}F!H4>oFpS!y!4p7oHHp!}y+p7yH4ZH}S)yp!Fyp7>4F!S+!p;>7!Xpoo})4Xy4Fo7>!XHH&XH&po!yX&S+!X3yyo4F7X>H8)SyHopH}X+Sy.F)ppyS)oSHFF)SS)4)ppHp)!>SHo7+}X4)>)HS7p!Ho}&yFX+H}7Hy&F>H)y&S)p0)FKoS>FH)oo})oFy&!&p)}F+&D&F)p}}S)Xo}Fyz>7&)SAF>)4yp})a7}}Xo>64HXpF&yF)p4Fo4}}=)}SXF>H4>>)SSF&4r&Sp}F+4&4HHpF>4p&}SX}&yF>4&!SF}M7y&N4>&4yS7&}+o&HHXpS!+))&p}yp+>H)XSSFBo)>pFSSF>)U77S})oH}X4yy}FH77!yH!&7H>d)>))HJoX)TF>&Xo7H}!oy&oHFpX!)4pyHF!py>o)4SXX))o!>FXS+yo4XS!4ydpX&+!y+HpoS!+o7&XFXp!&H)X&>F,)H>X)&SoXyH&yHH!7y!o+F&XF)op}F)!&yXo;4>X4)?oF>)X>+}ooX>!oySp4&p!}++p7SHpp+!}X}&pF4p!>)}4SS}oo)y!477p}y4X>H)poS}FH)y7!S))&H)XpyF}oH!74yV!Xy{7y4!47yX7+484Hy77!4X4yyH7p4!y)4o&F45+!y4XASXpo4>!H))4}4oS&HF)p4S&)+N}HX)1!SX}S!>jB!7})uoo}+oH>7!&7SyXHaps!+44!&+So}Fy.>7&)ShF>)4!p})A7}}Xo>G4HXpFS}+!p+}p))74+&S4X)=F7q4)7+&44>S74S)4X&+4&)HF)I!FHy&pXHc>>y)4h)FooHy!4>7py{o&p}H!+&}7FHpy!&R)SXX)yy!!bo&pX}1!X><S>F!47y>p++p}HyEo}4)X&&HS4}!HF)&S>S4)SH4!7SXp+)Sp4}p!}o+p7SHpp+!}X}&F!)p7SSX),HXX)y>}HHS7}y4!yy4G7H}pFOy7}ypp>H)}Sy!!By!744+4Xy h>H4p+v})++24}So<}SX4y&F4I)!FX;SF!yJpyH4>7yX4H4yHXySp&}+!&SH7G)S4)HS!F>4oSX4XoXy)oXSX4!+o}+HX7p!&7!yXH6poF+pH}7X&S)!Xx>SD4X+4X&/Sp}4Ho)XSHSp)}Hp!!S+pS)}pp}>!)oSp!Smp>+4}%SXF4)>7}S+)yH+X7yH}QH}7)yp!Fyp_!H)poZXF)y>pHH7>}y4!>XXppH!!+ySoF4?X>)FoSHX!v>7oXX7X>)_)SSHopH}F+y7X4XPo!))!y&FpBy&!)+ppF>4!SpXo7)>Xo4&o4>pXyH+Xy>H*)i!X+>&R>5wX!&)oSyy&up>7}?7o>>4X7p!&74}&+yy7>}py!>FpcX!}CH7&)4S&Xy 7p}477oX>F}>u})+>&}F}p!!>4}!6)oo&Fp.77#4oa&y+H9>}4D7p}+F&&HF!py>o)FSXX)+p!F4!Sy}oo4yXH)ooX>4Xy+!o+Xy!+y7pH&l!!+)ppSX+p7>X4XS!>HoX>>4EoH}!+SypFHp>!y)Xp)H!ES!p4HS}XyoXSH)70yXFHH7yXS7py)oK&SHF6)&o)F&+Fy5y!SF!SyF7o4S!4ySKXHoppOH!pS}p)H&>Fy3X&)+>SSFpoH>}4y7X>H%7Sy4F+Hyy4Syp})7t!S+FS)!oj)!F)&o&X)%}!S4X+}}o+HyXHSp+!)+p7y4!7)&o+>pXF+4oSXF!Sy!pe&y!4+7p>Sopy+H})}}p++&}>}pp!+)}o}Fpg+>}}}SpX+o}p}4p7+}}F}ypH+p}S}+p&4H!c)74)XSFy}t7S+XyoFyoHU>}4_7p}+F&ypH7)b&yFFp7!++p>+}4&&X4o)>F}^7)}+F4y>X(+X&+Hyj&H4p&!y+7o}F7co!>}}S7>)4&7&Xc+W}}o!M4HXpFS}+7p+!y4}}T)}SXF>H4>X4F+}X744Sp}F)4X&+4&)HF)#!!)S&pXHq>>y4XM)X!oS>pHH7}}y+X&HHXpSX1))&p}SpF&)+7IS>))H>XFyS}}H<7yyX!7yXfoHyp!Op)!+FXpp}9%+74+&S4X)wF7{4FS!X+HR>SXy++y8Hvp+!o)K!}+!o4FXwF7})7&+!p4Hp4)&74})oFp{H)p+S4+SSoF)(!!7)pSyH#C}>X)>+4X+)p>>}!opyo+)y}4SpXS}+Fp)FXMS!x4)EoX)VF>&Xo7FX+oyyy4So!}yo7&4}!pS>o))S!F7_p>yFXSS}oo)y!4&7p}y+!yyFo74!X))poH>+X!+XocX!!ly&p)&7!X+opSSH+S7}X+Xy!}HpX}>+8pHFXp&!o)yo&FpG77w4!7SXp+Hy>HypXX&+4&)HF)s}7Hy&F>H)y&S)pS4F!o)p44+Op})+!y&HpoS}p++&}}Spp!+)}o}FpC+>}}}SpX4Q!y)!47X}FHy7f4+op!+X4y&F4?)!FXJ&>X)s4>y4yS4&4oXyF!}77y4HyT}4Lp}!X+>o4FSoo>)4!S7XpoySX)7po})+!y&Hppyy!++7pH>)!&pFoS)!Xr4yo)>7X>Ho>>F4p7p}o4SypH+p}yS)oSHFXPS>+4)Sp!yooyH4X7SX2+)ypHS7p!Ho}&yFX+H}7Hy&F>H)y&S)pD)FxoS>FH)ooX)oF>&H)7&S4o&y>H)pp&H)X&&Fody7&4H7!Xy+oyFHXp)>poF&!Hybo!4)XS)!op>&X)+oo>X)!>yFpS&}!o+ypXS7p}++}k}Hpp+!}X}&pF+q}7})pS4F!o)p44X7F&}o7>+Xp+X&+HSR&H4p&!y+7o}F7Uo!>}}S+>)4!SI}}oyy}F}y5Ho)&}p+7MU!y)F&p++ppX+H4!&447)XFHG>34!po}porr}HF+)!X)SS+X))o!&)HSSXyC&p447ip}H+!y+HpoS}7+oy>>}pp&)+7<S>)44>X4SS:})o}>!!47oy7)FS!F&7yyX4H7FHS)R>+X4S!XSPpy)})7)XFo&7oHF7+}y+yyS}!py}7)4p!F4pS>H4)S4y&o+7}4ooo}+4XyyFopF!XHHyS}yuo>H)XSSF3o)>pFS7o}HoF7S})p)>po!7!HS%o!+)Xp)HSJS!p4H&}XyoXSH)7;yXFHH7yXS7py)o%&SHFc)&o)HS!Fyoo>F4X7)!ppS!XXHS7>yoFpH}yoS}pH)ykFSpF>)FoSHX!Myyo4F7X})+oy)H!7&}p+y7XHy9o}4)XpHH7+y!FXHBy!SBpS))97SXF+)7oHHp!}y)o&FFXv)yp)HS!Fyoo>44X7)>oQ>SX4++oyX4!yyXp7&!!++&p}Sp7&))XSSX+o)>!4SS7}))pyHH!7>}pHepyH+op}>F!pp!o9)&X)47oF>oXSH4!7SXp+Hy>HypX!H+X&SHL8)!pHySoXHLX>S+j7)Xp)S>FX)S7ySH)7HHXoy}})Hy7Fy+!!S4oS)X!%7>p4y7!Xy+oy4HXp)>p+)&!4&ppyS)+y7FXrX!!FHSXF>%kSH4XS&Xooyp&4&7H}S+yy&>4p>&K+!p!F>+p>)4!S7Xp)S>HX)7!}Sop&HH}py!XHH&!FSp7SHFySy!XQoSo4H7!X>opSy4HpH}X+S>GF)ppyS+Fp)H7)SS)FHSX!yf}yH)77y>!oS&oH)p!}7+p&y}X7HXpHS&F!)p7SSX)ZHXX)y>}HHS7}y4!ySFop)!!+7&pFyu!!y4oS4XXo)&p4)7!F&opSS4Fo)X7HSp)}HpXyy+}SHH78y&!)S7oX)o!>74p7y>XoS&oH)p!}&+p&y}!p+yp+>Q!!p)o>)FXS4}oQ>yXXH7F>yop&HH>py!o)H&FFy+X!S4oS+XX4}7))>sXX+Ho7XX!7y>po&&!H+ppyS)oSHFXTS>+4)SpXS^pyH4}7y}X4)y!HS7p!Ho}&yFX+H}7Hy&F>H)y&S)ph)FdoS>FH)oo}H+!yyFopF!X))SoF)9!!&)pSy!Xdyyo)47X>HoX>>4%+,}Xo>y2!/pX}&+o&y>&pp!7XYDy>F)&S4Fp7+&4V&y4H)7F&1+)&+>4p>y7HyL)!7)F7}+JS}XX/>p44>SSXFF4yoXp+4ycF4pH}p44!&+So}Fyk>7&XXo+>Xp7Sy47+_X}o2ypH+)&!H)!&yXokF>X4)ppF}4&!XHo7)}!o&ypHy+}}++)y&!}77S)HSS+H7OX>X)!0HXXY>>tXHS6X!+oyp4O)}}7F4y>}Sp7!o+>o}FH))S&X&I1yho}>!!47X}FF}p+}4op}!X4y&F4h)!FX^S)X+H4>oF{oH&4A&y4H)7F&*+F7yHp^H!>)yp!H7+p>H4!Sy}oo4yXH)oo}H+!y>!o+X!XH)y>}SEo>H)FSy!Xp7yo4)7!F&opyyX!7+>po>p!}p+o!)HX&4Xop>>XFHSXF&^o>y}&SpX7H?>S)>oXydF&y4H&py}7X}&+Fyp&>)4)&&y&?p>7}ao}F>4Xyo!&74}&+yy7>}go>H)XSSX+o)>pFy&!F)4o>>XX7+&oHX7!Hyop}&)!&+Fp+S>++7SXXXP!SH4XS>X{4Hy!HS7p!H+>&yFXmH!X)S&2X)Zp&y)p7HF}oyS!)yS7X4oyy4!&74}+oy&X}Spp!4+!S)y4=Syo4)7!X7opyyH!7y!o+4&XF)op!))!y&Fp+S!p)+S}y}/p>+4}+}Xpo4>!H))4}X+F=}HH++&pF4o4H&C4>))FonXF6!>+}.S>>yHo7y}?+oyyFM&}H!44!X)Fo}FHp+&pX}+4F&o4y)4F+w}F4yypFHp>!y)oSHFF1y&X)S7oX+oX7}44oN}oH4yF}S+)&4+X&SHj.)S)Fp&F!)p7SSX)?HXX)y>}HHS7}y4!y74>p)!)+HpoF)pF!&FoSHX!Oyyo4F7X})+oy)H!7&}p+y7XHSNo!))!y&Fp_y&!)+ppF>4!SpXo7)>Xo4&o4>pXyH+>yFHppp!oHS&pF+3}&S)pS4F!o)p44>wp})+!y7HppH!!+>&p}y^o>H)FSy>&w}744Ho}X>Ho7X}}7y!o+4&X!X))}>HX&+>o)X&!)yppF&o!>+4p2SXpo+y}!}7p}++}L}Hpp+!}X}S+H7.X>X)! HXXC>>,XH7XX&ooyy!&pH!!+ySoFF;X>)Hp&}>&pXyo4)7!X&opyy}}7+})o&p}47))yS+p&+F}4}!p)4&!X)H4>4)S7H})o4p&H+o!}>4p&)F!p7!p)HS!F>qpS6)&o}X!4&>7}Hoyy&op&HH}py&yFXy7}ypFSHFypSFp))!w4SSF})4oyHH!7y!o+F&XF)op}F)!&yXov4>X4)VoF>)X>+}ooX>!oySp4&p!}++p7SFoNH!X)SS+X)rp>S)p7HX}oyyXX)7X}SO(&)}o7>yX++Bo!X+!!yHp&&X!,+>pFS7o}HoXySH+p)}p4yy+FHpX!S+{S)Fp+S!FF)&7>S4)SH4XwyX}+H>7Hyo!}S)o&)F!p7!p)yS!Fyoo>44X7)!po)y!)&7p>SoF7)47+S&)HH&X}yp}>H+7Sy!!ASyo4)7!X7opyyXXS7!o+)&!H&pp!yH!&+}pp>S!FpQoX))X>4HoS>}X4Hy!HS7p!H+>&yFX3H!X)S&UX)cp&y)p7HF}oyS!4yS7}4F4yy47p4S4+yy0HHppS?))S+y4)pS>X}I}X>H&>44&7yX7F}yyH>)&&XF+pp}7+y!7X/&}F=fp>+}&SpX7H}y!HS7p!H+>&yFX+)yp))S!H&jpSp+IS}XX/>p44+lpX>H!7p}op)}}oS&X>}pF&))XSSF<o)So4)SFX&4oy)4}SS}XF}yyH>)&&XF+pp}VB+74+&S4X)qF7:)>7)X4oyyy44)4}X+FD}H77+ypFXA+!74&!4)&SyF7H}>y4>+&X>oH>&!&pH!!+ySoFF X>)+}&GFp2+7&)>YXX+Ho7XX!7yX_oHyp!i77yy+pSHF}By&!)y&7X4)!>7)>7)})oH7oH)7F}&Hoy>}Xpy>o)4SX!HpX!>+1SXF/H}!e)7SX})4!yy407H}pFw&)F+44!++S&4y4ZSyo4)7!X7opyy);7}}Xo>54H+op}>F!pp!oI)!}+SSXy};FS)4X7SX<+)7oH)7F}&Ho&)HFp&S&))&FF&4&>))}&SXXH}>y4>+&}+bF7)}y+XySFry}Hgpp!+X&S+FHp77&)!^X>p4H7&XpoS&&+4yH!{p)!+X4&>47+yS)F7=&y}p{>}4XS>&4o4>SHHp)}4F&&F}Xpy>o)FSX!HpY!!4oSpFjH}>FX)7!}Sop&HH}py!XHH&!FS_+SHFySy!Xq+So4H7!X7opSy4FpH}X+S>LF)ppyS)+y7FX;X!!FHSXF>kESH)AS!}oop>/!}7H&4oXp&F))4!4F&&o>41FS&)!0HX!oS>pHH7>}y+X7)H!pS}p)H&}FyJX>H)XSSH^o)>pFSSF>)577S})oH}X4yy}FH77!yH!&>}p)}&!+!S4FpU}>y}&7+>FH)7y!}7 }oF&ypH7)C!FH&pX!74&!4)&SyF7H}>y4>+&}+4}7)}&)}Xf+}&XH>44!oHpS)!!qy!_)HSpy(o)y+}Xop>e++x44&p4!)+FB%FFp!!+XBSX!y4)S}X^cpy4H_y}4!)4}X+F9}!+++!FX}y?F}wX!>}4&y!poFS!47S>})+)yH}op)}F+&poFX+X!&FoSFF+0y>y)ST!Xyz7y4X!7yXLoHyp!m7Xyy)+pHFXp>!=X#SXF>YW7_4XS&Xooyp&4p77&,HX7>H7)3}}+.&pF+4&!p)7ouXF)>7)}=S}X*opy+!&p+}Ho7t&F)+X&pF&P&!7)77&44SHyRo)y+!47>>_H4;44&p4!)+F3xF4+y!H4HSyXy)!>7)>7)})oH7oH)7F}&HoyH}Xpo>o+)SX!H*>!F)pSpXo)S>p4+7}>Sopy44!p)S4+}7pH!w!!p)ppSFpd+>}}}SpX4*!y)!47X}FF}y7}++>S}ot&}FXp>74)>&SFFH4>yFpo4y4H47H}o)4}&oS=}Hyp>S&)+pF!y4&!4)&SyF7H}>7X)opyF4!y74>p)!)+HpoF)pF!&FoSH>&pSSK)Ooy>Ho>>F4p7p}o4SypH+p}yS+p&4H!2)74)So4FH4}>}}){SXpo+y}!}7p}++}0}Hpp+!}X}&7!)9FSSX)oQXXW>>9}eS7>yoFpH}yoS}pH)y^FSpF>)Fo&S!X?yyo4F7XXS+o>SHXo)}!+Sy!F))4!H)!&H>o)X>XXX&7!yDF7HXy0SXp4)>{HS7F!)Ho&HF!py>o)FSXX)oo>)4!S&XpoySX4ypoX4+X7H47oy}FFHpy}Spp&)+8SSFFo)So4H7!Xy+oyFHXp)>poF&!Hyno!4)XS)!op>&X)+oo>X)!>yFpS&}!o+ypXSpo!H+X&SF+U)!pHySoXH,X>S)(7)XpoS>pHHS}}y+X7H47oy}FFHpy}Spp&)+JSSFFo)So4+%X>c4o>o4&7XXa+)%4H>o7&yF)6DF}p!74)XSFy}4+S+Fp7+&4G&y4H)7F&i+)&+>4+py7)+o4H&g4>))FoIFS)y>pXH7XX&ooyy!&7p}7FA&F}y+X&7X&&4F&3y!7}}7)>)o}SS4p74X!+)#44yop!FH!&yH7#474)y&7X4H4>y)/SHXpH5y)H+)4}>477y}p)3}}+(&pF+4&!p)7oMXFp>SXX>+&X4o&yy47)}!oF}y!!&p&SXFoS)F}pS>X}}S7>)4p7FX!7yX7+4c4Hy7?}H+p1^F)B+74)>p7!y447q)}S:Xpo+p&4F7pXr+X&X4h)Q!))+o4F>+KS4}4&&X4o)>F}x74>yoH&HHypyy!+7y>F)2)!HFoS)FFI&So)H3XXo+o>)HXoHXXo>>kHX7lS}oky7HX%)&!)y&xFHWp7k44uyXH+HyyHyo!}yo7&4>4py}7)4o4Fyp7>4}4S>!po+7!Xp+&})oFy&!&pF}++y&yHS+!!y+7S4!!Iy!R)HSpyN_M>!Ho7pXuF}&+})pX!S)+S)!op&!H)SSyF&H4>+Fp7H}!oy&oH4pX!)Ho&HF!p7SoFXSX!)p7&S4o7HX>oySX4+po})+!>&Hppyy!+yy7F444!y+7S4y4/y!744+4Xy37y4!47yX7+4L4Hy77!4X4&yH^pH!pXOS)X+H4>>F75y>K4Sp&447&}yo71}Hyp>S&F+pp!+DF7}+lS}XX(>p44X7F&}4p7&X7p+S4o&&4F)pFS<))S+y4)&S4F>S7ycu}>K4p7+&&opy7!<pFy&HXp&!}4}}Y)}SXF>H4>X4F+}X74+Sp}Hoy&9o}y0Hpp+S&)+&HH74&!!FXA&>44&SSXp+&}4oHpCH)p+S4+>>7}y+P&SX&&4F&hy!7}}S}Xoo!yX4}+Z}F4S&oFHpX!S)+S)Fp+y!+4HSXXScTy)4puSXF4)>7}S+)yH+X7yH}kH}7)yp!FSoo>)4!S7XpoySX)7po})+!y&Hppyy!++7pH>)!&pFoS)!XU4yo)>7X>Ho!yS4ppH}>+y&X})p!!S+pSHF}3y>X4HSXXSp=y)4pxSXF4)>7}S+)yH+X7yH}?H}7)yp!FSoo>)4!S7XpoySX4Spo})+!y&Hppyy!++7pH>)!&pFoS)!Xz4yo)>7X>HoFSy4ppH}>+y&oFHpF!yHX&SXoi+>XX}S!XS_77HXy7yyyo+Sp4>+!ypHo&)}Xp4>o+>SX!H/!>S)p7HX>oyyXHH7X}So^&)Hpoy!o)H&XFS7:>))ppSFF))!7XSo)>HoXSy4}pHX7+y7!H&7SS}++&yH}p)!+)+o&X),F>&Xo7FX+oyyy4So!}yo7&4}!pX!FX}SoXH1X>S4+7)XpL4>&4yS7&}oF7)47+S&)HH&XH&po!yX&&>!X yyo447X>HoX>>4boH}>oFypHppoyS+p&+F}+S!p)4&!X)H4>4)S7H})o4p&H+o!}S)o&)F!p7!p)ypXH7oo>)4!S&XpoyS!4+{pX>H!7p}op)yX+4SoH>;X&H)!SSFpoH>>4y7X>)g>yS4ppH}}+y&X}H77yy+FJH!y+S!pF)&hXS1Fy)Xo7H}!oy&oHFpX!)4p&HF!py>o)4SXX)oo>)4!&&XpoyS!4+cpX>H!7p}op)yX+4SoH>BX&H)!SSFpoH>>4y7X>)o!yS4ppH}}+y&X}H77yy+FuH!y+S!pF)&5XSJFy)Xo7+>Xoy&oHFpX}S)o&+FX+)!!)S&7X)44>H4!S>yo4XyX}XS7>yoFpH}yoS}pH)yOFSpF>)FoSHX!xyyo4F7X})+oy)H!7&}p+y7XHSio!))!y&Fpgy&!)+ppF>4!SpXo7)>Xo4&o4>pXyH+}y!>477!X+4ypH7p77})pS+X})S>p4+7}&}opy44!p)S4+X&F>}+x&>H7S+y4p&>44)SFy(5:>!Ho7pX%F}yp})pX!S)+S)F!_S!p4)o4F54&>SXP7)y!4p7tHX+y&X+Xy&HopyS&+p&7>a)}S)F}^)XFH}!q4}7XX>F4>7HX7}}p+py}>}py!>X&O4!7p+&p4++4F&o4y)4F+eX o!&oHp76S}+pp)FXCS>+4)S!XStpy)Fp7H}!oyyp}c7&&}+!p&Hp)H&yF&S)>X4)>F)+SyXyVSS!4yS7}44!y44SpH!)+49&F+)}}{F.So>}pXSi)!o}XH4oyHH!7y!o+F&XF)opXSoXpHH7+y!FXHey!SapS))D7SXF+)7oHHp!}y)o&FFXd)yp+FS!Fyoo>44X7)>oe>SX4++oyX4!yyXp7&!!++&p}S^o>H)XSSX+o)>pFySo}HoXyS4=p)}p4SyF})77&SF)pHFX+y!}4H&7Xy)!>>Fp7)}!o7ypXS74y)+!&SHpDH!})ySX!HI!>S)7oH>yoySX)noo}H+!y>Hpoy}4)H&XFS7w>))ppSFF))!7XSo)>HoXSy4}pHX7+y7!H>op!))!&7FppSS}+XppF)4&>SHo7+}XH}y!HS77&HHy&y!y)X!yHyyy>H{FSyX)o3FS)y74XH7FX!o+p^HXoy}7F4&y>}pw!oX&&!!Xao7oXXd!XS+oy)HXo)}o+SyHF)+o!)+F&&!op>&X)+oo>X)!>yFpS&}!o+ypXS77y)+X&SF+%)!oHyy!FSoo>+4Xo}X44,yo}47FySH)p4Hy+p&yo)poH!+X&(FoS+FHp77&4)wXX>4Wy)H!S&}p+4yH!k7Syy+HNH!y+S>o4HSXXy)X>HHoS!}X4HyX4>7q&xo77yHF)H&yHS&p!)pm>S)F7)>ot>SX4ypo}4+X7H4X7>XA+Xy9>}7c}7+XS)!!my!J)HSpy<Ge>!Ho7pXIF}y7!47&&&+S#4H))&!HX4So!SooyH4X7S}++)ypXyS!X)Hoy>}Xp+SoFXp!Fy+p!&4!S+Xp)SyoHH7X}S++&)Hpoy}+)H&XFSp^>))ppSFF))!7XSo)>HoXSy4}pHX7+y7!HSso!))!&7FpZy&X+S7oX)o!>&4p7y>!o+Sp4>+!ypHo&)}Xp4>o+>SX!HjF&y)p7HX>oyS!)Vnp}H+!yyFop4!X))poFHh!!>Xo.XXX))!&FS7o}HoFyyXXSf!o+)&!4&pp!yH!&+}pp>S!FpOoX))X>4HoS>}X4HyFXy7p!H+>&yH!)4})Hyyp>}(!>S)77)y4oHy!4>+oyX+XpX!)pXyXoX5oF+)X&pX&&!!X){So4+SHF7H&y)XX7>yr+X54H&7SS}+Hp)HS)SS)FHS!XS^py)FpSS}!ooypXS7p}++}7SHF+)}7FSM)!H<X&y)}7HF7oyS!4>Lp})+!y7Hp7SyXoH&!FSp7>)X4&U>&.SSV4+o!>p4KyX}y+XFp4SyH})+&yS+7&oH>4}!pF)SF>&tpyH)}7yXUoop&4!oX}oFopX}!pS>o))SX!)ro>S)H7)>oo)>F4&+&X>4Xy+!o+Xy!+y7pH&;!!+)ppSFF))>X4SST})4oy)4F7&&&+)yFH&)&!)+F&&>&;)!}+SSXy}by>>}&7+>}4y7y!}SG}}+Xy>>4pX!FX}pP!}+7&y)7onF}YE>p4++&}H+!yyFopF!X))7pFHh!!y4oS4XXo)7o4)7!F&opSS4p74X!+)P4HXpFS}HmpX}p+y!7X2&}F:%p>+}&7H}!oy&oHFpX!)4p&HF!py>o)4SXX)oo>H4!Sy}o/4yXH)7p>Sopy44!p)S4+4ySFH%)!4X&S+>}KoSo4H7!Xy+oyFHXp)!o+)&!H&pp!yHX&yXop4>XFH&7!yqF7HXy_SXp4)>,HS7F!)Ho&HF!py>o)FSXX)oo>)4!S&XpoySX4ypoX4+X7H47oy}FFHpy}Spp&)+sSSFFo)So4H7!Xy+oyFHXp)!o+)&!H&pp!yHX&yXop4>XFH&7!yDF7HXy*SXp4)> HS7F!)Ho&+}Xpy>o)FSXFSoo>+4X3)X!oS>7H)+4XKH&yS}Kp+&!HppuF)t!!&)pep>ye+&p)>o!>p4oy)XX74!oo>&X}HpFyy+pSHF>8y&!)oppXHo!>yHo74}X+)7oHHp!}>FopXFX+)}SHSSoXHBF>yFXSo}oo)y!)&7p}y4!y+Xp7>&!HppoF)+X!44o&>XX)H>!4SSp}Ho>yyHXo)Xo<y7!H+op}>F!pp!of)&X)47oF>oXSH4!oYXp+Hy>Hy+}}y)o&4FX)X&o))&FF&4&>))FS&y&o)>})S7X&}oyy>!&p+yFHypy>}7D!})X&>y4;X>F}}S7F+)p7)}o+bX}oUypH+)&}&+H&SFyp&74+&b{F&4}>oXESFy}o>7o4&7H}S+yy&>4p+ypF}p!H!x4!p)}Syy&V>SF})oy&}o,yo!&7p}7F^p!}&+X!+X&&4F&Vy!7}}SyX>H&7)X}o)X7F}>wH}pX}>X4&XFF4}!FF+pp>FH4!&447)XFH9>>H)74}y+yy4>4pX!FX}&FH++pS)}4&&X4o)>F}ES7>yHX77}opF}++y&yHS+!!y+7S4!!bS744+o}F7H)SS)p7+X}opy}!L7}}Fop&y!o()!}+SSXy}aFS)XpoF>!oy>7H4)4}yoJyHHp);!))+o4F+77&yFxo1F}:k>p4++&XF4X>&Fo7!!XHH&XH&po!yX&S+!Xp&yo)&7X>HoX>>4a+a}Xo>yq!RpX}&+o&y>&pp!7XVq&!&ZF7g)}SrXpo+p&4p77&)H>>>}Xp+S&+4&&Fyp77})+SyF&o)y))&+&Xpo7p/}>o>}FFuy}HPpp!+X&&&!Xx7So4FS+Xyoy>SX!7yX7+47!Hoop!4H!yyH7p4!y)4o&F43+!y4X=SXpo4>!H))4}44p&F}!py}7)4o4Fypg!H)potF})y>pXH7XX>o3pjHX7>}#FEy7}ypFSHFyo}Fp6+>}}}SpX4C!y)!474XS+H&)H4)&!)HX&yXoNF>X)S7oX)oXS)4!7SXp+)p4HHp!}yFopXFX)X!X+>&I>jcX!&)oSyy&f&>H4S7yX&F4y>}s7!y!+>ySHF44}7Hpr}>})p7&44SHyGo)y+!4o0>toFi44&p4!)+F6?FF+y!p4HS>XyooyH4F7y>XoS&oH+pX&}+!&SH7)H&y)y;yFypD!H)poLXF)y>pHH7>}y4!yoXppH!!+ySoF4gX>)FoSHX!T>7oXX7X>)ISSSHopH}F+y7XHoso!))!y&Fp<y&!)+ppF>4!SpXo7)>Xo4&o4>pXyH+Xy>H#)3!X+>&U> 5X!>)Qo.XX9>>q}R7XX>oepGHX7&}o+yL&Hpp7SOFXpp!Fk>7&)4S&Xys7p}4y7>&&++7}}y+FS}o/&}FXp>74)XSFy}x7S+XXo}&4q&y4H)7F&U+Fy!H+)%}SHy0o!!)cSoFgohX}_!p44X7F&}o774}X+)S4o&&4F)pFSJ+>SSFpoH>}4y7X>)o!yS4ppH}>+y&X}Hp>}F+p&pFo+S!p)+S}!SP}>o4!7XX}H_yFXS77}oo>M}HH+)&&F&z)>er}!!}4SXXFH}>HX+^pyyH)pC4}70}p++h&HFpp}s)XSXH=4v>)4++4Xop7Sy}4+3X}oTypH+)&!H)!&yXoTF>X4)ppXHo!>yHo74}X+)&oH)p!X&+p&y}!p7}>))S)FH)o>))FS&>oo+SX4ypo}F+XySFop+!XH)&!FSp7>)X4&2>&OSSE4+o!>p4ly)H!7&}pHppyH+op}>F!pp!oN)&X)47oF>oXSH)XS>FsoX>?!}S<X7oX&)}!py}v+H&p>0T!>S)p7HX>oyyXX)7!}Sop&HH}py!X)H&XFS7<>))ppSFpU+>}}}SpX+o}p}H+S7}X+Xy!}HpX}>+?pHFXp&!o)yo&F&gH>S4yS&&4o>7oH+7HX7F&y!}X+q&mFXo4F&pS7})yS>y&*!SFX)opyXF4>&H4p)}FFry>F)p4!y)y&4y4xX>F}}SHF+)p7}!4S&}4+)yF!_p!!S+pSHF>zy>XF)S!XS pyH4}7y}X+HyXHSS=!)+p7SF+77!X)X&!!H#X!>)I;HXF)y>pHH7>}y+o&HHFpyyX+SSoF+0XS})4::Xo44>FXSo)y4oXyS46p)&)HpyF})77&SF)pHFX+y!}4H&7Xy)!!y)7S4Xyo4p&447+Xy+X7SHpp4}!))o4FSoo>)4!S7XpoySX4Spo})+!y&Hppy!!+ySoH41X>)FoS)FFd&7&4)SFX&H&y)4F7&&&+)y}4SpXS}+y&>>&))&7F4SFy}p:>}4XS>&4oXyF!}opy!4p7yH7)%}}+^&pF+4&!&)HSSXy3&p44yqp})+!y7HppH!!+y&p}yfo>H)XSy>&^Syo4)o!>pop7p4p74X!+)=4HXpF&z)oSHFXzS>+4)SpH>)X>yHoS4}XHX>}4D7p}+F&y>}Xp+SoFXp!Fypk!H)pohF7)y>pHH7}}y4!yy47p4y!+yy7F444!y+<&HFp4N!e)!7oXp{;p}47+4}HH&y4!47)&&+HpHFFp!!+XlSo!y4474X}+}XZoop&4p77&NH>7>H!)r}}+3&pF+4&!p)7oBXop>SXXP+&X4o&yy47)}!o)H&XFSA+>))ppyF+oH>X4SS_})opSS4Fo)X7HSp)}HpXyy+}SHH7sy&!)y&%FH,p7s4F;yXp+Hy>Hyo!}!4p&HF!py>o)4SXX))o>H4!S>yo4XyXX)7H>S+o&HHFpyyX+!SoF)u!}&)pSy!!:+&p)>o!>p4oy)XX74!oo>&X}HpX}>+B;lFXp&!o)yo&Fp 77wX>6>>XoHp&447&}yo7d}Fo0H!X)SS+X)np&y)o7HXXoS>CH)7p>SoF7)47+S&)HH&X}yp}>H+7Sy!!My!L)HSpy o)y+!47H>7H}/44&p4!)+F/qH> )!4)ySyF4H4>X4F+}X!M+Sp}4)4X&+4&)HF)v!FHy&pXHg>>y)4o4F))y!p}}7!}So7&)!4pH!!+>wo!X#XSXX)SX!XpX7o4+oX>pH&>!XXo8yo++yH47)&!)HX&>!lvX74)&&Sy}zHS))SoSy)4Hy!HS7p!)4py}F!po!pHS&pF+;}&S)F )F74S7)XH7X>yo}&H47pyy!+7y>F)#)!HFoS)FF2&So4+xXXy+oyFHX7S!o++&X!}p4&Q)og4FF)SS)X4Sy>p4y!y)7S4Xyo4p&447+Xy+X7SHpp4}!))o4F>+p>)4!S7XpU}7})X.pX)H&ySFop+!XF}&!FSp7SHFySy>y4X>yFy&yyHoF7y})+TXS4yp4}HpF}!++eMFX+y!7X4Syy}{<>o}&S!>Xoopo}Xo!}S)o&)FX+)}&)S&HX))o>))FS&>oZ>SX4++oyX4!yyXp7&!!++&p}Spp!+)}o}Fps+>}}}SpX+o}p}4p7+}}F}ypH+p}S}+p&+F}4}!p)4&!X)H4>X4F+}>74pSEH+)4X&+4&)HF)d!))+o4!>)>&&)7oqF}P(>p4++&Xpo7p,}F+HXFH)&F>}7u!})X&>y4%4!S4H7)X4H&yFXX7y!o+F&X}H7i}!)o&pH.4}}CF)SXXSp5y)XoS&XHoSyy4&)4}44p&F!!+7S&+&&HFS3y!&}4S7!ppSyoHH7>}yH&ySFopF&!Hp&p!&Jo>H+_Sy>yp)So4+SHF7H&y)XXopy(o4G4H&7SS})oSHHe)S!p4)ppXFo!>y4p8SXpo+y}XS7}}o+!&XH})b!>HyS+XH)y>y)yS>y&oFp4)&74})oFp:H!pS}}))7pFF44!+HpS)X!5&>pFSSpX4k!y)!47+>po>p!}p+o!)+F&&!oE)!}+SSXy}ooyH4X7S}++)ypXy+&}y)o&4FX7+ypF}3y!H3X!>)doAXXx&>o4y+&}H+!yyFopF!X))7p4S7X&H)X&>F94/>X)&SoXyH&>p47+V}F4>7X}>+&S}o:&}FXp>74)XSFy})pS!+7AyX7HK>}4:7p}+F&&+HH77S&+!pX!S)&S&FSGIy&o4>H}b7)}+F47>}yS>yX+>?&H4p&!y+7o}FtVo7&)FSpF&9X>F4F+A}Xo>yv}Hp>}F+p&pFo+S!p)+S}!SooyH4X7S}++)ypXypo!H+X&SHl#)!p)S&pXHp}>y4XtHF7)y>F}Hoy>Sop7)4ZpS}F))poHFT!!y4oS4XXo)&p4H7!Xy+oyFHXp)yoo>7XH+)o&XH!&y}pp&>!)+Sp!SooyH4X7S}++)ypXy7+!H+X&SHL%)!pHS&F!)p7SSX)YHXX)y>}HHS7}y4!ySFop)!!+7&pFy+X!S4oS)X!V&>p4y7!Xy+o>4HXp)yoo>7XH+)o&XH!&y}pp&>!)+Sp!Sh+yH4X7SXk+)ypXypo!H+X&SF+/)!pHS&F!)p7SSX)5HXX)y>}HHS7}y4!ySFop)!!+7&pFy+XS})XSSFYo)}7Fyo4yX4o>>XX7+&oHX7!Hyop}&)!&+Fp+S!+4HSXXSYgy)4p(y}o+HyXHSp+!)+p7SF+77!X)X&!!HVX!>)clHXXN&>o4y+&}4oHpv4>p)XQoyy>H>44!y+7S4!!Ay!744+4Xyqg>H4p+k}!+SypFHp>!y)Xp)F!cS!p4HS}XyoX7)4!7SXp+H>}HypXyH+Xy>H#)C!X+>&_>v(X!>)hoeXX*>>G}e7XX&ooyy!&7p}7F_pH!++F!>X&&4F&fy!7}}SyX>H&y+XFo)yHH}d44&p4!)+F0VF)m+74F!?>!&{779)}S2Xpo+p&4p77&wHHp4}Fp>S&+4&&Fyp77})7SoF>H}>pX)7X}S++&)},p)!!+&&pF4pHSW)!SSFpo)&p)>SyX44oy)4F7&yo+)y}4SpXS}+y&>>&)o&s++ppX+H4!&447)XFH{><4!po}po0_}H7)4}>HS&7Fop>7})Hj)>&4&Sp}57}X!F4yXHF)}}HH+p>>}7b!})X&>y4gX>F}}SH>+)p74!4S&}4+)yF!lp)!+X4&o}7+ySoX{&}F/(p>+}&SFXp_vyXHXSO&<+)&+>4+yy7+!o4H&D4>))Fo{XF)y>pHH7>}y+o&HHFpyyX+SSoF+qXS}X)&>!X5+7oXXn!Xy)p>&H!7+}p4S&+47pX!X+!pHFXp>!6FHS!XSlpyH4>7y}X+HyXHS72!)+p7yFo,H!X)SyZX)_p&S+pS+F}0p>}}kS}XF9pyy}op)}}oS&X>}p7&))XSSX+o)>!4SS7}))pyHH!7>}pHnpyH+op}>F!pp!oQ)&X)47oF>oXSH4XS>XcH;yX4&7o}yF&&HF!py>o)FSXX)+p>H4!Sy}oo4yXH)ooX>4Xy+!o+Xy!+y7pH&W!!+)ppSFp(+>}}}SpX4R!y)!47X}FF}p4}47SS}o#&}FXp>74)XSFy}4)!+FpS!&4/&y4H)7F&k+!&SHp*H!>)ySXXHIX>S)v7)Xp)y>pHHS}}y4!y+Xp7>&!HppoF)+X!44o&>XX)H>X)&SoXyH&yHH!7y!o+F&XF)opXSoXpHH7+y!FXHEy!SrpS))(7SXF+)7oH)7F}&F&&)H}7S!XX}&7!)2X>S4+7)>oiFSX4Spo})+!y&Hppyy!+SSoF+)!&p)ppyF+)H>!4SS7}))p>FH!7y!oo4&XF)+o}>HX&+>o)X&!)yppF&o!>+4p;SXpo+y}!}7p}++}W}Hpp+!}X}&pF4p!>)}4SS}oo)y!477p}y4XpSH!pS}p)H&}FyeX&H)X&>F04{>X)>S3yjoX>&4o7y&&opy7!Z+H&XH}p)FF4}}{)}SXF>H4>X4F+}>74}S3H+)4X&+4&)HF)8}>))&4FyRy!4}4SXXFH}>7X4oHyFF4>&H4p)}FF3yrH!to!p+%o}F744!SFS7o}HoXySH+p)}p4yy+FHpX!S+QS)Fp+S!FF)&7>S4)SH4XQyX}+H>7Hyo!}>4p&)F!p7!p)HS!F>_p&y4o7HXFoy7&}XS7>yoFpH}yoS}pH)yvFSpF>)FoSHX!Oyyo4F7X})+oy)H!7&}p+y7XHy6o}4)XpHH7+y!FXH1y!S(pS))A7SXF+)7oHHp!}y)o&FFXk)yp+FS!Fyoo>44X7)>oT>SX4++oyX4!yyXp7&!!++&p}Sp7&))XSSX+o)>!4SS7}))pyHH!7>}pH1pyH+op}>F!pp!oL)&X)47oF>oXSH4!7SXp+Hy>HypX!H+X&SH3u)!pHy&pXHp}>yF!S+!p<>7!Xpoo})4Xy4Fo7>!XHH&F}ypp>H)>Sy!!Wo&p4H7!Xy+oy4HXp)yo+H&!H>)o&X)Xp)HS+S>o4HSFXy)X>oHo7)}!?&ypHyo!}7o>&)F)pH&o))&FF&)o!p)7o}X!oS>pHH7>}y+X74H!pS}p)Hy}FyIXSX+}&8Fp8+7&)>YXX+Ho7XX!7yXvoHyp!q77yy+pSHF}dy&!)y&7X4)!!y)7S4Xyo4p&447+Xy+X7SHpp4}!))o4FXPFS?4o7HXXoSy+H)7p>&+o&HHXpSXv))&p!p7b!})X&>y4_+&p)>o!>p4oy)4}SS}XF}yF})pX!S+5S)!oV)!F)&NoX),F>&}&7)X}2SyX!}7}}o+!&XH})f}7Hy&pXHm>>yF!S4FSoHy)44+&}F4XySFop)!!+&&pFy+!!S4o&>>!)p>pFy7+>Ho!yS4Fp)>p+F&!HyEo}4)XS)!oq)!F)&o&X):F>&}&7)X}JSyX!}7y}>F&&+}}+)&FF+o4H&E4>))Fo_X)o+p4X>oy>&4Xy>!&74}&+yy7>}p+!y+&S)X)p&7&)pS7ycoFS&X7o>&&o4y&Hy77S})oSHFX1S>+4)SpXSApyH4}7y}X4)yXHSSJ!)Ho&FH+py!y+Sp!Fyp7>4F!SS}oo)y!477p}y+!ySFop)!!+&&pFyCX&))!SSFpoH!}4y7X>HwX>>)J7XXVF}>R477X!)H!&yH5pH!pX6S!XSgpyH4>7y}X+HyXHS73!)+p7yHpaH}})yp!Fyp7>4}4SyFO/H>p}?7)}+F4y>X7++ySFZy}HKpp!+X&&pF745SFXo&F>)oFp})L7}}Xo>U4H>7S}FX4&4}p)X&7X4_X>+H4>&)S+}Xyo>p&}+oyy++F6}4Ip}!X+>o4F4pS>H4)S4y&MH7}4>oMX!H}yH}Q7}&}o7pzH/)}!pF<&)!!J4!S4H7)X4H&>&XXoayoooy&HX7e!)X4&4}7)yS)XxS}F!H4>X4F+}X}4+7>!}SW}}+Xy>>4pX!FX}&}!+)}7}+ZS}XX{>p44X7F&}4p>+Xp7&S4o&&4F)pFSD+?py>X)7So4)S}FSoXp}4Fo)XX4SypH+p}S}+p&4H!V)74)XSF>y4)S4)g+}F0o}yX4>)4X7+Xy}Hppp}}X}&yF>4&SHF}S4y&J4>&4yS7&}Wp7)H4oyyX+p{&FXpF!&X&S+X!p7>p)!S+yV4y7S4HoH}>oFypHppoyS+p&+F}+S!&F)&!XSN!y)Xo7X>XJS&o4}pXyHoXy>4CpX}mX}yzH7pX>)F!SyFO{H>p}kSX>yo&7)XppXS4+py7F444!>4o&FXXKo!>}}o)yH,SSS4p7+}}F}ypH+p}S}+p&4H!9)74)XSFy}44S+FpS&&4_&y4H)7F&.o!7yFo+H!X+&&oFy4&!p)7oC>>p>SX44+&X4o&yy47)}}7H)&X}SpH&)+7pSFpg4!!4)+4XH)py+H!77}p4Sy4})pF!So{S)!opF&X)&PoX)QF>&}&7)XFo&p&H)7F}&F&y&}Xp4SoFXo4Fyp7>4}4S7F>o)y)4Hoo})oFy&}opH!!+ySoFFMX>)HpSHX!wyyo447X})HoyHH!7y!oo4&XF)+o!F++&yFypS&!)y&7X4)!>y)ZSHXpH_y!HS7p!H+>&yFX+)!!)S&pXH*}>y4XoHX!oS>pHHS}}y+X7HHX7>}<Fw&XH&po!yX&SHX!#yyo4F7X}))pyHH!7y!o+4&XF)#o!))!y&Fp^y&!)y&7X4H4>y)774&4oy>7H4)4}yoLyHHp)#!))+o4!})&&&)7odF}u=>p4++&Xpo7p1HFo&yXH}p!>}7w!})X&>y4MX>F}}#&>p)7Sy47+WX}oxypH+)&}H)!&yXoN4>X4)ppXHo!>yHo7F}X+)7oH)7}XS+X8}Hyp>S&Fopy!4+p>+}4&&X4o)>F}US>})o4yyHy74S4+X&F>}p7&+F4nFy4p&>44)SFyz/,>!Ho7pX:F}yp})pX!S)+S)!op&!H)SSyF&H4>+Fp7H}!oyypXS77}oo>T}Hp+)!XFS/)>4Cy7})ISoy&*!7FH7ao!4o)SpFSi7}HF}y7!&(o>H)XSy>y_y!744C!X7I>y)H)7Hyo+)yFH&+o}p+7U}F!QS!p4HS>XyoXS44!7SXp+H>}HypX&Xo}y_Hpp+S&+>pXF+4oSXF!SyFfsH>p}dS7>yop&HH}pyy!+yy7F4+!}y+7&4FyM47&)4S+FyoXSS4p74X!+)j4H47S!H))&4>&=)&X)y7oXFoXSH)%S!}oop>.!}7Fy)+!&SHpx)&o)+&HH74&>)FXSyyo4X7}4p+&}4oHpn4S+>>+4HS}HX+)yoH+&!>&i+SB4H7!Xyop7p4p7+}}4SypH+p}S}+p&+F}4}!p)4&!X)H4>X4F+}>&4&SDH+)4X&+4&)HF)L!))+o4!})F}>FXS>y&h4>&4yS7&}o}yoH!pX}}FYy!!&p&S4+>3&FH44>FX&7)y4;tSS4}7o}!+Xy}!b77yyF4pHHHp8!y)4SXy}8FS+XpoX&4o&>S!}7y}>F&pH}}+)}7X}y2F}2X!>}4SXXFH}>FX+:py)F4>&H4p)}FF &)F+44&yo7pyFF41!})rSpX+H&>>XX+)y>4SypH47!!)X4&SXomX>XF)&u!Scp>+4}+}Xpo4>!H))4}X+Fpy!)+4yp+>o4H&14>))FoLXFm!>+}?7X>y4k7!}AopypF8&}H!44!X)Fo}FF)4S}}}&;X}oX>>!47p>po!&!4SppyS)+y7FXwX!!FHSXF>1wSH)vRy}o+HyFHyo!}>oSyF>4pyypFX(!F>)l!!4!&7Xpo4>H}NS.>yo}p+}7pH!!+y&p}Spp!+)}pSX+p7>X4XS!>HoX>>4soH}Xo&yoHy)&}&HX&SXo%+>XFHSFF!B+7c4Xwyy)HHyF}&7H!Ho>&yHxpoS&+&pXF4)7S>4o7HXXoyS!4yS7}44!yy47p4S4+yy7F444!y+Z&HFp4j>)4++4>f)a>>!4S&}4+)yF!_p)!+X4&+}7)yS+Xk&}FCcp>+}&SFXpN yXHXSv&J+)&+>4p+X7Hyg)>*p}!x)pS+y&o+SX4opoXL+X7HH>7F}p+p&o}Spp!+)}pSFH))>XFS&pX+n}>p4}+6X}oF>pHy+o!)+}ySFX4}!7F)&SXS(&y)Xo7)XFo&p&H)7}XS+Xe}Ho+)!>HS&&!)h}&S)+C)F})S>p4+7}&}opy+H})}}FH)y7!S))SK)X&>Fi4%>X)&SoXyH&>&4H7S}yo&l4H>+3}!H!&SXoV)>!)7SpXy)X!SHo7)}!o&ypHyo!}+4py>!!+p&o))pXF4oo!>4XzHXF)y>pHH7>}y4!yoXppH!!+ySoF4VX>)FoSHX!/>7oXX7X>)jSSSHopH}F+y7XHoAo!))!y&Fp#y&!)+ppF>4!SpXo7)>Xo4&o4>pXyH+!&SHpuH!>)ySX!)p>>S)p7HX}oyyXXHS7>yoFpH}yoS}pH)yEFSpF>)FoSHX!{yyo4F7X}))pyHH!7y!o+4&XF)#o!))!y&Fp_y&!)+ppF>4!SpXo7)>Xo4&o4>pXyH+F7yHpfH!>)ySoXH_F>yFXSS}oo+yX}}74yf+op4HF+S&)F4&XFSpe>)X)0pFF))!7XSo)>HoXSy4}pHX7+y7!HXpFS}+F&oH}4}>o4HSXXSo+y)4pS4X&oy>7!}7Fy)o7pS!)+H!X+&&oFy4&!>FXSy}oo4yXXH7XX>o_7HHX7>}OFz&XH&po!yX&SHX!cyyo4F7X}))pyHH!7y!o+4&XF))X!))!y&Fp+S!p)+S}y}zp>+4}+}Xpo4>!H))4}X+F{}H7+4&HHBo4H&*4>))FokX)o+p44>&7>y4S7&!&74}&+yy7>}p7!o+>o}FH))S!XXo}>X4Xp}4_7o&&opy7!ApFy&HSp!>&p4!&)y&7y}ooyH4X7S}++)ypHS7p!H+}&yFX+)!X)Sy5X))o>F)+SyXy3SS!4yS7}44!y44SpH!)+4R&F+)}!oFoSHX!9yyo4F7X}))pyHH!7y!o+4&XF)Bo!))!y&FpUy&!)+ppF>4!SpXo7)>Xo4&o4>pXyH+!&SHpaH!>)ySX!)A!>S)p7HX}oyyXHH7X}S<N&)HpoS}FH)y7!S))&H)XpyF}oH!74yN!X>)py)H!77}p4SyH})p!!S+pSHF}Vy>XFHS!XS877HXy7y>Xoo7oHHp!}>+p7yHHvH!X)SyEX)Cp&S)FO)F74S7)XH7X>yo}&H47pyy!+S^4F)6!!7)p=&FpoH>}4yoy>H97Sy4F+Hyy4Syp})7C!S+FS)!oN+&X)y7oXFoX>SHo7+}X4)y!HS77!)F4yD!&pS&Q)+=!!p)C>)4!S&Xp4p7y4+%pX>H!7p}op)yX+4SoH>JX&H)FpyFpoH>>4y/!Xo)pyHH!7y!o+4&XF)+o!H)!&>>o)X>XF)&S!SooyH4F7y>Xoo&oH)p!X&+p&y}!p+yp+>P!!p)o>)FXS4}oc>yXXH7!y op&HH>py&}+ySoF4(XSXFoSFF+wy>y)S !Xy?7y4X!7yXtoHyp!sp!!S+pSHF>,y>X4HSXXS8cy)4pbyXp+H>}Hyo!}yo7&4>4py}h+H&p>rW)>+}4:!>))&SX4>+&X4o&yy47)}}y+>#&F++F&)FHA+y4p&>44)SFya.>y)447y}yo4%4HXpFS}+7p+!H+p74+&S4X)cF7M);S!}oop>a!}77&4o>7SH7po}>X}&H!))&S&F7obX}3!p44X7F&}H+7+Xp7!S4o&&4F)pFSh))S+y4)p&1FySHyNV}>=4p7+&&opy7!a+&y&+HxNH}p_!p)+o&X+,H!7}&7X>X477}}&oyyyF&&4HH)b!))+o4!p77&y)HoCF}Tk>p4++&}+4XyyFopF!XHHy>}y=o>H)XSSF;o)>pFS7o}HoF7S})p)>poF7!HSEo!+)Xp)H>VS!p4H&}XyoXSH)7nyXFHH7yXS7py)oP&SHFt)&o)F&+FyRy!SF!SyF7o4S!4>,p})+!y7HppH!!+>&p!2p&S})!E&F74HSyX&Sp}Ho}yy}y+XX74yyF!H+yyS+pp)HC1S!F4)uoXFG+>y4ySS>!oy>7H4o!}yo0yHHp)T!FHy&pXHN>>yF!&7!poHy!4ypo}4+X&)}opH!!+>,o!XYX&)+>pSXooH>F4yrXF7+oy)H!S&}p+y7!H+op}>F!pp!oL)&X)47oF>oXSH4XS>XkHjyX4&7o}yF&&HF!py>o)FSXX)oo>)4!S&XpoySX4Spo})+!>&Hppyy!++7pH>)!&pFoS)!X24yo)>7X>HoX>>43+Y}Xo&yoHy)&}p+7fT!X+&&X)oo&F4I&>y)7+}Xyo>p&})SFy)oSi}4ep}!X+>o4F>+p>)4!S7XpoHy!4>7p>y+o&HHFpy&&+}84FH)}!>Xo8X>}/yyo447XyXH)y)4}SS}XF}&oFHpX!S)+S)Fp#S!p4HS}XyoXS)4X7SF3+)7o4>oX}+FopX}!pyyp+&S!F+Op&S)pS+X}H}>p44S!})F4yXHF)}}HH+p&>}7M!})X&>y4p7>X)}SpXpk}p}4y7>&&H47FHo)&}4+&&yH74}>o4HSXXSo+y)4pIyF!s)7o4>oX}+FopX}!pyyp+&S!F+;p&S4+&7XXoX>!XH7XX>oh7HH!pS}p)H&>Fy1X>H)XSSF/o)>pFySp}He}yyX!7+>po>p!}p+o!)HX&4Xop>>XFH&XF>pN>X)N+}Fzl7>XH)o!}yoWyHHp)t!!)S&pXHz>>y4XD)FopyS!4+KpX>H!7p}op)yX+4SoH>NX&H)X&>FQ4D>X)>S{ygoX>>4A+.}Xo>yN!{p>}F+p&pFo+S!p)+S}!SooyH4X7S}++)ypXypo!H+X&SHcK)!pX)&pXHp}>yF!&yF7u4>y44+&X4o+>yHXoS}p+4y!F)44!4+SSHX)f47&4+o}F74oy+4HS7&&o!7X}P+m&+X4&&HS4}!y)>o&>F)FS))S+}FMo}yX4>)4}X+FR}!)+4yp+!o4H&v4>))FouX)o+p4XtsiX!F4>&H4p)}FFn&FH!p+S{)ypy>+)&SsFp^py.o}>!!47X}FF}p)4+op}!X4y&F4f)!FX8SF!y2pyH4>7y>!^7SpHHp!}y)o&4FXm)&o)HS!F>4oSX4XE)F>)SyoHH7F}y4X>7Fop)!!o&&pFy+!!+Hp&>>!)pSo4)8XX4+o>>HXoH}>oFypHppoyS+p&+F}+S!7F)SXXSo+y)4!7SX7+)p44W+&}SHv&+!!+p&Z))S!F&WpSpXyS+!pO>7!Xpoo})4Xy4Fo7>!XHH&>HFpp!p)opSFpK+>}FSSpX4P!y)!47>>p+)&!H7ppyS++p)F!8S!p4HS}XyoXSH4!7SX7HH7yHyoXX7Ho&HF!p>!pHy&+XH*X>S+n7)Xp)S>FX)S7ySH)7HHXoy}})Hy7Fy+!!y+7S4y4Gy!=)HSpyeo!yS4ppH}>+y&XFHpX!S+fS)Fp+y>o4HSXXSpLy)4pBSXF4)>7}S+)yH+X7yH}6H}7)yp!Fyp7>4}4SyF;tH>p}s7)}+F47yXboy}HFdy}HIpp!+X&&pF74aSX+>8XXoH&>44&7yX7F}y7})pX!S)+S)F!aS!74)ppXHo!>>4pocX&H}y!}&77&HHyp&Hp=H!})yVy>X9X!&)oSyy&oHy!4ypo}F+X&)Fop)!!+&&pFy+X!y4o&4XX)H!7FySFyH4ySS4po)X.+SyFF)+o!)+F&&>&q)!}+SSXy}8y>>}&S!>F4(p&447&}yo7u}H+py}&))S)H&4&!p)7o_>})>>H}gS}X<opy+!&pH!!+ySoFF?X>)HpySHX)H!7FySFyH4ySS4po)XJ+SyFF)+o!F++&yFypS&!)y&7X4)!>SHo7)}!o7ypHyp!}y)o&4FX8)yp))S!H&Qp&S)F^)F74S7)XH7X>yo}&H47pyy!oyy7H4py!4X&&4F+py>XFSSpX4^!y)!47S!o+)&!H7pp!yHXyH4p+S!FF)&7>S4)SH4X2yX}+H>7Hyo!}yo7&4>4py}7)4o4Fyp7>4}4SyF7o4p44yS7}4F4yy4t7H}pFR&!FSpp>H)>SyXX))>!4SSp}Ho}yyHXpH}X+S>zF)ppyS+p&+F}4}!p)+S}y}Op>+4}+}Xpo+y}!}7p}++}0}Hpp4}!))o4FX3F7})7J4!p4F74}9S}X6opy+!&7p}7F^&F}>+X&pF&o}H#3}>X)>+4XXoFp}47o+>pHX7p!P7}}w+p&+>&pp!7XuSF!&)XSpXH+}F_o}yX4>)4}X+F*}H7+4ypFXpp> p}!.)pS+y&oHy!4ypo}F+X&)Xp7H!!+ySoF4fX>)FoS)F}pS>X}}SyX>H&7X}+o4}FF}>UH}pX}>X4y7FXp}!p)p&}y}1y>>}&oX>S4+yF!}S,}}+Xy>>4p4}S)HS)F44&>+X}SH>UdH7})Xo^X!H}>f}op+}Ho7x&HH+X&8F*K)y4Y&!S}}SyX>H&7FXFo)X!F}>YH}pX}>X4&XFF4}S)F+&!y}pr>}4XS>&4oS&oH)p!}7+p&y}XpS>o))S!F&Kp>y4!SS}oo)y!)&7p}y+X7H47oy}FFHpy}Spp&)+ SSFFo)So4)S}FSoXp}4y7>&&oH7F!)+>S}o%&}FXp>74)>&SFFH4>oFpoHy)H474Xp)4}&oS(}Hyp>S&FXp}HS4&!4)&SyF7H}>7X)7X}S++&)}o7SyX+SSoF)A!!&)pSy!!RSyo4+o!>popSy4!oH}!+Sy7F)op}S)!&yXop4>X4)(oF>)X>+}ooX>!oySp4&p!}++p7SF+77!X)X&!!H3X!>)d.HX!oS>pHH7>}y+X7)4>pS}p)H&}FyeX&H+7pyFF4HSyFSSp>)teyS4Fp)yo+Fy+Hypy}SH!&yH7N4&!)y&1FHNp784FTyXp+Hy>Hyo!}H4p&HF!py>o)4SXX))o>H4!S>yo4XyXX)7o>S+o&HHFpyyX+HSoF)R!}&)pSy!!j+&p)>o!>p4oy)XX74!oo>&X}HpX}>+0k,FXp>!2X_SXF&Bo>y}&SpX7HZ7!X&7o&Yo}ylHpp+S&+p&7>W)>&&FX&Sy&g4>&4yS7&}o7yo4>)}}+H)p>!+)}&>FHo}Fc{o7&)pS7y;w!S>Xc+<X}oiypH+)&}>HX&yXoT4>XFHS>FF9p>p4ojSXpo+y}XS77y)+X&SF+k)}&Hyy!FSoo>+4Xo}X448yo}47FySH)p4Hy+p&yo)poH!+X&%FoS+FHp77&4)xXX>4ey)H!S&}p+4yH!57Syy+HgH!y+S>o4HSXXy)X!JHoS!}X4HyX4>7 &co77yHF)H&yHS&p!)pq>S)F7)>ooF>+4y7yXS4!yy47p4y!+yyhHHppST+7pyFpoH>}4y.!XyD7y4!47yX:oHyp!3pFyy+pSHF>qy!4X4&)!ypp7}4!7SX7+)p4HHp!}>FopXFX)XS))XpXHX4o>+XX;py&:!SXXKoo}+oH>7!&p)yX+>pPFX44!&+So}FH))!SXSo)>Ho!yS4pp)>po}&!HoppyS+p&+F}+S!FF)&7>S4)SH4X1yX}+H>7Hyo!}yo7&4>4py}7)4o4Fyp7>4}4S7F>o)y)4Hoo})oFy&}opH!!+ySoFFIX>)4oS)X!j&>p4yiXXS+oy)H!S&}p+y7!4y77}4+y&4>&p4!++ySX!S1p>4)!7)&4o4>SHHp)}4F&&+!}pH&z+H9}HX)U!!X}&L>oo+>H)7+&XH4X7v}k+)S4+&yS>}py!>X&0F!F))!!}}&<X}oX>>!47X}FF}p)}+7!S}on&}FXp>74)S7oX)o!>74p7y>XoS&oH)p!}&+p&yF!pS>o))S!H&Lp>y4X*HF7)y>F}Hoy>Sop7)4CpS}F))poF)p}}S)Xo}FyQ>7&)H3Fy)4>p})Y7}}Xo>=4H>7S}FX4&o}p)HS)X4z4!pH4>&)S+}Xyo>p&}Xo}XSF&y4H&py}7X}&7!)0X>S4+7)>o*SSX4Spo})+!y&Hppyy!+SSoF+)!&p)ppyF!)H>!4SS7}))p>SH!7y!oo4&XF)+o}>HX&+>o)X&!)yppF&o!>+4p:S}+s7yXHX7!yH+Xy>Ht+H!!)S&pXHa>>y4X^)F>oS>pHH7}}y+X7H47oy}FFHpy}Spp&)+kSSFFo)So4FS+Xyoy>SX!7yX7+47!Hy7U}H+pRAFF+y!p4HS>Xy)!>HFp7H}!oy&oH4pX!)Ho&HF!p>SoFXSX!)lo&S4o7HXFoySX4Hpo})+!>&Hppyy!++7pH>)!&pFoS)!XU4yo)>7X>HoX>>4I+e}Xo>yw!BpX}&+o&y>&pp!7Xr8!!&bo7;)}S*Xpo+p&4p77&hH>7&}X7SS&+4&&Fyp77})7SoF>H}>+X)o>y+H}7>}H)}}P+oT&Hpp7S3+!p>!64z!})ZSpX+H&>>XX7y!o+4&X}Hp>}F+p&pFo+S!p)+S}!S<7S)4X7S}++)>&XyS!}S)o&+FX)}!4FmSo>4_FSSX)o4Xy4p7y))ooX!4X7k}op+}Ho70&F)+X!>FZS)X!p&>p44SHyf*SSy4H+Hyy4S&oFHpX!yHXy=Xop!>XFHSXF>1d7d)73yXFHH7yXS7py)o{&SHFO)&o)F&+Fy?y!SF!SyF7o4S!4yScXHopp_47oy}p)H&}Fy+!!y+7S4y4Qy!N)HSpy;oFSy4ppH}>+yy4!47)yyopg}F!:S!74)o4XHo!>>}ooX}XHXp)HXoXXXFo&+!X+pS&+!pX!q)o>+)H&7y&o)SX4>o_}XF4y&4S)}}HH)yS!S))&H)!SSFpo)&p)}7!XoopSS4p7+}}4SyF})77&SF)pHFX+y!}4H&7Xy)!>y)774&4oy>7H4)4}yo7&4>4py}7)4o4Fyp7>4}4SyFWMH>p}f7)}+F47p}4o&}7FQy}Hhpp!+X&&pF748>F+>;X>p4)p})q7}}Xo>d4HS9o!))!&7FpNy&X)S7oX)o!>&4p7yy!oS&oH)p!X&+p&y}!py}m+H&p>ip_!!4oSpFhH}>pX)7X}S++&)4h7!!o+pyf>}C+S4+7pyHp4}>!4SSp})H4yHH!7y&oHX&X!X))!XHX&+>o_)SXFpo&F&^H>S4yS&&4o+Sp}}o!}>oSyF>4pyyp))z}Fp4&>4)Ho6F7)y>F}Hoy>S+o&HHXpyyX+7SoH>dX&H)X&>FE)H>X)>SiyGoX>&4o7y&&o&yHHSpy}&X4&>!oKH>!)y7oXFoXy)FpSF}!oy&oH4pX!)Hoy>}Xp+SoFXp!Fy+p!&4!S+Xp)SyoHH7X}S++&)Hpoy!o)H&XFSpz>))pSSFpoH!}4y7X>Hc7Sy4F+Hyy4Syp})7v!S+FS)!o:HS&)y7oXFoX744X7SXd+)p)XS7Fy)o7pS!)+H!XHy&}XHp7>yF!SSy4o)y!477py&op&HH}py&yHHy7}ypFSHFypSFp))!{4SSF})4oyH}&7y!o+F&X!4pX!S+_S)>)+S!FF)&7>S4)SH4XhyX}+H>7Hyo!}>4p&)F!p7!p)HS!F>vp&y4o7HXFoy7&4}+4}HH}y>!o+X&}+ySoF4(XSXX)&>!XK+7oXXM!Xy)p>&H!7+}p4S&oFHpX!S)+S)Fp2S!p4HS}XyoXS)4!7SXp+H>}HypXyH+Xy>Ht)0!X+>&,>rwX!&)oSyy&Pp>7}Y7F>&4X7p}y)}XK+}&XH>44!X)Fo}F7)+S4}}&tX}oX>>!4S7}Xo}ypHp7}S}+y&>>&)XS)++ppX+H4!&447)XFHQ>g4!po}pobr}H}+)!X)SS+X))o!&)HSSXy?&p44&?pFSeX7HHF7!}+Fh&X}y))S4X!&Sy46&!S}}S}Xoo!yX4}+/}X4yy!FHpX!yH!&>HSpF74)+pp>}4}7S4X+}XAoop&4&7H}S+yy&>4pyyp))S!F+Mp&S)}SoX!oX>}}K7>>yop&H}ypyy!+4ySFHN)!4X&&>!XayyoXF7X>Ho)y+!477>p4y&o!^py}>+(A.H7+>&X)4o&F4E&>y)7+}Xm+H>7HyoX}7)oy>FX+H!X)SD)X)+p>4F!SyF7o4S!4yS7}44!yy47p4y!+7y>F)U)!HFoS)FFA&So)pS7yZo!yS4ppH}>+y&X4&p4!)+F^vH7+y!FXH<y!Stp>4)!7)&4o+SpH)p!}&+p7SHpp+!}HSypF+p}!p)}o{F}ZF!p4yoo})o}>SHX)}}}+o&!FXp}S2+mpyFpoH>>4y{!X48SyHH)74&&+47X4HSpyS+7&oH>4}!pF);y>&Ho>H}&74XHH^>U4!po}po9J}Hp+)!o)S&pX))o>+)H&7y&0>SXXdo1&Hopp,H}7!S4+4ySFH0)!4X&S)!Xmyyo)>7X>HQA>!Ho7pXrF}&+})pX!SF)S)!op&!H)SSyF&H4>+Fp7)}!47ypXS7y}>F&&F}X+)!!X}S)F+s}7})FW+!pD&p4)&74})oFp3H}pS}F))7pFFr!!+)ppSFpoHSy4yYXX&4oy)4F7&yo+)yFH&+o!)+F&&!o#)!F)&o&X)J}!S4X+}Xyo>p&H+o}ypH!N}4cp}!X+>o4F4pS>H4)S4y&o+7}4ooo}H+!yyFopF!X))SoF)v!!&)pSy!X_Syo4)7!F&opyyX!7+>po>p!}p+o!)HX&4Xop>>XFHSF!y:pyH4>7y}o+HyFHy+&}}F4&H!}p>SoFXx}Fyoo>44XoXy)v>SX4++oyX4!yyXp7&!!++&p}Sp7&))XSSX+o)So)!?XXS+oy)H!7&}p+y7!HSko!+F!ppFp+y!HFHS!XS=7y)FpS!}!oy&o44pX!)Hoy>}Xp+SoFXp!Fy+p!&4!S+Xp)SyoHH7X}S++&)HpoyX!o)poH>+X!+XoYX!!My&p)&7!X+opSSHopH}X+S&+F)pp!S+pSHF}Uy>XF)SXXSphy)XoS>>Xo+po}Xo!}y4py&F!p+!pHSSoXHBX>S4+7)XpoS>pHH7}}y+X7)HXpSX3))poF)p}}S)Xo}Fy.>7&XXo+>4)py+!4S&}4+)yF!r7>!)+4&yFyp474)XSFy}n7S4Xyo4&4V&y4H)7F&Y+)&+!&py>o)FSX!4l!>S)p7HF}oyyX}XS}Xkopy+!&7>yX++qo!X+!!y+k&HFp4L!7FySp}Ho}yyX!7yX7+47!H77>!)))&H!oB)!F)&joXHo!>yHo7F}X+)&oH)p!}&+p&y}XpS>o))S!H&Gp>yF!&yF7_4>y44+&X4o+>yHXoS}p+4y!F)44!S4oS)X!#7>p4y7!Xy+oy4HXp)>p+H&!Hy;o}4)XS)!oW)!F)&o&X)jF>&}&7)XFo&p&H)7F}&F&&)H}7S!XX}&yF>4&>+FFn&y&e4>&4yS7&}oyy>!&+oy}H)&F>}7j!})X&>y4DX>F}}S7>444p})G7}}Xo>#4HSko!))!&7FpBy>!)S7oX)o!>&4p7y}X4)y!HS7p!Ho}&yFX+H!X+&&oFy4&!p)7orXF)>SS}<S}XCopy+!&7F}pow&XFX7#SL))S+y4)}}7FyS7ynV}>*4p7+&&+4yH!M7>!)o/yyH>p>74)y&7X4)!>7)>7)})oH7oH)7F}&Hoy&HHpS!y+&o4Fp)c!FX}S}>vR!7}4>ohXHH}y4}o7&}H+S&yH&44!+Hpe}!!p!>4)pS}XyH&>>XF+)yyF}yhHo)&}p+7j9!>+>&X)+o&F4_&>y)7+}Xyo>p&4>oFy<F&y4H&py}7X}&yF>4&!>FFo)>!H}!s4}7XX>F4>7HX7}}p+py}>}py!>X&&>HF))S>}}&_X}oX>>!47o>p+)7!H77>!)))&H!o3)!F)&ToX+)X>oHoSF}X4H>X4>S9}Xo9E}4v77}X))p!Fypf!H)pojXF)y>HHHS>}y4!yy47p4S4+yyuHHppS;)ypyX+)H!>FySx>Ho4Sy)doH}Xo>yU!;pX}&+o&y>&pp!7Xs&7!>) 7f)}SIXpo+p&4p77&MHF7>HF)9}}+6&pF+4&>H4!&SXp)y>}XH7XX&ooyy!&7>yXF)p>}Spp!+)}o}FpK4!!4)+4XXoF7y})S+>po>644&p4!)+FMrH> )!4)ySyF4H4>X4F+}yo44>7!}S;}}+Xy>>4p4yp)HS!F>bp&S)7SoF>H}>pX)oyySo7p44SpS}&))&}H!44!4Hp&&>F4+>!4SSp})4oy)4F7&yo+Fy+Hypy}SH!&yH7Y4&!+SppF!o!>p4peSFpo+>}4p7}&do}yF4ppy&o))&}HSvX7})}f)X!oS>7H)oo}+oH>7!&p)yXHp_oF+)}!o4o&uXX1&!S}}S}>)^q7>}F7S!o+)&X}HpX}>+1pHFXp>!bXJSXF>O(714XS>X6H:>7Xy7F&HHyg}Hpp+!}X}ypF+p}!p)}o(F}gF!p4yoo})o}>SHX)}},+oO&HFpp}&+X&FFF40>X)>S%>HoX>>4j+h}Xo>y;!MpX}&+o&y>&pp!7X,q>!&T77 )}S?Xpo+p&H+7HX7F&y!}X+7&>F&p&!74&>4)Ho9X)o+p44>*7y)F4>&H4p)}FFLy5H!mo!p+ao}X+))>X4S7+}),U>!Ho7pX*F}yh})7o!H)!&7Fp)w!&X}S!>&o+7HXyo&Xp+Hy}Hy+y&Xqp7SH}po!!)X&}>Ip7&yX4jHXFP!>+} 7X>y++p4HXpSX^))&}H!44!+Hp&>>!)pSo4H7!XyopSy4*pHX7+y7!Hy77!4X4&7H>r)>))HVoX)QF>&Xo7+XH:7p&H+oXywHRp+>4p&}SX}&yF>4&SHFFS>y&e4>&4yS7&}oyy>!&p+yFH)py>}72!})X&>y4{X>FXyo+>4)py+!4S&}4+)yF!QpF}!++6AHS+y&KF2GT>+)Z7j4}S!&4oXyF!}77y+Hy,}4Dp}!X+>o4FSoo>)4!S7XpoySX4Spo})+!y&Hppy!!+ySoH4JX>)Fo&>!Xs+7oXXf!Xy)p>&H!7+}p4S&+47pX!X+!pHFXp>!vFHS!XSZpyH4>7y}X4)>>HS7p!H+}&yFX+H}7Hy&F>H)y&S)pm)F*oS>FH)oo}Fo+yyHy7Sy!+yy7F4+!!y+h&HFp4 >!4SSp}Ho>yyHXo)X>+SypFHp}!y)XpHH7+y!FXHZy!S;pS)),7SXF+)7oH)7F}&F&&)H}7S!XX}SoXH5X>S4+7)Xp)yyoHH7X}So:&)HppS}p)Hy}Fy%X&H+7pyFF4HSyFSSp>)I%yS4Fp)yo+)yFH&)&!)+}ySFX4}!y)>o&X+)FS)XX+}F;o}yX4>)4}X+Fc}H77+ypFXo4H&Q4>))Fo2F>o)>44y7yX4F4yXHF)}ypH4&F>}7U!})X&>y4{Syo4)7!X7opyyXXS7!o+)&!H&pp!yH!&7H>*)>))H_oX)gF>&Xo7Hy&oy&oHFpX&4+X&SHkR)S)HS&F!)p7SSX)KHXX)y>}HHS7}y4!>y4774}y+4_&H4p+}y)XpSFp 4!!4)+4XSH4y)H!77}pH&ypFHp}!yFypHH7+y!FXHJy!SapS))r7SXF+)7oH)7F}&F&&)H}7S!XX}&yF>4&S}+FO)XFH}!_4}7XX>F4y>4S7FS4+o7p!X)oS4F)sXy4_&!S}}SyX>H&y+)Fo)y}F}>YH}pX}>X4&SXoj)>!)7SpXy)X!7Ho7)}!o&ypHyo!}+4py>!!+p&o))pXF4oo!>4XkHX>eF>p4p7o>Sopy+H}oS!o)H&XFSz+>))ppyXooH>X4SS#})opyS4ppHX}+y&X}H77yy+FRH!y+S!pF)&0XSVFy)Xo7FX+oyyy4So!}yo7&4}!py}%+H&p>E(!>S)p7HX>oyyXX)7!}Sop&HH}py!X)H&XFS7U>))ppSFF))!7XSo)>HoXSy4}pHX7+y7!Hy77!4X4&yH7f474)y&7X4H4>y)774&4o7>>H)p)}HHo&)HFp&&o))&}HS%X7})7SoF>H}>7X)o&y&47p<H}7!S4+X&F>})o&+)Fo}H9N}>X)>+4XXoFp}47o+>pHXQ44&p4!)+FmqF)Q+SXF7p,!yg77v)}S Xpo+p&H+7HX7F&y!}X+&&&F&p7!&4&>4)Ho3X)o+p44>G7yXF4>&H4p)}FF^&!FSpp>H)>SyXX))>!4SSp}Ho}yyHXpH}X+S>TF)ppyS+Fp)H7)SS)FHSX!y9}yH)77y>!o7>>H)p)}HHo&)HFp&&o)HS!Fyoo>F4X7)!pRFy!4ypo}4+X&)}o7>yX++^o!X+!!yHp&&X!f+>pFS7+F7oXyX4!oH}Xo>yN}HpX}&+o&y>&eH>!)y7oXFoXy)FpSF}!oy&oH4pX!)Hoy>}Xp+SoFXp!Fy+p!&4!S+Xp)S>p4+7}&}opy44!p)S4+SSoF)f!!7)pSy!XZSyo4)7!X&opyyH!7y!oo4&XF)+o}>HX&+>o)X&!)yppF&o!>+4pGSXpo+y}!}7p}4o!&)>4pX!FX}&7!++pS)}4&&X4o)>F}v7)}+F4y>)7oy&)F_y}Hrpp!+X&&FFppW>X4X&MyAo)y+!4oy>6++O44&p4!)+FuVF!kS!p4HS>XyoXS))>7SXp+Hy}HypXyH+>yFHppp!oHS&pF+m}&S4oo}XXoSy+H)oq})+!y&Hp+py!++7pH>)!&pFoS)!Xn4yo)>7X>HuX>>)s7XXPF}>;477X!)H!&yH(pH!pXeS!>fhpyH4>7yy}oy&oH4pX&XHoy>}Xp+SoFXp!Fy+p!&4!S+Xp)S>p4+7}&}opy44!p)S4+X&F>})4}+HpS+y4p&>44)SFyVoF>!4++TXS4yp)}S+LypF)sCF}p!74)XSFy}U7!+Fpo4&4%&y4H)7F&e+!&SHpTH!>)ySX!)p>>S)p7HX}oyyXXHS7>yoFpH}yoS}pH)ykFSpF>)FoSFF+Ey>y)Sz!XyP7y4X!7S!o+)&!H7pp!yHX&SXog)>!)&SpXyo!>yHoS4}X+)7o4>oX}+FopX}!pyyp+&S!F+Dp&S4+&7XXoX>!XH7XX>oC7HHX7&}o+yf&FHu!!y4oSFXXo)&p4H7!Xy+oy4HXp)!o+)&!4&pp!yH!&+}pp>S!Fp(oX))X>4HoS>}X4HyX4>7%&z+Xy>Hb)z!X+>&v>ZfX!>)EoBXXM>>d}w7XX>ocpxHX7&}o+yZ&Hpp7Sx)Fp&>+4O!})wSpX+H&>p47+)yy4&7XH>)&}4+&&yH74}!+)y&&X)o)!&}&SpX7H37&)>oX}>F&y4H&py}7X}&}Foq!>X)}ogXF4&>+XH7FX!o+pb4Soy&4F4pF>}pC!oX&&pF74WS!F>SHy_6}>U4p7+&&opy7!e+&y>HX&o>&p4!&)y&7y}oo7}4X7S}++)7IH)p!}&+ppp}!p+yp+>J!!p)o>)FXS4}of>yXXH7XX&ooyy!&7p}7F?yS}>)X&SX&&4F&0y!7}}S+Xyz&y)H)S&&&opy7!,7Sy&F+_zH}pq!p)+o&X+)X>yHo7F}XoS&oH+pXy)+!&SH7<)S4+2l&FS)/>+X!3p>(o)y!4&7pypHyy+Xp7>&!HppoF)+X!44o&>XX)H>>)FSpXpooSS4p7+}}4Sy7})pX!S)+S)!opF&X)S7oX)o!>&4p7y>!oS&oH++!yp+p7yH++H!!)S&7X)+p!F4!Sy}ox4yXH)ooX>4Xy+!o+Xy!+y7pH&=!!+)ppSHpq+!})pS}yAl}>F)p7yyo+)y}4SpXS}+7p)FXVS>+4)S!XST7y)Fp7H}!o>yp}G7&&}+!p&H7)H&yF&&pXHr}>yXyoXF7)y>F}Hoy>Sop7)4<pS}F))poF)pF!&X&S)FFn&7&4)S}FSoXp}4y7>&&H47F})7SS}oq&}FXp>74)XSFy}*HS+X!+}FGo}yX4>)4}S)o&)F!p7!p)yS!Fyoo>44X7)!po)y!)&7p>SoF7)47+S&)HH&X}yp}>H+7Sy!!hy!=)HSpyYo!yS4ppH}>+y&X})7oXyH!&+}pp>S!FpNoX))X>4HoS>}X4HyX4>7=&m+Xy&HopyS&+p&7>:pS&&F7odF}^m>p4++&}H+!yyFopF!X))SoF)R!!&)pSy!Xsyyo)47X>Hk7Sy4F+Hyy4Syp})7G!S+FS)!o9)!}+SSXy}ooyH4X7S}++)ypHS7p!H+}&yFX+)!X)Sy/X))o>))FS&y&o)>F4&+&})oFy&!&p)}F+&f&FFp+!y)y&S!!ly!744P!X4sSyHH)74&&oFp}H>+K}!H!&SXoD)>!)7SpXy)X>SHo7)}!o&ypHyp!}y)oy4FXn)&o+>pXF+4oSXF!Sy!ps&y!4+7p>S+o&HHXpS!+))&p}yQo>H)XSSF2o)>pFSSF>);77S})oH}X4yy}FH77!yH!&SXoq)>!)7SpXy)X>SHo7)}!o&ypHyp!}y)oy4FX_)&o+>pXF+4oSXF!Sy!pL&y!4+7p>S+op}HXpS!+))pkF)5!!&)pkp!!6+&p)>o!>p4oy)XX74!oo>&X}Hp!!S+pSHF>hy>XF)S!XSbpyH4}7y}X+HyXHSSf!)+p7SHF+)}7FSc)!HvX&y)}7HF7oyS!)76p})+!y&HpoS}7H)&!FSp+>))F&!F+4U>XFyS+yH4y7&4ppHX}+yyPHo)&!+HX&>!7)>>o4HSXXy)!>y)774>!oS&oH)p!}7+p&y}Xp>&o+>pXF+4oSXF!Sy!pn&y!4+7p>SoH7)HXpS!+))&!FSpH>)X4&J>&aSS;)!o!>p45y)H!7&}pHppy4y77}4+y&4>&p4!++ySX!Sbp>4)!7)&4o4>SHHp)}4F&y!!}p>&%+Fp!FSoo>)4!S7XpoySX4Spo})+!y&Hppy!!+ySoH4_X>)Fo&>!XV+7oXX=!Xy)p>&H!7+}p4S&oFHpX!S)+S)Fp+y>o4HSXXS^hy)4p SXF4)>7}S+)yH+X7yH}=H}7)yp!FSoo>)4!S7XpoySX4Spo})+!y&Hppy!!+ySoH4UX>)Fo&>!X6+7oXXV!Xy)p>&H!7+}p4S&o!}pX!S)+S)!*d)>!)&Sp>p)!>+FpS>y!4p7oH)oX}4)oy>FX+H!!)S&pXH9>>y4XB)X!oS>pHH7}}y+X&HHXpSXO))&p}SpF&)+7xS>))H>XFyS}}Hh7yyX!7o>p+)&!H&ppyS+7p)F!kS!H4)SFF!:+7k4X%yXHHH7y}&7p!Ho}&yHQpoS&)+pXF>)7S>4o7HXXoyS!4yS7}44!ySFop)!!+7&pFy+X!>Fo&>!X#+7oXXw!Xy)p>&H!7+}p4Sy+})pX!S)+S)F!2S!+4)o4FM4&>SXuSFy!4p71H)p!}&+ppp!ypy}7)4o4Fyp6!H)poaX)o+p44>cJyHF4>&H4p)}FFr&!FSpp>H)>SyXX))!>4SSp}Ho}yyHXoH}Xo&yoHy)&}p+7jeFF+>S)XN&}Fm%p>+}&7+XHk7p&4!oXy&HFp&}S+&S&)4&H>kN)>+}4S>H7)ySs}PS}XRopy+!&7&}H+S&yH&44!>F6&F>}p;S/)So}Xo4oyHH!7y!o+F&XF)op}H)!&yXo14>X4)5oF>)X>+}ooX>!oySp4&p!}++p7SH7+)!X)SS+X))o!FFXSS}oo)y!4&7p}y4!ySFop+&!Hp&p}yp+&H)!SSF7o)&p)F7!Xy+o>4HXp)yoo>7XH+)o&XH!&y}pp&>!)+Sp!SooyH4X7S}++)ypXy7o!H+X&SHx8)!pHS&F!)p7SSX)0HXX)y>}HHS7}y4!y>Xpp)!!+7&pH})}!HHp&)>&(Syo4+7Xy}H)7pH)o)}oHSy7!)+yS}+Hp)!&+S!7)o&>y}KpS)4Fo&})Hxy}4!)4}o4py!!!+p&o)HS!Fy:p&y)47HFSoyS!4yS7}44!y+Xp7>&!HppoF)+X!44o&>XX)H>FFySp}Ho>yyHopH}F+yp&H})4!HF}&>>o)XS})po)>pOFS))7oSy)4HyXXy7}!Ho7&y}!p&}SX}&+Fyp}!))+S+y&o)>F4&oo}Fo+yyHy7Sy!+yy7F4+!!S4oS)X!%7>p4y3XF6H4!pH!7y!o+4&XF)+:}>+y&4!_pFSyFHS>FFip>p4oCSXpo+y}XS7p}4o!&)>4p4}S)HS)F44&>+X}&7>8V}7}4Ho5X!4!ySFop)!!+7&pFy+X}S4oS)X!,&>p4y;!X+)p>>}!opyo+)7XH4qo}>)XpHFF+y!p4HS>Xy)!!7Fp7H}!oy&oH4pX!)Ho&HF!p>SoFXSX!)p>&S4o7HXFoySX)7po})+!>&Hppyy!++7pH>)!&pFoS)!XO4yo)>7X>Ho!yS4ppH}>+y&X})7!!S+pSHF}1y>XFH&7!y0F7HXykSXp4)>#HS7F!)Ho&+}Xpy>o)FSXHl),!SFX&yy4oHy!4>7py/HypXHyoy}!FH&F!y))Sr+Spy>4)H>F)!S+yloXSy47+4}yF}yNHo)&}!HX&o>o)X&!)S7oX)oXS))&7SXH+)7oH)7F}&Hoy>}Xp+SoFXp!Fy+p!&4!S+Xp)S>7X)7X}S++&)H!pS}7))q4HA)&!SF;S+>!)pSs4XoyyXI7Sy4F+Hyy4Syp})71!S+FS)!o%4!HXf&>X)pL!y)>S>&4oy>7H4o!}yo7&4>4py}7)4o4Fyp7>4}4SyF7o4p44yS7}4F4yy4.7H}pFv&)F+44!>HBgH>+4W!})YSpX+H&>p47+G}F4>7X}7+FS}oR&}FXp>74)XSFy}^7S+FpoF>yH1>}417p}+F&ypH7)(!FH>{+!X4&!4)&SyF7H}>y4>+&yF4S74Xpp+S4o&&4F)pFST+>S)F4ay>y)4+4XXoFp}47S+>pHHp)!87}}?+p&+>&p&!H)SSyF&H4>>X<SHy}oH7c)p+}}oHby}}!p>}S+Fo4FH+pS}X}wyy&o4>H}b7)}+F47SX77SS4o&&4F)pFSL))S+y4sH&7Fyo)y:f}>^4p7+&&opy7!{poX>HXpe>&p4!&)y&7y}5+>y)&7)})#&p&4p77&_H>>>}XpHS&+4&&Fyp77}4o7HXXoSy+H)7p>yo+&HHXpS}x))&p}SpF&)+73S>))H>XFyS}}HB7yyX!77X>+)&)HH+o!)+F&&!o=+&X)y7oXFoXSH)!Ny}o+HyXHS7U!)+p7SFoVH!FFSg)X)+p!HF!SS}oo+yXX)S!}Sop&H4}py!XHHy7}ypFSHFypSFp))!N4SSF})4o>)4FS&})o&r44&7>})+ppHFXp&!o)yo&X+)X>yHo7F}X4H>!Xypo!H+X&SH%e)!pHSSoXHcFSSX)7)!p(HS!4Spo}++X7)4!pS}p)Hy}FyJX&H+7pyFF4HSyFSSp>)s{yS4Fp)yo+)yFH&)&!)+}ySFX4}>o4HSXXSo+y)4pUyX++HyXHS7J!)+p7SHF+)}7FSG)!HbX&y)}7HF7oyS!4yS7}4F4yy4r7H}pFt&)F+44&SHz&Sy4p&>44)SFy6o)y+!4o&>p4yy!!_7}};+p&+>&Z+&X)y7oXFoX!GFp&S}o+HyFHy+&}}F4&H!}p>SoFXR}Fp4)Sp+XnHFS)y74XH7FX!o+p{HXoy}7F4&XFS7h>))}&!y4Do&p)!o!>p4oyHH!7y}p4yy4FH7S!yH!&yH7^474)+ppF>4!SpXo7)>Xo4&o4>pXyH+Xy&HopyS&+>pXFyoo>44XrHXXD>>K}O7XX&ooyy!&p+yX+ySoFF5X}DFDyp!Xpy744H7!X>op7kHopH}FHSp)F)))&p))p)H))S!7X)syy}hHS)X&iSX7oo>>!}7py)+Fp&F))E!}+!o4Fo+p!!X!ap>ooHy!4y7p>yo4&H4Spyy!+yy7F4+!!+Hp&>>!)pSo4);XX4+o>>HXoH}Xo>y{!zpX}>+YnTFXp>!KXtS>FFCp>p4oDSXpo+y}XS7}}o+!&XH})6!FF&&}>4p}S&)&o4FS4&>+XHSMX!+oyp4=)}}FH)p&}S7S!}))&&Fp46!7F>oX>pH&y44H+^})++d4}&o7}>X4y&F4g)!FXUS)X+H4>+FRLyy)HA>}4:7p}+F&ypH7)B}7o>pX>))y7}+aS}XXE>p44>SSXFF4ySXp+F&+F4pF}p44!&+So}Fy;>7&X} }X+H&>44&7yX7F}y}})p>yS)+y7FXrX!!FHSXF>(<SH4FeyXp4Hy>4F7p}p+o7SHpp+!}HS&pF4p!>)}4S4!poFS!4yS7}4F4yy4L7H}pFn&)F+44!+H7py>)40!})?SpX+H&>F4pSf}X+X>:! p)!+X4&+47+yS+Xc&}FAWp>+}&S8>XoS7oHF7+}y+yyS}!py}7)4p!H&+p>4F!&yF7Y4>y44+&X4o+>yHXoS}p+4y!F)44}&HpS4!!Oy!744+4Xy=7y4!47yXVoHyp! p)!+X4py}=p>74+&S4X)aF7:4)7+&4o+S7Xy+o&?o}y_Hpp+S&)+&HH74&>)FXK7>X4&SSX}+&}4oHp%H)p+S4++>7}y+SSx+}&jFpO+7&4H7!F7opSy4HoH}>oFypHppoyS+p&+F}+S!FF)_p>F)!>7)>7)})oH7oH)7F}&Ho&)H}7S!XX}SoXHp>>yFXSo>oo)>F4&+&})o}>SHX)}}y+>U&H>+F&&X&&4F&my!7}}S+>)oFyS4}p)yo+)y}4SpXS}+Hp)F4zS!74H&}XyoXSH4XS>X_HjyX4>7I&3+Xy>HA)M}7Hy&F>H)y7})pS+X}H}!p4+S}Xpo}p64}7FXp+ypoF)p}}S)Xo}F}?o>!4XS}y/d>7&4}+4XSH&y&!4pF&&o{pHH*p!>o)p&1y}RFS)X&eSFSo}y)4&7p&vo77>!X+pS&)4&H>*J)>+}4R&!7q>p4)&74})oFpDH)p+S4++7u}y))S3+}&rFpU+7&)pS7y?37!>XX+)yyF}>MH}pX}>X4&>HSpF74)Spp>F4+74XFip&4o&>S!}7y}>F&p}}}p+S&+4&&Fyp77})}n)X>)Sy+)77X}Xo!7HHX7>}mHHy>}ypp&H)>&FFpOp>oFSSpX+o}SS4p74X!+)24H4op!FH!&yH7{474)y&iFHIp7W4)7+&4o+S7Xy+)&#o}y8Hpp+S&+F&pHJiX>X+2o2X)o+p44+&7>yH+p64}7#}p++N&Hq+X!SFoSFF+Ay>y)S;!Xyc7y4X!7o>p+47!4y77}4+y&4>&p4!++ySX!S.p>4)!7)&4ooSpH4o!}yo7&4>4py}7)4o4Fypc!H)pobX)o+p4Xy?eX>F4>&H4p)}FFB&)F+44!+H7py>o48!})1SpX+H&y+4HS7&&+)7X}7+X&&HSp}>&h4!HXKS)X+H4>++7 y>SH_>}4z7p}+F&&HF!7&!pHy&7!Hv>!F)pSpXo)S>p4+7}>SoF7)}p+Fy!+7y>F)M)!HFoS)FF=&So4)S}FSoXp}HopHX}+y7XH>+o!)+F&&>& )!}+SSXy}/y>>}&S>>F4&p&447&}yo7,}4Z+)}>)S&}X))o>))}&SXXH}>7X)74}So+&H4Spy!XHH&XH>pRS?)X&>F04f>X)>S8yJ97Sy4F+HyyF}ypH+p}S}+p&+F}4}!p)4&!X)H4>>)SSF&4o>Sp}}+}y&F&&4HH)e!))+o4F>+nSF}4&&X4o)>F}n7)}+F4y>)7oy&)Fqy}H6pp!+X&SHX!cyyo4F7X})+oy)H!7&}p+y7XHyho}4)XpHH7+y!FXH3y!S1pS))?7SXF+)7oH)7}XS+X*}FotH!X)SS+X)qp>S)p7HX}oyyXX)7X}SYu&)}o7>yX++fo!X+!!yHp&&X!9+>pFSSpX+o}p}4p74X!+)_4HXpFS}F+p4FF4}}=)}SXF>H4>X4F+}X7447}!}SG}}+Xy>>4pS>o))S!F7fp>y4!Sy}oo4yXH)kp})+!>&HpoS}FH)y7!S))&H)XpyF}oH!74y#!Xy<r>H4p+ }!+SypFHp>!y)XSHFXRS!K4)Sp!y.pyH)}7y>!oy>7H4)4}yo8yHHp)d!!)S&pXHr>>y4X7HXXoS>3H)7p>yop&H4}pyy!++7pH>)!&pFoS)!XP4yo)>7X>HoX>>4A+K}Xo>ye!YpX}>+JLfFXp>!cX:SXF&:o>y}&SpX7H/7>}+oFy)+FC}4np}!X+>o4F4pS>H4)S4y&EF7}4ooo}+oH>7!&p+yXHupA!444!&+So}Fyk>7&XXm}X>H&>44&7yX7F}yyH>)&&HH}p)FF4}}W)}SXF>H4>X4F+}X7447}!}Sa}}+Xy>>4pS>o))S!F7*p>yFXSS}oo)y!4&7p}y+!ySFop)!!o&&pFykX&H+7pyFF4HSyFSSp>)TjyS4Fp)yo+)y}4SpXS}++p)FXqS!L4)_oF!)X>SHoSF}Xo>>S4F)4}y4pyF!!+p&s))S!H&:p>4)HoVFS)y>H}+o7}H+!yyHpoS}p++&}}SJo>H)XSSX+o)>pFySH>HoX>>4(+K}Xo&yoHy)&!H)!&yXoQF>X4)ppXHo!>yHo74}X+)pXH)p!X&+p7SHF+)}7FS<)!H3X&y)}7HF7oyS!4yS7}4F4yy4?7H}pFR&)F+44!>o7py>X)p7&)4S&Xyr7p}4+7yX&+)&)4&)&}p+7Ih!y+>!7Xs&}Fh8p>+}&7H}!oy&oHFpX!)4pyHF!py>o)4SXX))o!>FXS+yo4XS!4ylpX&+!y+HpoS!+o7&XFXp!&H)X&>FN)H>!4SSp}Ho>yyHXo)}!+SypFHp}!y)XTHF!fS!p4H&}XyoXSH)7.yXFHH7yXS7py)oC&SHFD)&o+)&FH&=)!&}4&&F>()>pXH7XX&ooyy!&pH!!+ySoFFrX>)HpSHX!ayyo447X})HoyHH!7y!oo4&XF)+o}>HX&+>o)X&!)yppF&o!>+4prSXpo+y}!}7p}++}z}Hpp+!}X}&pF4p!>)}4SXXFH}>7X)1pyF4Sp.4}7=}p++h&H&pH!S)y&&y4a>SA)!o}F74zyX}}7Hyqo)p}4&+i}}H!&SXoj)>!)7SpXy)X!SHo7)}!o&ypHyo!}+4py>!!+p&o))pXF4oo!>4XTHX!oS>pHH7>}y+X7)4!pS}p)H&}FymX&H+7pyFF4HSyFSSp>)ntyS4Fp)yo+H&!Hy6o!F)XS)}ppH>!)y7oX4oXy)XoS>>Xo+po}Xo!}y4py&F!p+!pHSy*!))&&S+SS}X)u&>p}0S}>>HX7p!&p4}HFJ&)F+44&SH7pyHw4g!})YSpX+H&>p47+Jy>4&7X4&)&}4+&&yH74}!y)>o&F4)FSp}&S4X&oy>7!}77}oo>f}Hp+)&>H(J}!!))7})sSoy&_p>7}?o>F>4X>&!&74}&+yy7>}Z)&))!pSX+p7>X4XS!>HoX>>4hoHX>4yyf}Hp>}F+p&pFo+S!p)+S}!SPp>4)!7)&417SpH4o!}yo7&4>4py}(+H&p>G{)>+XXl&!K;4p4)&74})oFpwHF7!}+F*y7}y)+&SF;pk!y46>})!+4XXoFp})*S+>pH}_44&p4!)+FJ?HS+y>+FHS>FFAp>p4o(SXpo+y}XS77y)+X7SF+77!X)X&!!HUX!>)u*HXX(&>o4y+&}+4Xyy}op)}F+&b&F)pF!&X&S)F}pS>X}}SyX>H&>4X}o>&&o4y&Hy77S}+y&>>&)F&}+&o&F4G&>y)7+}X+oy>&H)p)X&F&ypH7)1}}H&pp>Dp}!0)pS+y&%SSX4ppo}++!>7Hppyy!+7y>F)O)!HFoS)FFm&So)),XX>+o>!HXoHXXo>>:HX7.S}oby7HXP)&!)y&IFHup7D4oLy})+HyFHS7+!)+p7SHpp+!}X}&pF4p!>)}4SXXFH}7o)+2pX4F4>&H4p)}FFE&FH!p+Sh)Xpy>+)>SfXogyyUo}>!!47X}FF}77}47}S}ob&}FXp>74+&pp>y4+SH4>SFXpopyoXS7p}++}7SFo5H}X)ypXFH)o>F)+SyXy0SS!4yS7}44!yy4I7H}pFuy}}y)X&7FoS)FF,&7&4)SFX&H&y)4F7&&&o47X4&)o&XX4&yH7w474)+ppF>4!SpXo7)>Xo4&o4>pXyHo}7y!4+H}H+5&yF4bX7}+NK+>p4Xp44&SS&}oyy>!&74yFH)p}>}7u!})X&>y4JX>F}}j7>+i}p})^7}}Xo>b4HXpFS}F)y+}pp474+&S4X)VF7.4FS!X+H1yXXy+)ySHf7p}p)A!}+!o4FXdF7}Fl&+!pm4p4)&74})oFpq4Xoy}7)HySFy+!!7+>S)X)5HSo4)SFX&4o>SXX7p!o++&!47pp!yH!&7H>^)>))H5oX).F>&Xo7)X}LSyX!}Spy)+F&SHHI)&o))&FF&4&>))}&SXXH}>y4>+&X4*F7)}F)}Xl+}&XH>44}&Hp,y>+)H>X)&SoXyH&yHH!Sy}p4yy!}HpX}>+GWKFXp>!JXdSXF&*o>y}&SpX7HI7>X>Su&%o}ycHpp+S&+p&7>.p}&>XX.7y&Q4>&4yS7&}o7yo4>)}}FH)p!!X)}&!F}o}F^Jo7&)pS7y?4&S&)s+gX}o;ypH+)&}!HX&7!o*F!+)ySyFS)!>y)774>!o>SpH)o!}7o>&)F)pH&o))&FF&)o>))}&SXXH}>HX)7>>Sopy+H})}}p+4y!F)44!X)Fo}H9p+&pXyo)y=O}>n4p7+&&++yH47)&!)HXp7!X)&&yFpo&X4wH7e4)7+&46&S7}F)4X&+4&)HF)q!yHySo!H/>!F)pSpXo)S>p4+7}>So+7)H}oS!+o7&XFXp!&H)X&>Fu)H>X)&SoXyH&yXXX7Syo+)yFH&)&!)+F&&>&N)!F)&o&F4)X!&}ooX&4oy>7H4)4}+4py>!!+p&o))pXF4oo!>4X:HF})y74XHSHXAoyy4HX)}XKH+pp!X44!&+So}FyM>7&)4uF>SH&>44&7yX7F}yyH>)&&+HFy&>&p4!&)y&7y}^y>>}&o4>}b&p&447&}yo73}4p+)!F)S&HX))o>))}&SXXH}>!X)7y}So7&H4>py!XHH&XH>pWS9)X&&Fo_y7&)pS7y<4>!>XXS&&&o4y&Hy77S}+7&oH>4}!pF)f!!R4}S}X&+}XZoop&4p77&ho}7>}7)r}}+f&pF+4&!4FXo)>>)Sy+)77X}Xo!7HHX7>}KHH&!FS7p>)Hp&S!!d7!>4)7)XH4oy)4F7&yo+)y}4SpXS}oOp)!p)F&!)y&7X4H4>y)774&4oy>04H7p&q+)&+>4+py8+4o4H&54>))Fo2X)o+p4XSWp>yWlpM4}7N}p++0&FX+X!SFoS)F}pS>X}}S+>)o}SS4p7+}}F}ypH47!!)X4&XFF)y&5F4&}y}pb>}4XS>&4o>>S4F)4}+4pp4}7)4&HFHo4F&pS7})yS>y&4}S})&+&X4o&yy47)}}HH)&>}Sh+}7)XSXF!)H>X)>Sa>HoFSy4poH}>oFypHppoyS+p&+F}+S!p)4&!X)H4>oFp7F>!oy>7H4)4}yo7&4>4py}7)4o4H&+p!4X!Cpy&o)>F4&+&X>4Xy+!o+Xy!+y7pH&K!!+)ppSF4))>X4S7+})o!yS44p)>p+H&!4(pp&x+&g}F!)&!4XH%y>&*pyH4}7yyyHXyX4&7o}yF&y&HHpS!y+&o4F4+p>)4!S7Xp)S>}4o7!}Xo}p0H>oyX!o)poF+pH}7X&S)!X)pSt}HS!yOo}>!!474XS+H&)H4)&!)HX&HXo6)>XFHSFF!M+7_)7;yy4H4p!H))4}&oS?}H}po!!)X&}>TTX&y)p7HF7oyS!44SS}H+)y4!&p4yX+ySo!XJX&H+N&!Xo=p!O}}SF>)oXyS}+p)yoopy7!Up}yyHX&S>&VX!F)&o&F>)FS))B+}Fao}yX4>)4}7)oy>FX+)!})S&FX))o>)4!tpXp)yy+XH7XX>of7HHX7>}NHH&XH>p8&H)X&>F^4Y>X)>S1yroX>>4;+A}Xo&yoHy)&}p+7a<FF+&&XF7a>y}pT>}4XS>&4oXyF!}++y7Z77yH7) }}+.&pF+4&!p)7o}X!oS>pHH7>}y+X>+Xpp)!!o&&p!p7Y!})X&>y4 +&p)>o!>p4oy)4}SS}XF}yF})pX!S+fS)!oK)!F)&EoX)Q}!S4X+}X}ooy!HX7}&k+Fp&HH+H!!)S&pXHk>>y4X7HXXoS>vH)7p>y+o&HHXpSXa))&p}SpF&)+7OS>))H>XFyS}}HC7yyX!7>>p+)&!H7pp!H)!&>Fp+y>o4HSFXy4&>}}47Hy}o>po}X+}}y)o&4FX)XS)+>pXF+4oSXF!Sy!p^&y!4+7p>So77)HXpS!+))poH!+X!S4oS)X! &>p4y{!XS+oy+}!op}p4yyH}Hp!!S+7S)}pp!>!)y7oF4oXy)XoS>>Xo+po}Xo!}y4py&F!p+!pHSSoXHTX>S4+7)Xp)y!!))ooX>4Xy+!o+Xy!+y7pH&u!!+)ppSXooH>X4S7+})opyS4ppH}}+y&X})pX!So;S)!op>&X)+oo>X)!>yFpS&}!o+ypXSpo!H+X&SF+6)!p)S&pXH^}>y4Xl)XXoS!AH)ooX>4Xy+!o+Xy!+y7pH&I!!+)ppSXooH>X4S7+})opyS4ppH}}+y&X})pX!So#S)!o?)!F)&o&X)i}!S4X+}Xyo>p&H+o}y)H>pH>47&!4))&F>Dp=!!4oSpFtH}>pX)7X}S++&)}opXyX+y oF!)X&pFoS+FHp77&)>.XXy4MyX!47&XSF}y}Hop!!X+}#3FX+y!S4H&7>yIpy)Xo7H}!o+ypXy7pyH+Xy>Hn+H!X+&&oFy4&!p)7oqXFp>SXX7o&&}=By}HX7>S4o7&XH}pp!p+}o}Fy5>7&XFRV>4oFp})W7}}Xo>:4H&7SS}++&yH}p)!+)+o&XHo!>yHo7F}X+)yX4>7s&c+>yFHppp!oHS&pF+;}&S)}SoX!oX>}}?7Fy&oH7HHF7!}+F(y>}y)4S4F>o}FBxo7&)pS7ym{>S>}4+_X}ogypH+)&}p+7;6H>7>&XX)T!y}pv>}4XS>&4/7yX4}7p}po}L}Hyp>S&FFpFH74&!4)&SyF7H}yoHH7X}S++&)Hpoy!o)H&XFSp5>))pSSFpoH!}4y7X>Hk7Sy4F+Hyy4Syp})7Q!S+FS)!oLF!+)ySyFS)!>y)774>!o>SpH)p!}7+p7SHH+)!!)S&pXHD}>y4XDHX!oS>7}Hoy}y4Xyo}opH!!+>&p}ypH>H)XSSHjo)>pFS&pX+P}>p4}+_X}oF>pHy+o!)+}ySFX4}>o4HSXXSo+y)4pDy}o+HyXHS7E!)+p&SHp#H}})ySX!Hp7&y)FoH>y)S>pX)SP}SoF&)}op)}F+&8&F)p}}S)Xo}F7))>X4S7+})o!yS47p)&4o_p&HS+V!+F!pp!lU)>!)&Sp>p4y>+FpS>y!4p7oH)oX}4)oy>FX+H!X+>&^>m/X!>)wo%FXO>!24XS;&}G5>74Xp)y!+yyWHHppS#+B&!Xo2p!w}}S7y4 SSS477oX>F}y+})+&&&F+hjF}p!74)XSFy}_+S+X&+}Fdo}yX4>)4}X+FA}H+7+ypFywo>vp}!0)pS+y&uF>p)j7X}XQ_p%H)p+S4H777HF44}&)4S)FF40>!4SSp}Ho>yyHXo)}!+SypFHp}!y)XSHFXOS}M4)Sp!SIFS))7oSy)4HyXXy7}!Ho7&y}!p7}>))S)FH)o>))FS&>oo+SX4ypo}F+X7H4Soy!o)H&XFSpV>))ppSXooH>FXSo)}))p>!X!7S!o++&X})7S!S+pSHH}:y>XFH&XF>p0>X)W+}FhZ7>XH)o!}yonyHHp)J!!)S&pXH0>>y4XL)X!oS>pHH7}}y+X&HHXpSX?))&p}SpF&)+7ZS>))H>XFyS}}H37yyX!7yX7+4J4Hy7a}H+p<dFF+y!p4HS>XyooyH4F7yy&o}p4HH+}}>FopX!}py>o)4SX>X4)!>FXS+yo4XS!4y(pX&+!y+HpoS}p++&}>}pp!+)}o}Fp{+>}}}SpX+o}p}4p7+}}F}ypH+p}S}+p&4H!v)74)XSFy}I7S+FpoH>SHb>}4v7p}+F&ypH7)n!FH&pJ!*4&!4)&SyF7H}>y4>+&yH4&74Xpp+S4o&&4F)pFSz))S+y4)SS}F&S7yVk}>:4p7+&&++yH47)&}!HXpS!H)&&7FXo&X46H7s4)7+&4o>!7Xy+oy}F&y4H&py}7X}&}Fo<!>X)}ouXF)SyoHH7X}S++&)Hpoy}+)H&XFSpM>))ppSFF))!7XSo)>HoXSy4}pHX7+y7!HS1o!))!&7FpAy&X+77oX)o!>&4p7y>!o+Sp4>+!ypHo&)}Xp4>o+>SX!HN!>S)p7HX>oyyXX)7!}Sop&HH}py!X)H&XFS7L>))ppSFF))!7XSo)>HoXSy4}pHX7+y7!HS(o!))!&7Fpjy&X)S7oX)o!>&4p7y}!oy&o44pX!)Hoy>}Xp+SoFXp!Fy+p!&4!S+Xp)Syo}}7X}S++&)}dp)!!+&&p!p+!!+Hp&>>!)pSo4)6XX4+o>>HXoH}!HzypFHp>!yF}&yXoB4>XXX,oF>)X>+}ooX>!oySp4&p!}++p7SH7+)!X)SS+X)O!>S)77)y4#U7&4SoI}+H!7p}:p)!!+&&p!p)y!7+>S)X)qHSo4)SFX&4o>&4H7S}yo&r4H>+u}FF}yw!dpSS})oUoXHo!>yHo7F}X+)Sp4Hp!}y)o&4FXc)&o+>pXF+4oSXF!Sy!pL&y!4+7p>So77)HXpS!+))poHF+X!S4oS)X!#&>p4y:!XS+oy+}!op}p4yy+}Hp!!S+7S)}ppF>!)y7oF4oXy)XoS>>Xo+po}Xo!}y4py&F!p+!pHSSoXHtX>S4+7)Xp)y>oHH7X}SoD&)HpoS}FH)y7!S))&H)XpyF}oH!74y.!X>)py)H!77}po}p}HHop})F&&SXog+>XX}o)>po)S)4ooSX7H)7y!}7Hy)H&7SH7po}>X}&p!)_FS&4)oEX}f!p44oLpX!H!7p}opH!!+y&p}yp4>H+SSy!!Zy!744t!X+)p>>}!opyo+)7XH4Bo}>)XpHFF+y!p4HS>XyooyH4F7yy&o}p4HH+}}>FopX!}ppS)Fp&F!)p7SSX)0HXX)y>}HHS7}y4!y&4S)}}++yy}H)p+!+X&S)FFG&So4FS+Xyoy>SX!7yX7+47!Hy78}H+pE5HZp!>o)p&Ey}3774)>o&X4H4yo}&7HyH+!&SHp:H!>)ySX!)p!>S)p7HX}oyyXXHS7>yoFpH}yoS}pH)y/FSpF>)FoS+!Xryyo4F7X>Hh>SyHopH}X+Sy=F)ppyS)oSHFF)SS)4)ppFF)!>SHo7+}X4)>>HS7p!Ho}&yFX+H}7Hy&F>H)y&S)p#)FqoS>FH)oo}H+!yyFopF!X))7pHH?!!y4oS4XXo)So)>*XX+Ho7XX!7y>po&&!H+ppyS+7p)FXlS>+4)&&>&G!S))Xo6}o+HyFHy+&&XF)&X}XpHSo)+(X!p4&!!FXJD>oo+>H)7+&})4Xy>}KpXS4+&yS>}pH&)+ScS>))H>!4SSp}))p>}H!7o}p4SypH+p}yS+Fp)H7)SS)FHSX!y%}yH)77y>!o>SpH)p!}7+p&HF!p>!pFE&&>}k!S&)7oH>y4&y)}X+)X>4Xy+!o+Xy!+y7pH&D!!+)ppSF;ko7&)FSpF&zX>F4F+/}Xo>y:}HpX}>+E6BFXp&!o)yo&F&6H>S4yS&&4o>7G4!+}X5HsyH!}7y&J+S6}Fp)%!<X}&7>o%&>H4S7yX&F4y4Xp+}y!o!&4Hpp}!yX&&&!F4)Sy}}S1XoH&>p47+eX84>7X}S)&}4+&&yH74}!y)>o&F&)}S)X}+}FKo}yX4>)4}X+F6}!)+4}:X}yKF}zX!>}4S>FS9Fp44yxpyX4yp4}H+HS4+&yS>}py!>X&2HHF))!V}}&AX}oX>>!4S7>p+X7X})p4S}))&+F}4}!H4HSoXyPH!7}&oXy!m/7oHF7+}y+yyS}!py}7)4p!Fp+p>+4!&SXp)S>&X)7F}S6p&)}opF}++y&yHS+!!y+7S4!!By!E)HSpyaoySy47pHX!+y7!H}op!+)!yyFp+S!p)+S}y}dp>4)!7)&4oXyF!}+oX+4py&>47&!4))&F>xp>>))4SyXy(4p44X7F&}477+4v)}XC+}&XH>44!+Hp&F!!k7!>4)7)XH4oy)4F7&yoo&7X!)+>ySop&+H}pp!}Xe&}FFpp>yXo7)X}dSyX!}7Fy)o>7SHpp+!}X}&pF+Q}7})pS4F!o)p44X7F&}o}7+}&)}XM+}&XH>44!X)Fo}>+)+!%}}&BX}oX>>!47o>p+)7!4^op}>H!&yHzpH!pXD&!!yvHyH4>7y>!GySp4!p!X&+p7SH!+)!}HS&pF+P}7})pS4F!o)p44>0p}H4!yy47p4S4+yy7F444!4Hp&&>!)p7&4)SFX&H&y)4F7&&&+)y}4SpXS}+y&>>&G+&FF) }>XH4!&447)XFHBy)H+)4}>47pH}y)K}}+Q&pF+4&!F)p&xXXoX!5}T7)}+F4y>)7oyyiHpk&H4p&!y+7o}F}jo>!4XS}y{oF7&4+oH}Fo!y+!K7SyyF4E4!F4}!J)oo&Fpm77uX!_&>Xoop&447&}yo7v}Hyp>S&F)pFFo4&!4)&SyF7H}>y4>+&X!xF7)}>)}X<+}&XH>44}7)X&}FpDp!}}}SyX>H&>!)Fo)y!F}>eH}pX}>X4&SXoK)>!)7SpXyo!>yHo74}X+)SpH)p!X&+p7SHF+)}7FSd)!HGX&y)}7HF7oyS!47S>})+)yH}op)}F+&poFHk!!y4oSFXXo)&p+S&X>Hz7Sy4F+Hyy4Syp})70!S+FS)!op)!F+&S)F&H4!&)>S)Xp4HyX4&7o}yF&&HF!py>o)FSXX)oo>)4!S&XpoySX4ypoX4+X7H47oy}FFHpy}Spp&)+uSSFFo)So4)SFX&H&y)4}SS}XF}yyH>)&}!oFp)!F4}}%)}SXF>H4>SHo7)}!o7ypHyp!}y)o&4FXj)yp))S!H&6p&S)F8)F74S7)XH7X>yo}&H47pyy!+yyEHHppSJ)FpyFpoH>>4y7o}HoFyyXX7S!o++&X!}p4&V)o<4FF)SS)X4SXXSWay)})opXpo+y}!}7p}++}u}Hpp4}!))o4FX2F7}X)<4!p5!p4)&74})oFpIH)p+S4+o77}y)4Sw+}&sFp9+7&)FSpFzoXyX)r+{})++ 4Hooh&FX4y&F4D)!FXzSF!yEpyH4>7y}o+HyFHy+&}}F4&H!}p>SoFXc}Fyoo>44XoXy)b>SX4++oyX4!yyXp7&!!++&p}S:+}7)XSXF!)H>X)>Si>HoFSy4ppH}>+y7!47op!H)!&yXo04>X4)5oXHo!>>}ooX}X4)>>XSpo!H+F&y}X77>o))S!H&dp>yF!S+!pv>7!Xpoo})4Xy4Fo7>!XHHyXH>7 !X+to}H%p7!X4)q!Xy=<>H4p+Y}F4yypFHp>!yH!y7}pBH>!)y7oX4oXy)Xo7H}!o>po}XpXy)o>7SFomH!F)ypXH7oo>)4!&&XpoyS!4+ipX>H!7p}op)yX+4SoH>aX&H)X&>F04L>X)&SoXyH&yHH!7y!o+F&XF)Ko!))!&&FpEy&X)S7oX)o!!&4p7y>!o+Sp4>+!ypHo&)}Xp4>o+>SX!H;X!>)Yo*XXu>>9}i7XX>oUpKH>7F}p+p&o}Spp!+)}pSFyB>744)7!X7opS&HopH}X+S>JF)pp&po9&}FXp>74)+ppF>4!SpXo7)X}iSyX!}7Fy)+X&SHNV)&o))&FF&)o!))F&&X)W&p4)&S>X)op7HHX7&}o+yh&H&pH!S)y&&y4*>SG)F<!X>{S>F!47o>pH}p}}>)&!4+HM0F)W+74FSpu!y(H7Q)}SWXpo+p&4p77&?HX7>HH).}}+G&pF+4&!p)7oMFSp>SXX7+&X4o&yy47)}}++yy&F)_)}&X&&pF74#!S+>mX>SH&>44&7yX7F}&oFHpX!S)+S)FpQS!p4HS}XyoXS)4X7SFs+)7o4>oX}+FopX}!pyyp+&S!F+/p&S4+&7XXoX>!XH7XX>o,7HH!pS}p)H&>Fy9X&)+oyy!!_+&p)>o!>p4oy)XX74!oo>&X}H7X}>ov&XHQ4}}t+7&XX))!>y)1SHXpHDy!HS7p!H+>&yFXtH!X)S&%X)jp&y)p7HF}oyS!4+rpX>H!7p}op)yX+4SoH>sX&H)X&>FC48>X)&SoXyH&>p47+VXS_>7X}>)&}4+&&yH74}>o4HSXXSo+y)4p7SXp+Hy}HypXy)+X&S4WT)&o+>pXF+4oSXF!Sy!ps&y!4+7p>Sopy44!p)S4+>7pF)3!!7)pSHX!N>>pFy7o}HoFyy}&7}&4+Hp}H>)o&XF}&yXoD4>XXXo)X)nF>&}&7)XFo&p&H)7}XS+XK}Hyp>S&FXp}!)pS7}+:S}XX:>p44X7F&}oH7+Xp+}S4o&&4F)pFSM+>S)F4iy>y)4+4XXoFp}4Ho4y>F}>_H}pX}>X4&>}pg)>!)7SpXHo!>>4povX&H}y!}&77&HHyp&HpDH!})ysy>Xp7&y)FoH>y)S>pX)S_}SoF&)}opF}++y&yHS+!!y+7S4!!?>&p4)7!X7opSS4+o)}!+SypFHp}!y)XpHF!US!7XHmyXy)X!7Xo7H}!o>ypXy7+!H+X&S4O;)!pHS&F!)p7SSX)/HXX)y>}HHS7}y4!>y4774}y+40&H4p+}y)XpSFp24!!4)+4X>)py)H!77}p4Sy+})p!!S+pSHF}iy>XFHS!XSd77HXy7y>XQ77oHHp!}>+p7yH+kH!X)SyIX)3p&S)F0)F74S7)XH7X>yo}&H47pyy!+yy7F444!y+m&HFp4.>!4SSp}Ho>yyHXpH}X+SyqF)ppyy)oSHFXgS}84)Sp!SdFS))7oSy)4HyXXy7}!Ho7&y}!py}7)4o4Fyp7>4}4SyF7o4p44yS7}4F4yy4C7H}pFjynH!Ro!p+no}X)))!)4SSp}Ho}yyHXoHX/o!&oHp7*S}+&pHH#p!>o)p&ny}K7S))o&y>!o}Sp4!+FX>)X7o4=p&!4+>Sy>}po}yX}&HXSo!>y4+7}})I&7)HF7)}F+Sy}HppH!+X4&>>}<y7))&SHXSoy>&!47y>p++&!HyppyS++&yH}p)!+)+o&X)o!Sp4p7SXp+H7>HypXyH+Xy>HO)4!S)!&FFypH!p)FS&XXpgSX4>SXX>+o>&H)7!}FF}&!!&ppS4+7dpF}Eo>!4XS}yZoXSy47pH}X+yypFH+y!y)!&yXo)F>X4)ppF>)!>y)774>!d)p)XS77}oo>0}F++)&yF&&pXHp}>y)YSoy&z>SX4++oyX4!y44SpH!)+4:&F)+X!44o&>XX)H>)4++4Xy+o!7HXo)>pHX7p}p)&}4+&&yH74}!74HS>>y4)y)Fp&S}oH4yXHS7x!)np7SHpp4}!))o4F>oo>FXX#pXp)y!!)SoM})+!y&HpSyy!+yy7F4+!!H4ooHF!4HSy4y_XX>4oy)4F7&yo+H&!Hy(o!F)XS)}pp}S&)pe9FO4}!7})0SXpo+y}!}7p}++}6}Hpp4}!))o4FXYF7}Xo9&!,)y>7}wS}Xropy+!&7p}7F,&F}>)o&&X&&4F&9y!7}}SyX>H&7H})o4}FF}>KH}pX}>X4y7FXp}!p)p&}y}Ky>>}&7+FF4)7!}+)4X&+4&)HF)Q}#+!SoFpps7}4+ )XXoSy+H)ooX&oHySHy7&S4+47pFH?!!7)p&&FHVS>y)&+4F&)pyHH!77&oHF&X}Hp)!+F&y&}7)}Sy+&S4X),F7j4)7+y&o4S7HHp!}7FopXFX)X}}+%&pF+4&!>FXSy}oo4yXXH7XX&ooyy!&pH!!+7ho!HOX&)+:pSFpN+>}}}SpX4{!y)4y7>&4o&7}HS o!FF!ppFp)p}P)}SXF>H4>+Fp7)}!o&ypXS7p}4o!&)>4pS>o)FZ!!S5p&y)}3HXXM>>s}37>XFopypHooS}p++&}}S(o>H)XSSX+o)>pFy&!F)4o>)4FS&})o&E44&7>})+ppHFXp&!o)yo&XHo!>yHo7F}X+)Sp)SSXyH+Xy>Hv)Q!X+&&oFy4&>+)H&7y&o)SX4ypo}F+Xp4HXpS}s))&}H!44!S4oS)XX))!7)pS}>HoX>>4roH}Xo>ys!NpX}&+o&y>&pp!7Xib!>X)}>>}&S4X&oy>7!}7+}yo&&)F)7&S&+p&7><)!SFF}S>y&{4>&4yS7&}o}yoH!pX}}F5yX!&pXS4)y3&F444>SX&S7y4mS7&4S+4}oH&>y}Hp!!S+pSHF>wy>XF)S!XS3pyH4}7y}X+HyXHSS%!)+p7SHF+)}7FSP)!HzX&y)}7HF7oyS!4Spo})+!y7HppyyXo7SoF)(!!&)pSy!!0+&p)>o!>p4oy)XX74!oo>&X}Hp!!S+pSHF>2y>XF)S!XSzpyH4}7y}X+HyXHSSG!)+p7SHF+)}7FSq)!HxX&y)}7HF7oyS!4>Qpy}4!>!H47p}}+y9&F++FS)Fyo}F#xo7&)pS7yf4>S&47+IX}oJypH+)&}p+7n.!X+&&X)>o&F4U&>y)7+}Xyo>p&H+oFy)H}Q}4Up}!X+>o4H7GX!})pSpF}H}>y4>+&y)4}y>!&74}&+yy7>}p7&)FpYF!!K7!>4)7)XH4oy)4F7&yo+Hp&Fo+_}}FypHHXp>}G)X&6y}pA!7)X7)>!oy>(4H7p&I+F7y!X+7&o))&FF&4&>))}&SXXH}>y4>+&}+4Fp)}y)}XQ+}&XH>44}7)X&}FpGp!}}}SyX>H&y+)Fo)y}F}>jH}pX}>X4yW}pp)>!)pSp!So+!74X7XX!4HyX4>7byH+S7y4pEH}p)yp!Hyp7!4)yS4y&24>+)y7X>Sopy44!p)S4o^7pH)w!!p)ppSFpM+>}}}SpX+o}p}4p74X!+)a4HXpFS}+7p4}p)}74+&S4X):F7V)XlyXp4HyX4&7o}yF&ypH7))&>H&&7>(p}!=)pS+y&9F>p)x7X}XgGp9H)p+S4H7>7}yp7S{+}&ZFpT+7&)ytXX74oyF4+7y}yoS7!Hy77!4H!&p}p34&!+y&7F4Ny>4}&S4X+;yyXXS7p}4o!&)>4ppyp)4p!Fyp7>4}4SyF7o4p44yS7}4F4y>Xpp+&!Hpx&F)pF!&X&&>!X:+7oXXZ!Xy)p>&H!7+}p4SyH})pX!S)+S)FH+y}!)S7oF!oX7}44o^}oH4>S}S+)&4+X&SHO<)S)FpyX!H/o&yX4_HXFm!>+}:7X>yoHp4HXpSX/))&}H!44!HHp&S>!)pSo4H7!XyopSy4SpH}o+y7!Hy77!4X4&+}pp>S!FpYoX))X>4HoS>}X4Hy!HS7p!H+>&yFX+)}!)S&pXH/}>y4XfHF7)y>F}Hoy>Sop7)4tpS}F))poH!+X!y4oSFXX)H!)Fy7o}HoXyS4ip)}p4S&oFH7S&SF)S)}p7p&!)S7oF!oXS)))7SXp+H>}HypXyH+>yFHppp!oHS&pF+R}&S)}SoX!oX>}}/7X>yop&HH>py!o)H&XFy)&!S4oS)>!)p>pXp&pX+b}>p4}+CX}oF>pHy+o!)+}ySFX4}!})oS!XX_}7M4XhyXp+Hy>Hypo!H+X&y!&pS>o))%!!p2pSp)pS+X}H}>p4+7}&}opy+H})}}p++&}>}pp!+)}o}FpN+>}}}SpX+o}p}4Fo)yyHSyF}HpX}>+ApHFXp>!_FH&>X)pq!y)>S>&4o+yX!}7p}++}7SH}po!!)X&}>5b}&yX4&}XFo+S!44SS}H+)y4!&7&yXoH>p}Sp}!o)!SXF}4A!}Fyo&>pH)SS4}7o}!+Xy}!Tp>yyFSZ!!o)(!7+y&7XHpQ>X)SS>y&o+p)4&7H}S+yy&>4pSyp+>o4F4pS>H4)S4y&o+SXX,S4y}H4p?427!!o+py{>}pp&)F&yx>4)v7&4H*XFHH4y+)p7+}!o4yyHo77&f+H=XF)W+74)>p7>}p&S7X)+}Fzo}yX4>)4X7+Xy44p77}7X}&H>.CX!>)uoZXF)y>7}Hoy&}op7)!4p)&!H?y4!X))&7)XxyFH4X7XX}&&>S44p}4+7yX}o)y+H+)4!)Fpp;H4)}SoF)pp>}p&Sp}&7XXFo&p4H+Sp}++!y4Hypo}7FlSo>X9)>+}4S+FSr4p44+po}H+X>&H4p)}FFD&X}yppSHF&y5>4)p7&)>7!XSopSy}&o#X44r7C!X+o!FHX%!F1)H&SX!doX4)X!H4FS)XFoS>}4p7H}+F4ppHd)}S)))&FF&7p&S4+()X>4>7F}!7 yXH47(Hl+4&oF!poF)pF!&X&&FFpp&!X)FSFymQ}>F)p7y&&+)yFH&))So4p&>FFo)>)X!SyF>.37f4!7Sy4*}7yHy+&yWo4pX}7+7So+!by>XpS!FX&SyyX4}!&Xzo!>y4X7Z44+}S4+py7F4)&!>+X&>Xop&>))!SFy}o!7p4y7>&&o>yH4&)&}>)!&SFpp4!&)y&7y}^pS)4XoSy4:}7&}X)4}+)o&HFX+)S4F}y&Fp)XSpF!S7!ppSy+}+o7&o+}7y}4)}!)F!pOFF7X&H+QSSHgo)&p4HSpy}H)SS)3o)X}HSp&}p))yS)+SH!yZy&XX!Sf>))&7!X7o>}++H7yHyo!}&)opFFX+)&&oO&7F>)o>))FS&y&AF>p)&SXXFoFp%4}7FXp+y{&F)pF!&X)oo}!+>&>)*7Hy!oy>>4*+u}!+Sp44}+>!yF&&o>o)}}&)7S}>p4y>o)>oOXpHy7&)x+4yS4p7y!47}&>X}S)F+P}S;)7&yF7oH!04XSSX>H&yS!)7p}7FWy7H!7TSV+7SSXoo)!})jSpX+H&y)XX7y&oH}>&}N+yS}+FSHF!Ny&XX}B&H5)pS}})9SXpo+y}!}7+}yo}y)H+p+S&+4&+Hy_X7})pS+X}4p7S)FVy!Hoo&>!HpX}F+&/&FH:!&g+4.HXX4}!SXSo4F}4y7}Xp+X&)o!y+!L7SS}+p&+F})pS}X}SFF)jF>S)}SpXHo+p44!+y}X+FY}H7++&&o;J+!y4&!4)&SyF7H}>+4yS}X)o+y+!&7!S4+yy7F444!>HpS+>!)p7&4)1Xy}oX7S}4S}}}HF7p!)7S&pFppgH4)4&7Xs&>X)p2!y)>S>y&oypX}}S&yaH!7y}X+O}4F}o4Fpp7>4X&S>FXP>yo)&7)X!oFp}H!+p}y+>M&H>pH}&X&&>X!RS>p)4S&Xy<7p}4po)}XHSp44}+&&XX4&+XofH>XF)o4>}p&>yX&op>!o&&o}FpXy)F4&4F!+7!pF7E&F+vXS*)7&yF7oH!t4XSSX>H&pX46+V&y+yy7F4)}!}X4SF>y4XSp)>Spy}o}yS})p)y(oVp&H7))&pFyOX>o)X&!)47oF4oXS))o&y>!o&SpH4p!y7+p7S4;+)}}FS&P!HUX!>)_o(F>o)!()yS>X>F4>&4>7)}pFK&XH>p.SXXH7FXSgo>!)yoSXp,7y4!47S!oH}>&}7pp&2F4y}!yvFS)XH&S>p4y>o)>o:XpHy7&):+4yS4p7y!47}&yX}S)F+N}Se)7&yF7oH!W4XSSX>H&yS!)7p}7Fcy7H!7CSe+7SSXoo)!}) SpX+H&y)XX7y&oH}>&}k+yS}+FSHF!ey&XX}%&Hg)S7XXo7)XFo&p&4F7pX&oXyFHF)d}}+FypFy4&>))FS&y)Ho>&FX,)F7oop!Hy7>}^Fu&!FS)4}}F!Sy>&lo7oX}&&>X4!7p}y7oX>H_yp!y+&XUF4pS}p+yS4+}:>y}o)>+4}o0X72y>7HHSR}XoSy>!&pSS)+p&7>np7!!+RoiF7oSyoH)S}XBopy+!&p)yX+yJo!}7&&dFyo}FFoH>!4y%Xy}4&!QH)o7&)4Sy}FH7}!yHX&&FX)USyFH&}!ypa7H4}TSXpo+y}!}7+}yo}y)H+p+S&+4&+HyAX7})pS+X}4p7SF)7FX4o+&>!HpX}F+&N&FHV!&V+41XXX4}!SXSo4F}4!7oXZ+X&)o!y+!B7SS}+p&+F})pS}X}SFF)aF>S)}SpXHo+p4HF+y}X+F/}H7++&&o?j+!p4&!4)&SyF7H}>+4yS}X)o+y+!&pFS4+yy7F444!>HpS+>!)p7&4)IXy}oX7S}4S}}!4p7p!)p>&pFpp{H4)X>+X2&>X)pn!y)>S>y&oypX}}S&yVH!7y}X+Y}4F}o4Fpp7>4X&S>FXb>yo)&7)X!oFp}H!+p}y+>6&H>pH}&X&&>X!cS>p)4S&Xy<7p}4po)}XHSp44}+&&XX4&+XoEH>XF)o4>}p&SyXFop>!oy>7H4)4X7+Xy44p77}7X}ydH7pX>)}4SyF7o47y}!pyX}4+SF4F)o!)++&}>}Do>HF&yj>+o)74X}&&>S4Xy+}!77&)HpyH47)4!)FppAH4)}SoF)pp>}p&S7}&7XXFo&p4H+Sp}++!y4Hypo}7F5So>X=)>+}4S+FSt4p44+po}H+X>&H4p)}FF?&X}yppSHF&yK>4)p7&)>7!XSopSy}&oEX4Ho77!X+o!)+F&&>&pF!p+&&XFF?F7D)}SFFpoyp&H)7F}&F)lo4pp!y!+S&y>!8y!>)RoiX!oS74)}oy}yH&y7!o+}X&H7pX}8)ySX+S&F>&/y7XX}&&>J4!SyXXotX4HXh4Hp77!4F&&>HXp>>o+&S)F!jF7}4!opXyo>p&4>7HX&F&y>F!pS!p+4&&Fyp77})p*)XX4S74)}o&yXF4y+FopH!XH)L4!}7&&SF&tp!!fy!744+4F7oX>4)pS7X7F}>#477X!)X4&yH7?4SyX!&b!XoSyo4>+o})o+y}!}po!HH&>c!oe)S4)Fb!!2p4SXXoSpy)4p>H)7+&}FF4yy47p4&yo)&!FS)4}}FySy>&)z!4XX6y>X4}7p4p7+}}Hp>!4)+o}&+H&SFyp&74)yppF}4&>}}4S&yyHX7o4&p!y7+p7y4!7)&o+&S!!pQp&y)po}F2oS7)H)+)},/S>7F+Sp})+}7HX!pH!})!7HF4+)&p)>SyX44oy)XXSU&4oIp&H4))&p++&yH}p)!+)+o&X)4&7+X7o>yy4HyX4>7l&fo>&)4E7y}>+>o4FS{XSZX&S>FX,>yo)&7)X!oFp}!)7&}H+S&yH&44!+HpySHX<4!S4H7)X4H&y)XXoTX4H}p)}H7m}!)o&pHL4}>oFHS)X+H4>oX777!7Q>y447Sy!S+yu}4Ap}!X+>o4FS+p!!XF7F!Fl+>&4FS)!H+)p}H!p)&y+yymHHppS5)!py>S4!>X)>S6yxo)y+!47oy74)SyH!oX>o47y>Fy)r>oX4&S>>)oyp)6?+X))!&!Fp+yX&+4&)HF)b!XHy&p>H)&&S)pS4F!o)p44yQp})H!7p}op)}F+&5&H>N!!y)ppy>4p}S&XFd!X++o>>H!7y}pHSp44}+&&X)Xp)!&7wS4FSGoFFQp!&)XSFXFHh>7XS7p}++}pp!&)X&hF>gF>+4)>))FS&y)457&4>SXX>+o>&H)7!}FF}&X!&pFS4)!:&X+44>}X&S}yX:_>!Ho7pX;F}y}}Hp)!+X4p&}7<)74+&S4X)kF7c4)7+&447S7H))4X&+4&)HF)b!))+o4Fy77&yX4ozF}%<>p4++&}4oHp:4>p)XMoyy>H>44!>+X&>Xop&>))!SFy}%77&4p+4}!HpyyH>)&!HX4y&F4#)!FX0&cF!oo>p)Z+}Xp4)p44>+Hy7+7p?Hp))&yFpMy>y)>>>X&o}X!4y7)}XopyMopp)}y+p&!Hpe)}Sp+!y+}&)F+_+7&4)oXXyHX7XX!7yXkoHyp!N7P}!)o&pHU4}!pF)d>X>4&>yXpoXyy4H>>H)SEXyo>y>!&p+SXFk&p>HrXSpFFd)XX4py)4+7}&}H)pc4S7FS4HkpoF)pF!&FoS)FFC&So4)SFX&4oy)4}SS}XF}yWHo)&}F+py&HXpF!FXW&7>w4)7XX=S>y&4&7 H4+}}7HM&H!}p+S)F&&F>})XS&)Bo4X>4&yo}X7XX>o:7HHX7>}EFR&XH&po!yX&&pF74sS&F&Spy<b}>w4p7+&&++yH47)&}&HXpp!y)&&SF7o&X4hH7?4)7+&44SS7H))4X&+4&)HF)E!}+!o4H7YX!4+p&7F7H}7)X>oHyo4S77}y++&}H>pX!))o&>FY#F!p)>7&4)SFX&4oyF4+7y}yoS7!Hy77!4H!&&HS4}!+)y&}F)i+>+}&S>y&4pp)}&7F&}H}p&HN)4!>F&So>4p7SpX}S+y44)7}4&o2}FH}yS!)p)}F+&poFFp+!y)y&S!!vy!744v!Xy<{>H4p+r}}o!t447pX}4opy7H74}S)F>TH>o)SS7Xyo+y}4>7X})+oy>HUpF}p+>S&))&FF&)o>))FS&y&o)>F4&+&})o}>SHX)}}y+>N&!)+F&))Xo}H3z}>X)>+4XXoFp}}+o4>p+)Q44&p4!)+F_YH>C)!4)ySyF4H4>X4F+}>p4+yX!}S2}}+Xy>>4p4}S)HS)F44&>)FXS7>o1&>H4S7yX&F4y&}^pF&}+47pF4)&&7X)pSFZho7&)FSpF&#X>F4F+%}Fo)yFHS7}}p+H&+>4)p!})oS!XXt}7b4Fo&F3H4y!}&7Fy)o7pCFo)4!XF_&p>4DXSpX}Syy4o)7}4y+)ySHopX}op)&&H&^)}Sp+!y+}&)F+W+74)>o>X&H)7S}&7S&++Fpy!H)4}4F>&4>))S!7FHSXF>1:SH4XS>Xn4Hy>4F7p}p+o7SHpp+!}HS&}Fo5!>X)}oMXX)yy+XH7}X!F4>7HX74Xpo7y7>}p7}y+7SHH.8X!S)>o&yXLU>!Ho7pXWF}yF})77&,)o_4FX)g!pX4SX>p4}>y}47)y}oyp)}po!}yF4pX!y+H}>))yPHyp>!>}4S+>oo)>F4&oo})oFy&}o7)}Fo&&)H&44}&+>&)Fp)H>X)&SoXyH&>&4H7S}yo&:4Hyop!FH!&&HS4}!+)y&}F)h+>+}&7+Fpo+y!447y}oo7pN!yp4}S)HS)F44&!>FXS+y4oH7}4y+4})H}yy!)+&}pF}&X!&ppSXX)pSFp4}SyXp6!F7oX>4)pS7X7F}yF}HpX}>+QpHFXp>!RFHSXF>Nk7.4XS&Xooyp&4p77&(+X7&}S)l}}+l&pF+4&>4)Ho F>o)!_)yS>X>F4y&FopH!X+yy7F4+!!y+u&HFp4b>)4++4Xy)pSyX&+UX}oBypH+)&!4+H5VH>6)}<+y&>F>H4>S}47)y}o+y)4&+}}SF)7SHpp+!}X}&pF4p!>)}4S&FSH}>+4yS}X)o+y+!&7H}po&ypF)7c!p+}SXX+q4>XXL&!F)4L!SH!+!}S+!&}}X+)!&Hyp!Fm)XS4F}SE>X44S}}H7y>Xo>>X4>poX&+)y!HF)}!XF&So>4s>S&)No4F74p>y4>+&X>F4>&H4p)}FFTy>F)7J}y+>&>y4kyyo)>7XXyle>H4p7X}FF}ys!J7}}d+p&+>&pF!p+&&XFFeF734X+}Xpo4>!H))4}y)o&HFX+)!>X}&pF+k}7})pS+X}py7y4yS7}4F4yy47p4S4+yy7F444!y+7S4y48y!744+4Xyw7y4}y+4y7H>pF!X';GelRgycPktWe_bxZO_QYhAppQjjVih_y={"3w*NN0rsNL0*wiLr{{Lkr!{K{0!S*3s!NKKik*kd","3S3r{sds!irLsddS0rLsdOOi0k!0kw*w!swOL!{k!SrKiLdrL3w*kiLs3iSdirrOS!k{0i3wr3dS","Sr0dLssNsLrwwid0LNKiwLsdLir{{*LsS!rLLwrLOsL","NiOskr*O!Lwd!wN0rkK03{r0sNirSKsL{LiKwd0Nd!rrNidks{*{KS*{drdk{iSKr","SKdsOd*LKs3OrNs{{i{L0r3k0*0SrsrLdK!kNi**dwLwNs!OS{rS*!dSskSd!NOO{SS0i{idNs3sLOLrd!3*rwL0!wr3k!r","O0sri0*{!*skNw{ds!NidkNskikK{S3w*NLkkLri!s{3dLL{iO*dkiSd!iw**O{ri","K{w0!LkKd0{wL0*OwksdL0{0dwk{kLdrwd*NKOOKNwri*k{{r3k3SNrwdL{KLswswwS*kwLd{NOk*NO*k0K*OL**wrr","0kki!**K!k*SOKN!s*3O0NSs{!ws03OKO!{d3*iL3irrw!N00rNwsk0O!Ls00dr*{s0","3*Nwk{w0w3NsSdKNSN0sd!rKd!i03*dSiLs*!*L!{KK","330O{S3{{{*N0!dKSN3OOL!r!isKiiKsrSOKw3!K{iOK!rkL*0ks*3sS0!k3rk!KO!OKSOLKi{","rNr{Od3**0Swi0S0K0NOSwLwkLsrNO3ks*id03SSr*N{*wr!rOi0{!k0Si!wLNLOL3ri3*kO!K!L0SKwNs0ONisdNk0d*wL0KwLOik0","O3i0iONr*300LN*LKKkisdSKrsr{w0diLsd*00NkrrNi!rL0NiwK0!KrSOKrOs3L33wdd3irNLKN{{O*OSsw!!OrK","0OdSKwd3kiSiiL0wiswwwdO*iS*s{sSKk!sd!k3swir**wr*0{SLiLd!kkkSS3rNLwN{NLwrL{N{{Kr*w{sdd{r33Si0wN{SO!{0SSOLS!swLKd*rk3idk0Kws*LirwLLSwk!!O{rds3iiKSN0KSLL{wSw0!*Lr*{dsOLSd3*sSsKNK{wiOK!*k**{SN!rSk3*!03{sdSSds{!sNd!d*s{KidSLOwsk3*rw*L!wSKsrN{!wr!sS0d!3dKr00r!{0ONw{0K00k!rO{*SsS{*0dKKsOLdO*0{SsiwKd0ww{0*!SL{wLwr!SSSrkS*dkLLdiw!wNN00k30LL{N{d!dk!O03LSNi*O{!Sw00!3LrSr*!*wNsSNiSLk{d!i*0!O3LdrdirKwO!i{0Kr*d{wi0d!*3sr{dNikSdS0*03wN!SS{N3!s0!{d*w*sid3rdws0K0rw!O{wiwNON{rw3iSw!s03LNK0rS{rw*wkSS30{{wKSLki*N*drwS33!kdSrS0i{{widNri*s00rwKNNwkk*!Sk0sSdkOddii0i!dddkr0KN**0LdNLSk{K!SS*{3d0N!Si!LsdS*!Siw*wNkwd3OOSNSON!3iL3SOiN!S{3irwSLKi0ssKOw{3Lw{LkNKi0O!0Ss{OsS{Sd{0ON{i{LLSKiwKOOw*kKwS*kS*wNdS{SirLLwLk3*w{{w{S*0isS*Kk{{3iSNwO*dO0K*3LS3{skS!0r3SLL*S0sidkwdwKSSs{3K!kkN*Sw0OiwSOiswr!OdrwS3!w*0Kd{{OL*SkKw3w!rS!{wkkO0rLdrrdNK{iirr{wrkw3S33L3SiOSd{LidSSLdK{SO!drd0{LO*LrN*{LL{0iw3r*w*SrwS*L3!wNds*Si30OwL3!ww{N*sS*rw!S*OKr{3LOLi!O*r0KOSwSr!kSS!dNr{di0i!O30OSNwrd{!rKs0!rK{S0*{!iiiLOw0wii0s0ki!{LSKSNKONdk{dOiw*KKrwN0{wd*0dSN!*si*LdkSOik{{{{OwSi3SwS3wKLiwKK*dN**sSrdNL*Lk3SN{KssSki!Kw!0kL{w{*SwSL{0rdw3{w*r3di!3N!Ss*sk!3dSNrd!0ii!Ls*0KO3{{r3r3S0SNSdw0{L0rrNOSN*rk0{k*K0KNS{{dSLLSkL0!03kwdSOS00!{KOOdwwSiidKr3w3sLdrwSSswdrr!SNK{*i*0LKdNO!kSsL*i!3{d*di*0r0sdi!ws!3NSiskNwN{NkdSds!wKKK!dNO3*Sk!!L*L0Nkr**dri0*!K03dNr0r!3ww*k3dS3idNwK!w*i*k3Srw0S!w*rd*Nrskdw30SsS3SN3{wwLi!*OLr{d{ikSdw{kdNLi0S3!Sw!sS3!rd!!0iwL{ki3sw!{wwr{!*kwO{d0{*SSKiLiKL!LddS{iwdSL0d{dkk0rsw{wS*dk033kw!{dk!S3!s*w{!diiwS*L{*i!w!NOSdSwwL3iS{{id!sdkSLK3i0Od0!SLNkOSK3{Sd!iLsSKO*{!dSsOSNrLOi0SOrw0N30SN0r0!ski0SNKw*SOdKwSO*dOS{0iw*LLdOdi3!dSs3sLi!sk{NdkKi!{K*0dw3Orw*!3Ow**rr0OK0O!3K*3rdsi3wOk**SKkK0{wk0k!*sKN{dd!wSdi0NdNw!dSssiS!3KN3dii{rSLsS3d!rkO{N3irSiiKSdw*Nw0r0K*i*skr{dKsK0KwSL0LNL3Ski3rSkKd3NdLL!wi*O{d!Sdrdk*0wi*!OS{s!KL0KLOr0LsSNSkkOSSdN0!N0rsr*L*SK{dO33!OSSiSNks0{w3{NSKsdOSisKKwOw{Si*{0rS*w!SSKOd{dw3r00rS*3SN{{30{iOw0KKLd{dNwS0s0Lww0{rOd!wK*w{sSOSri!*iidi0Sr*NNSNSi3!3NwkS*rK3iiwOrwd!wS03!*KS*ir!d!w0{isKisSNr{{0{*O{0KOww{SNkiirSd3Ssw3r0LOwK!k*ikS0iNNwLkw{wridSSrs!w03rwdd*rOOwO3NwikSK30OL0{S*rrd{L{NwSOkKkiiwLNddLww0KS0S0L*!kSkOOwSS3rwd0idKi!riNd!ONOiss0OSNrOr0{0sd0K!sd{0K!dirrL3i3{rN{wNLd!*OwO{d3OdSk{dwiKS!Sd0K*d!si*{S0!w*dkdw!SNwsS0{L0O0Kk3L{dONOSLs0dSL3{r{wwrr!*Kdk{SrdwSkNkKS3!Lw{{LwrwSN0kdKrkiSkdi0w!{L3{wKdk0NwKdd{Sr0isrkiiik!iddL!k0KwKr0LLNiSk!rNSd0Nid0Ls{i!dwO{d{0k!Os*3SNO!w{!!r0wL*Srd{*3*wNOi0wdddirwisN0KS3L0LsS!SkN{{SNK3L{Nr3dS!idSS3SLLSLO!Nd*r*3{wN*i!*0Or{SkiiSkSr{SNs{s{NLSLSi{wKS3i!w0r3*3id{0S{d*{NwikSkrd0siiikNrwrwksS3{KiSKO{wdwONkw{KNii00wiNd!i3!{LKidwidiw*kiiw*k!d0O{r0!3kiwrd3!iw*SKwik3O*SO**r!Oi0KdwsdSS{ri{iSK3dSirLw!3L!0d*riOid0!Ow0k*r{{0**wSL0NdK!iSSkr*Sw!r0{{wd!{0rNd{d{*sKSLNw*i*SwSS**{Kwk!dLs*kOw!O33wkOwKkiKK{K3d{!*SLi{",""};return(function(r,...)local h;local d;local l;local t;local c;local a;local e=24915;local n=0;local f={};while n<700 do n=n+1;while n<0x1e1 and e%0x103c<0x81e do n=n+1 e=(e-171)%16781 local s=n+e if(e%0x2c04)<0x1602 then e=(e-0x35b)%0xb231 while n<0x2b1 and e%0x1a92<0xd49 do n=n+1 e=(e-1009)%34645 local t=n+e if(e%0x1e88)>=0xf44 then e=(e-0x3aa)%0x6245 local e=1103 if not f[e]then f[e]=0x1 l=string;end elseif e%2~=0 then e=(e*0x98)%0x9f60 local e=21152 if not f[e]then f[e]=0x1 h={};end else e=(e-0x1a6)%0x2f05 n=n+1 local e=38455 if not f[e]then f[e]=0x1 d=getfenv and getfenv();end end end elseif e%2~=0 then e=(e*0x2ce)%0x814f while n<0x2a0 and e%0x1cd0<0xe68 do n=n+1 e=(e+428)%26883 local t=n+e if(e%0x4052)<=0x2029 then e=(e*0x126)%0x6dfe local e=17904 if not f[e]then f[e]=0x1 d=(not d)and _ENV or d;end elseif e%2~=0 then e=(e+0x38f)%0x666e local e=54271 if not f[e]then f[e]=0x1 end else e=(e-0x1f2)%0x5e70 n=n+1 local e=63810 if not f[e]then f[e]=0x1 a=tonumber;end end end else e=(e+0x2d0)%0x3bab n=n+1 while n<0x1bf and e%0x49cc<0x24e6 do n=n+1 e=(e+84)%6624 local s=n+e if(e%0x2622)>=0x1311 then e=(e*0x2cf)%0x3b26 local e=16035 if not f[e]then f[e]=0x1 t=function(f)local e=0x01 local function n(n)e=e+n return f:sub(e-n,e-0x01)end while true do local f=n(0x01)if(f=="\5")then break end local e=l.byte(n(0x01))local e=n(e)if f=="\2"then e=h.VitBJbyU(e)elseif f=="\3"then e=e~="\0"elseif f=="\6"then d[e]=function(e,n)return r(8,nil,r,n,e)end elseif f=="\4"then e=d[e]elseif f=="\0"then e=d[e][n(l.byte(n(0x01)))];end local n=n(0x08)h[n]=e end end end elseif e%2~=0 then e=(e+0x3ae)%0x437d local e=83596 if not f[e]then f[e]=0x1 end else e=(e+0x1b2)%0x696c n=n+1 local e=55112 if not f[e]then f[e]=0x1 c="\4\8\116\111\110\117\109\98\101\114\86\105\116\66\74\98\121\85\0\6\115\116\114\105\110\103\4\99\104\97\114\68\66\118\83\83\65\103\75\0\6\115\116\114\105\110\103\3\115\117\98\83\77\88\83\121\102\76\95\0\6\115\116\114\105\110\103\4\98\121\116\101\100\75\66\111\68\83\81\112\0\5\116\97\98\108\101\6\99\111\110\99\97\116\116\88\97\109\88\72\90\112\0\5\116\97\98\108\101\6\105\110\115\101\114\116\79\74\86\66\97\95\98\74\5";end end end end end e=(e-649)%46318 end t(c);local n={};for e=0x0,0xff do local f=h.DBvSSAgK(e);n[e]=f;n[f]=e;end local function s(e)return n[e];end local l=(function(r,t)local c,f=0x01,0x10 local n={{},{},{}}local d=-0x01 local e=0x01 local l=r while true do n[0x03][h.SMXSyfL_(t,e,(function()e=c+e return e-0x01 end)())]=(function()d=d+0x01 return d end)()if d==(0x0f)then d=""f=0x000 break end end local d=#t while e<d+0x01 do n[0x02][f]=h.SMXSyfL_(t,e,(function()e=c+e return e-0x01 end)())f=f+0x01 if f%0x02==0x00 then f=0x00 h.OJVBa_bJ(n[0x01],(s((((n[0x03][n[0x02][0x00]]or 0x00)*0x10)+(n[0x03][n[0x02][0x01]]or 0x00)+l)%0x100)));l=r+l;end end return h.tXamXHZp(n[0x01])end);t(l(254,"mG5+#HlY8PjKO1;cd#_8+1+8+1#HHY8YY#llYHHP8H8c5Z5GH5P8Y5Y;lK8lP+8+YP+l+YlP8;jPK5KHPO8Y8OjK#O#c8G8Y8POHP;OYPKP;jWj#O;lllPPOj5P;Kc1H1GOKK;OY1POP8R8HK+K#KYOGOV;Hc#;P1P;KcY;JG+P;j51G1+1K1jc+;;GO5GcYcPZ8GcKjK1cGclcY%H+;G++lG_+j+Y+c1#1Y(jJOfK5KHG+H+j#lH>+O#G;;cG5Y5j5Hl8HKYVlKHc#YHjH8,8gO#+###Y#YY18G8jYK8+8Ylc855#5YH;HPl>YYPKjPjYjHPP8P8;+;#GY#Y5YOKOjYO5OHj5OjP+jOH8HK81P.PYOlOH1218OYKjKl1KY5YYj8j8jOjKjc;K;j1lOccz1p1G;#PwP+O+O8OK;P;;1c}H;+cKcHGHjjj1;#;G;Y5O5G5KG5+G&K5P5GO#OPcPccL+ccZl5n+85Z5jGO5KH++G;5;HG8GKGjH5Hf#l#j##HY#OY5cOcc+R+5+8YOY;lGHYHPYjHH8BGlGj#P#1H5#cl8P+P5PjPGY5YP85+5+Hl8lYlKjHj{K+jYj8jOKcKH#O#c8G8l8HKPO+OKP1OPjcjcjclllKPKPjj5jYjl1O1;;HOPOlO8;#1P8#88KYK8K;O#wH1P18;Kyjc1cG7Aj7j+1Y1l1jcYc;cOGOGlcc5H5PKjKK;;71GYyHG+G5Gj+5Gl1L1G3lGc5P+5#++K+g#c5j;l;YGK###H++HO+O#jHKlHcOc1++Y#YYl8Y#HGl+YOHdG5G+#jl+8H8HP#ljY#lOP#585KHOlGl#YYY88Hj1YcK5jj8+#5##YlYlO5KcOlj#j8jKj1OYHjHO8cP61jOcKPK1O1;+;lKcY5Y#jljYO5OG1+1H;1181O;18j8OKcKc1H;5I+VP)K;5TlGlj5jl1l1l1O;G55c#_#cj3Y5O5Y5cK;O5cGc5clcPGP++G5G;Gl555O5H1j1OGGG_Hj#H#PHjH1H8+OH8c5c#5H5O+clc#KH+#G#H#1HP7jAO+;#GY#HjlVYOHcP#Y+lK555#HOHl8YP#YYj5P#8PYYjl+j+KY+888OKOK#8cK6KYK;H!H58#8PO5jjKcj81G1jOcK;l8ljPcj?1jOlKO;K;l;5KcO#8B85KlKK;HO;;cO11j;G1H18P8PjOc1G<j;1;cGl;KG;3P;cKwK5;l;HG10jG5+Tv;+GGH5+O8Oje+X5##+1##+c#GGO#H5Y;t;5GlGj5;+1#;lHlHlH+#lKc8cj5;5OH^#OHlHjlPH#Y1H#G+"));t(l(213,"KBvQs*L3n.k5;7Umv5*;msv_s.L5.55mn3BvsU3B.m55UmB;vQLnnk.U7L5LUv3n.L5mm*vf*Ls;nB7Qm7v;*53mQnL3m7vks;3;k7km739BQ*3Q5a;km;5;U7n*5B7km;v;*wB.k;;5>.vQ*Q*7kv7v7n}*QmLnk*LU.7QB*bnUk73*43vk*L.s53;sj7vk*737.B5mU5;UuB.Q5jUkpUQBL5nQ;B7.A*Qk*U3kkU57BvvksU.m5*nFkmsLL;.5;3mfBvsvLL.BkLULmLvvL..Lk3nv5vs;Ls.M;*U.5*sm3QkX5;U.B;s533nBkB7BvnQn*5QnL*mmvQ*oL;..;;73PBQL*;.mk.7QB;UnBskk73m.v.*k*Un&55U*QBs3nnnULm.;QQ*.nn5s77mmvm*Q*.nm5MU.v;LBLk.n3*.mQ*Lvns5sU*XqQLLhnnk7U;UkBnmnv*577kr;Q-*..*n77BU5v;svnm5QUmks7QL3nL;sUQk5Q3Ln.L;BUmB*vnsU.s.mUQm3sv{*"));pTQfUqWQTxvVufT=function(e)e((-h.IwbR_Aks+(function()local d,f=h.tLVAZeSG,h.TmtuZCFc;(function(n,e,f)e(f(f and e,e,n),e(n,e,n)and n(f,e,e),f(e,n and n,n))end)(function(t,n,e)if d>h.qHoABBDl then return n end d=d+h.TmtuZCFc f=(f*h.Qe_WHO_M)%h.YfYGWaHy if(f%h.KDpsGGTi)<h.CzMnFnio then return n else return e(e(t and t,n and e,n),t(e and e,n,e),n(e,n and n,n and n))end return t(e(e,t and e,n and e),t(e,n,e),e(e,t and n,t))end,function(n,t,e)if d>h.OsUXbjTW then return e end d=d+h.TmtuZCFc f=(f*h.rcvoaGXT)%h.kmtcikQb if(f%h.KmyuqcQT)<=h.v_xyTzAX then f=(f+h.fclr_PJm)%h.mjTKjHGX return n(e(e,n,e),t(n and e,t,e),n(n,e,t))else return n end return n end,function(e,n,t)if d>h.QTCgCYQo then return e end d=d+h.TmtuZCFc f=(f*h.zmuZwOka)%h.PfLTDQwS if(f%h.hdXZRcVz)>=h.xxYMMlEn then return e else return e(n(e,e,n),e(t,e,t),t(t,t,n and n))end return e(n(n and e,n,e),t(n,e,n),t(e,n,e)and t(n,n,n))end)return f;end)()))end;TfuVvxTQWqUfQTp={h.gQfKLhjP,h.MDTSt_uP};local e=(-h.HqntiHMT+(function()local f,n=h.tLVAZeSG,h.TmtuZCFc;(function(e)e(e(e))end)(function(e)if f>h.kdugfhym then return e end f=f+h.TmtuZCFc n=(n+h.emsCmQOM)%h.jjoQLLfY if(n%h.wIFWteWd)<h.OTPnfMqs then return e else return e(e(e))end return e(e(e and e))end)return n;end)())local s=h.KJTOgFEc or h.opODIuZR;local le=(getfenv)or(function()return _ENV end);local d=h.OWCOLRhJ;local y=h.TmtuZCFc;local c=h.KSZi_RoH;local t=h.ZYElJVem;local function ne(k,...)local _=l(e,"Pc_NELWZ(-MYR>fAANE(fR-HNZfMZR_9REWWEAfLYYLcRfZ-_>R(ZM WMEZYAfRLWYAMMAAN--N(>R(+__NRcMNNcMLYqYMbEEf((MLLYcZWWL_-_%NcRME-R(f_W(YY-f_MRRZ%cEY(LR4pMR((fA-LNE>(ZRcff>YcNN>_LWA(-RECfE((_RfEYEcYRRW7SEM(EMNNf--R_cfL(YXYMRLWcE-RLcf3(ZEZ(ANE>EZ(cRNE>>Z(ccLN^(-(NRf!(_(ZWcL-EW{NMWRfLfLE>AEYL((UWLY-LL>!9AMRLZv9-RE{fE(WL(Rc>MNZWE_LMMMMERAT-EN(>R(pEE+(WAcWYEL(AR-fALLNE_MZERZY_cR6WE<(MMMYL_f((AfN(-_(RRZwc_cN(ZWM(_EMfR-SNE>(ZR_IfRM(JAYLLEA(-RYEELfM-(NLZWc(YRWiFEM(ER_Y>ENM>R(m_ER(WRAb_N-(AfMjEEf((RNI>EYLLRR_WEI(MRLQAE-(WR_l(W_(RRZ<cEY(LRERfEEYA(-QNE>(ZM>Z>AEYMNZfc-YNYRNNRZ>f_f>{ZEc(YRW/^EM(ERANMLN(>R(y__%WMZN_cW-_L>CM(cE_>AZ_AN-cZE_WZE:MMRL;AE-(NRfFMMW(RAM;cEY(LRAffRMWLtAcENNZ>ZZq_ZY>WMccY 7ZAEM_ANfR(-_oRLZNc*WAWZXWLYEEAY(R_ffE(ZcRZYZNVYY*LfMAMWNMf>((NN>YN-R_WE#(MRLGAE-(_RcA(Z_ARRZ9cEcfRYZ_T-M-EAA(NZ>>ZR_aREWWfZNWRN_M-AELfE((_RRf3OM(cYY>lWM(ERAx-EN(LRfNWERMWRchYEL(ARM;LR_((fNi>EZ(cRR=WE_RfRLNcL-(NRfU(_Lf_DRYLL fREL_fNM_EA>W((_WR>(ZC>MWLMAT-REARR-AENR((L_-Y-ZOcNMfWRMYLEAl-EN(>M_Z(>fELMWEN>--AAMLEEf((R_ffucAMRr_WZC>MRL<AE-W(fNZ>E(-RfZGcEY(LR2nMEWE_R-NEN>(ZR_mR_ZZM_Y>NWch-LE(-_RM-ZZcN-NfNfWNccM(ERA3-_ZMcNRZWN_>RAL_cZY(NEAf-EfY-ENX>EZ(cMAW>AZf>>}E>%AENAf>(E_(RRWfA-A>EEAxLELZARWLYLNZLZ_cRZ(_1RY}LEAW>(-fE_fLWf_ERWWWAfRNWL^lM-EWAWWANE>NZZcRR-EgcZYYL>MNEZf((RNwEZf>ZfR_WEy(MRLsAE-((E_I(W_(RRZFcEY(LRN-fEEYAc-SNE>(ZMNAc-YE(fYNL>A(-RE?f_fY(MN_>ZZ-cEY>LMMYLcAd-EN(>McAEG-Z((cNRLL(ARMhE_E>Y>Z_7fYfW>_Z--NfffY(EfARMKEg>W_Y>_Z7cEY(LMLAaLMFE-ANNZ>fZR_VRE>Y(.__Y>WWtNENfM((_R>#Z_ZZdfYKLA4NEfA,-EN(>R(d_EfMMRc_YEL(ARMXEEf(YMZ6>Z(bcRRzWETW^_MELZf>-uN>f-_Y(fZ_cEY(LMAR->EEfL((WEfZ>YZ(cWRYZsccM(wZAA-aNf>R(->AR-Z-cMYRcNc5MMLEALEZE_>EZLcMYRWR>>LEALMALNAZ-YNAfN(ZNZRAZNcZYYLA*NMZEYfA-NNZ>YYfNc>LZ-EfYNLZAY-AENfZ(Y_A>NZZcYYAWAAE-LEAAN-ZNY>A(N(_>_Z>cNYZLYAAMNEZfY(ANNfL(_cARNWZSYMALM3L-YNAfN(Z_YRAZNcZYYW>oM{EN(>--NNZ>YZA_N__WYW>YNLfX--AENfZ(Y_A>NYWZZ>RWN=ZMYEAN_>W-Zcf(N_ZRYWAcNYZW-9WMNEZE-fR_uRcZYcARNWZWWMAYcAZ-Y->fN(fN(>>Y_cZRN-fE_fW(M_f>_ZWcMYfW_mWZEjAA_WL+(MWMcfZ(Y(>>NZZZ(MRE>sZMYEAEfALNY>Afc_ZRYR>cNYZLYL>YcEffY(ANN>ZZYcARNWZ&YMALNAfM-NAEc(Z_YRAZNZLYYLAjNMZM(>RZ>NZ>Y>M_NRZR-,AYNLZL--AENEL(YNf>NZZcYRf-AIZMYEAAN-ZEMcY(N_ZRYMYcNYZLYL>MNEZfY(A-c>ZZYZRYaLc YMAMfAZ-YNAEc(Z_YRA>ccZYYWfJNMZEYfA>_ZW>YZA_NRZWYEfA_LZAY-AEN_N(Y(>>NZZcYc>WNqZMYEALx(E_L>A(N_Z_WWAcNYZY-AAMNLW_Z-fNN>Z((NYRYWZLMY(LNAZ-YEZfN>WNEf>(wcZYY-Yc_fNEYE>-NNZ>Y>>(:YELLOAYNLZAYAMENEL(Y_A>N-__NYAWNoZMYEAAN>NEM>A-cNE>-WAEARWLYAAMNEZfY(ANRA_ZYcARNRL:Y7REJfc-YNAfN(Z_Y_MZNZLYYY>NAfWEYfA-YE*>YZAWcRZZNeAYNLZeE-A(cfZ(YNZ>RZZcYAfZ_VZj-EAANAE_(R-(N_ZRYWAcNYZW_+RYc(WE-(AWA>ZZYcARYMZc(Y>-_AfM(EW__-LN(>WZRcZYYLAc_MZM-_fMcEEf_WR2>RZWY}AYNLZAY-AENfZ(YNWf,(ELZYAWN1ZfYLWCc>WE_fc(MWW>-ZWLNYZLYAAY_LEA(-W_?RcZYcARNWZ<YMALNAZ-YNAfN(Z_YRAMAcZYYLABNMZ(Z_AM{NffMZA_NRZWYhAR_EEfL-AENfZ(Y_A>NZZcYYAWNjZMYEAAN-ZZYcY(N_ZRYWAcMREW_AAMNEZfY-fNMREWLcARNWZ4YMALNAZ-YNAfN(Z_YRAZNcZYY-ANAMZEYfA-NNZ>YZA_NRZZMcWMGEcAY-AENfZ(Y_A>NZZcYYAWNrZMYEAAN-ZNY>A(M_f>(Z>_cRLW(&WMMNE>L(ANN>ZZYcARNWZVYMALNAZ-YNAfN(Z_YAZYEWLAAY_ N>R-YfARW(__ERNcwYcL(A-MZE>fR-/NE>WWc_Nf<Y>xfYmLEA(-RE6WER(WR>_ZEc(YRWVGEM(ZWNV-ZMW>R(!_ERW(M_>>cZWc-Y>W_ENAO(d_WR>Zl_Z(_Lf94YNERAL-ANEfL(LcRRYZW_4YfL_AEMNEZMR(ANWRRZN_WRYW>1(YcEfYM-(EWfW-c_E>LZfc>Y(WZpYM5E>fE-YNAfcZRc->HZNs(WZcYlZWN*ZMYEAAN-fNY>AZNWfARY__-fR(ANEfLZ(_ZYcW(u(YZLYVRZAEpAc((G(>A(N_LRuL>cEYZERRME_fE((_R>tZEc(AYMg<ZM>ERA+-ENW__A>RcEAWfcwYEL(ARMrEEA(RRNN>(Z(cRR1RZZ{z>R_AZ-RNRfh(E(MELfEZ-YMLRO+MEE(fR-uNEc(ZA_RREW(aRMfcLNRYYYWRNZ f>>YEfWMZAWN AM(ERAd-_-NNM>hZZ_MRAZcJRYLL_MNE-f((RNt>_RRRNMWL(iYYML0AE-(NMccR_RLJYENANfL-L#fWARLAZNENW>(ZR_?REW(7RA--EAYMcEHfE((_M_LNY_-RZWN}YM(ERA:-_-MNAfcZR_LR_cNY-L(ARMCE__?fLc-WZZY_MRtWEm(MMMnLWM-z_-LZ>gWWZE>LZf/-ZR(MZERfR-%NE>W>f(EcLWYcYYtLEA(7R-ENLff(cEcRYW-c8>(ZMAfRcLWf(NYAe(D_ER(WM_-Y>f(McZMNcYR_ZL>L_-NAMYLRWEZ>CA>_RMMEWf?(E_(>NZkcEY(Lfg;MEE(fR-kNER(YY_NRMW(*RY*RZWRdfM-L_fA_f>VZEc(YRWa Ec((RAN-LN(>R(r__RYZcc^YEL(Z03cMWLEAcNN>EZ(cRR4WWJ(MRL9AE-(NRf.RE_-RRZ?cEY(LRGgMEE(fR-pNE>fZR_+REW( AYFLWA(-REwfE((_R>EZEcYYRWcKEM(ERA9MRN(fm(5_LR(WRc4YEZgARMNEEfM(RN_>EZ(N{ReWWx(MRL!AZ-(NRAM(E_(RRZccEY(LRG_>ZE(fR-ONEcRZR_cREW(6RY/LEA(MEEgfW((_R>TZEc(YRZ(5EM-ERA_-ENM>RMWERR(W>cnRtL(A>MJE-f(-&LW>EZ(cRRRWE!-MRL9N(-(N>fT(L_(RRZ;cERiLR<_MEE(fR-4NE>ffW_sRZW(1RYJLLA(-fE fEf(_R>CZEc(YRWVlEM(R_Ay-EN(>f(t_ER(WRY_YEL-ARMNEEf-(RNEAMZ(cRRj-L<(M>L=AE>RNRfc(E_(RRZ*cEY(WE/GMWE(fR-jNE>(ZRN(REW-;RY_LEAM-RWWWf((_>>J(Wc(Y>W)#WM(LicW-EN(>R-__ER-WRcE>ML(ARM)ZLf((>Nt>ElWcRRcWE+(MRL2AEMWYLfg(L_(A>Z)cLY(L>0;M(WffR-7NE/-ZR_cREW(LxY/LLA(-AE&fE((_RZcZEcMYRWawEM(ERG_MZN(>A(}_LR(WRcsRWZ_ARMEEEf-(RNU>EZ(c>R9WLl(Y^LIAW-(W_f>(E_-RRMccEY-LRdEMEERc_-BNE>(M>_;RLW(cfLELEA--REWfE((_Rf_c(c(YfW8/YM(ERAU-E(W>R(N_ER(WRcaYEWMcNMzE(f((>N1>EZ(_/RMWEIMMR(&AE--NRfp(R_(>_ZycLY(LRDhME>-fR-ZNE>RZR_bREW(_ZYyLRA(MuEtfE((_R>YZE_cYRWN7EM(ERAzMLN(fW(3_ER(WRc1YELYARMYEEf>(RNy>EZ(_WRwZgV(YcLbAE-(NRAY(ENcRRZRcEYMLRs8fME(AE-INR>((L_bRE!_zRY-LEA>-REkfE((EN>dZRc(REWBe>M(WRvM-EEV>R((_ERYWRcaRAL(zNM0EYf(-ENo>E-ccRRcWEJfMRLZAE-RRYf}(W_(f>ZacLY(LR_fMEE-fR-_NE>(ZR_yA_W(3RY4LWA(-RE#fE4__R>IZEc-YRWv,EM-E>AX-EN(>f(:_ER(WRc#YEE(NYMSEEf((RNL>EZ(cRfe>WC(M>L:AE-(N>fF(ENMRRZccEY-LRCcMEE(AN- NL>(ZR_gREW(URYfLEA--REcfE(-_R>&ZMc(YRWh:LM(ERA!-EN(>R(2_ER(WRc&YEWLARMQEEf(__NB>EZ(cRR0WE2(MRWRAE--NRfc(E_(RRZ^_NY(LRFpMEE(f>-,NEAcZR_cREWMmRYaLEA(MAEkfE((_R>yZLc(YRZWmEM-ERA#-EN(>R(k_fR(WfcnYZL(ARMFEE_R(RNN>EZRcRRzWE&(>cLUAW-(Nffi(Z_(RRZZcEY-LR0cMEEMfR-vNM>(ZR_+RLW(kRYoLEuY-REhfE((_R>JZEc(R{W5jEM(E>A*-EN(>R(c_ER(WRc_YEL(ARMoEEf(ZRWA>EZ(cRR2W-?(MRL.cEDMNRfc(E_(RRZccEY(WNtoMLE(f>-dNL>(ZRN(REW-yRYtLEA(-REOA(((_>>kZLc(Y>WnTEYNERAb-EN->R(y_ER(W>chYEL(AfMVEEf((RNI>EW(LYR.WET(MRLLAE-(NRIQAW_(R>ZocEY(L>yBMELNfR-cNE>-ZR_cREW(cLYmLLA(-REafE((_R>_ZEc-YRWc,EM-ERAd-MN(>R(J_LR(WRckYEL-ARM EEfM(RNg>EZ(cRRyLEEZMRL*AE-(EcfJ(E_(fRf_cEY-LRU MEE-fR-tNf>(Z>_IRLW(w>Y2LE&M-REcfE((_R>}ZEc(>ZWb=LM(E>A^-LN(>R(E_ER(WRccYEL(ARM+EZf((RN8>ZZ(cRRuWEeYYRLUAE-(NMc(>>ZfcfYNZMAR-sLZgMZRNBfNWYIYZANcREW(bRMf(-ERfA-EEL>((Z>A>MW(cfWALYARM>EE-EN(>R(V_>R(WRc<>Mf_ARMBEEfY(RNc>EZ-cRRE(M}(MRLxAZ-(N>f=((EfRRZGcEYfLRicMELMA--jNL>(Zf_8REW(pR>fLEA--RE_fE((_R>E-Mc(YRWJFRM(E>A/MW>R>R(c_ERYWRcBYEL(_MMhELf((fNa>EZ(cRNMWEh(MRLcAE-(NRfc(E_(RRZQcEY(LRVaMWE(fR-+NENLZR_}REW(BRYGLEA(cWE/fE((_>>8ZEc(Y>W(zEM(ERAN-(N(>R(+___M>GWcYWL(ARM0EEf((RMQcEZMcRRkWE9(MRL/AE-(Nff4(E_(RRZmcEY(-RS_MEE(fR-!NE>(WRLARWW(eRYeLEA(-RNFMN(Y_R>9ZEc(YfW?nEM(ERAe-EW(cR(Q_ER(WRLzYEL(ARMn((f(-cNr>EZ(cRR;WELRMRLLAE->NRf0(E_fR>Zyc-Y(WN=3MLE(fR-.N(AfZR_3REWA0RYcLEA(foEHf-((_R>?ZEc(YRMWtEM>ERAL-EN(>R(nL_R(ZccVYWL(ARM7EE_R(RNL>EZ-cRR%WEp(_ALmAL-(Ecf0(L_(>f(>cEY>LRDNMEE(fRM_E_>((__*R-W(!RYHWWcc-REZfE(f_R>jZEc(R_WT^RM(E>AF-EN(>R(f_E>qWRc(YELRARY_E-f(-LNi>ZZ(cRRxZWMRMRLMAE-ANRfj(E_(LRZVcAY(Wc.JMWE(c_cMNEfNZRNEREW-FRYNLEARR_E fE((Ep>nZLc(R5(W}EM(ER1Y-EN->R(mW(R(Z(csYWL(ARM9WENZ(RN>>EZ-cRRcWEb(MAL:wN-(E_fx(E_(RR(-cER(LRGWMEE(fR-CNL>((-_#>EW(0fYzLE)(-RERfE-E_R>>ZEN(>EWju>M(L(Az-RN({_M(_E>NWRNEYEL-ARMLEEfRY_Nj>EZ(EpRkWL{(MR-EAEMENRf_(E_(RR-!(LY(W-)pMLE(f>-1NE>YZR_AREWfpRY}LEA(MME5AE((N_>8ZEc(YRZLTEYLER&z-ENM>R(8_WR(Z(cGRsL(g-MbEEfY(RN->E(ccRRRWE_f>EL*AA-(Z_fO(L_(>HZrc(>fLRIKMEZffR-cNEA(-W_TRYW(cNYkL-A(-RMEfE-E_R>NZEc(YRWl6RM(L(Ai-YN(f((aEEfcWRcRYEWEARMLEEf(-_NJfcZ(cARsWE9(RRWWAEMWNRfN(E_-RRZ%_ZY(WRO9Y?E(fR-ONE>fZRNcREZE*RYvLEA(_LECA_((N>>pZWc(YR(>gEYLERA>-EEW>R(m_AR(Z-cwY>L(6-MJEEpy(RNf>E(_cRR,WE}(YNL,2N-(NAf+(E_(fRZLcER(LRC>MEEMfR-7E->((Y_g>NW(cRYeLEAR-REMfE-W_R>AZEcf>LWj:MM((LAB-LN(fE(e_(ffWRcGYE-cARMcEEfRY_NX>EZ(L(RUWL8(MR-EAEMENRfX(E_(RRZGNOY(W(mDMEE(AW-&NEHWZR_MREWMxRY}LEc(YWEjf-((Nc>=Z-c(>RZM3EMfERAW-EN>>R(EEMR(WRcaREL(A>MzEEW_(RN?>EZ-cRR0WE}>YELkAE-(NffT(E_(RRZDcEY(-RgNM-E(fR-dN_NYfEZAc(WYc_Y7LEA(-M-ANW>((Z_YZWc(YRWb+EM(ERfI>NNYf_(u_ER(WMZN{EM-LZAEEZAL(RNB>EZWZfcERZWETSYNEEAY(RNc>AZRRAZYcEY(LRAfA_-WEAff-WNY>>Z(_cYfXAYZLEA(-RNfEWfY(>_(>cWfR:W3xEM(ERA:-EN(>R(B_ER(WAc!YEL(AR>lEEf((RNc>EZ(cRR5Rch(MRLHAE-(NRf#(EM_RRZdcEY-LRokMEE(fR-%NE>(ZR_#REW(cuYBLEA(-RZlfE(-_R>cZEc(YRWkWcM(E>Aw-EN(>R({_EE_WRc+YEL-ARMlEEf(TWN7>EZ(c>RVWE6(M>LKAE-(NRfV(E_(RRZEcEY(LRBd>EE(f>-SNL>(ZR_wRERL6RYcLEA(-REgfE((MW> ZEc(Y>W^pEM(ERWM-EN(>R(c_ER(WRccYEL(ARM9EEf((RN0>ZZ(cRRxWEN(MRLlAE--NRf!(E_(_-ZncEY(LR!eMEE(fRnMNE>(ZR_cREW(^RYjMYA(-RESAW0t_R>_ZEcYYRWgTEM(WLA4-ZN(>R(o_ER(WRcfYELRARMcEEf((RN8>fZ(cARbWZG(Y2LrAE--NRfE(E_(RRZTcEY(WLF{M(E(AI-VNE>(ZRNcREW>7RYyLEA(-REvW>((_f><Z-c(YfWnxMNNERA_-EEN>R(c_ER-WRcE>ML(ARMwEAf((>Nl>(-fcRR?WEcLMRLcAE-(WRfH(Z_(R>Z1cEY(LR_fMEEYfR-_NE>(ZRN_>cW()AY+LWA(-RE.fE-y_R>EZEc-YRWhuEM(WEA3-ZN(>f(B_WR(-_-MYELYARYNEEf-(RN(>EZRE_RqWEl(YALDAL-(E15W(E_(RRMccEY-LR*kf(E(fA-XNE>(ZR_6REYR/RYNLEAY-REcfE(fN>><ZZc(>EWS*LM(ERA.-(Lf>R(2_Ef5WRccYELR__MiEEf(MWNj>LZ(cRAzWEeYMRLKAE-(NRf2Y__(RAZ4cWY(LR%bME(RfR-NNE>(ZR_uREW(L_YpLZA(-AECfL((_RC&ZEcRYRW*pEM(ERAJ>(N(fc(e_ER(WRcsYMR_ARMWEEf-(RNc>EZ-cRRzREn(MRLrA(-(NRfg(EEERRZLcEY-LR3WMELMA--wN->((__^REW(5RfALEAf-REmfE((_R>&YNc(RNW,wEM(E>A#-MM_>R((_ER(WRccYEL-ARM?MEf((RN*>(Z(cRR;ZEL(MRLZAE-ANRf((E_(>fZ0c-Y(WN/*MWE(Af-NNE>fZR_NREW(9RY7W>A(MNEufE((_R>=ZE_YYRWZKEMAERA)-EN(f-(K_RR(ZccGYEL(ARY>EEff(RN(>EZ-cRR M(p(Y_L,AE-(NRfD(EEERRZWcEY-LR4NMEE(cM-XN(>(Zf_IREW(FREZLEAY-REHfE((_Rf_(cc(YAW4;WM(ERAd-EE0>R(E_ER-WRc&YEL(cEM:EZf((fNK>WZ(E_f(WE YMRMWAE--NRfL(E_RA_ZTcEY(Y_5sMLE(fR>ENE>YZR_,REW()R>)YAA(M*EnfL((N?>2ZE_oYRWNwEMYERAE-EL(>f(F_(R(W>cFYLL(ARY_EEfY(RNN>EZRcRRT(nI(Y+L%AE-(NRfU(ENwRRZLcEY(LR}mMEW(dZ-7NM>(Z>_iR(W(<RAWLEA>-RELfE(f_RA2-(c(R_Wv=LM(E>Ah-MM_>R(Z_ERMWRccYEL-ARMqMEf((RNS>(Z(cRR=WE_EMRLLAE-fNRfZ(ENM>-Z3c-Y(W_^rMEE(fRRANE>fZR_XREW(wRYv-NA(MNE6fE((_>>wZM(_YRW(hEMYERAc-EN->R(D(ER(WRcoY(L(ARMbLEN((RNZ>EZAcRR(WE;(YxLbA--(ENf{(W_(>fZAcEYfLRbNMEE(fR-1Ew>((N_3REW(/RYDLEcJ-REZfE(A_R>0ZEc(Y>W=KRM(LcA#-EN(>R-N_ERfWRc(YEL-ARM)((f(-_N1>EZ(cRR}(EM>MRLZAE--NRfE(E_(fZZCcMY(W_8QMYE(+R-ANE>AZR_cREW-KRY^WfA(M_EpfY((_A>}ZE_ZYRWEGEMMERAg-EN(fA(x_ZR(WRc YEL(ARcMEEf((RNc>EZ(cRR_YAU-MRL=6WcANRfD(EZWRRZocEYfZcmKMEE(AO-sNL>(Z>_kR((f;RYGLEAR-REcfE(RL_>1ZEc(fRWzeLM(ER_A-EN(>R(e_ER(WRc/YAL(A>MJEEf((RNI>E((cRRoWEq(MRLcAEY(Wnf,(E_(RRZq_AY(Wf-YMEE-fRMZNE>(ZRN_RMW(:fYtM_A(-RE*fMA__R>NZEcAYRWcVEM-ERAGAEN(>R(J_LR(WRczYE(RARM_EEfM(RNc>E(MNLR/WWG(YEL)AE-(EfA((E_YRRMEcEY(LR_7M(E(fA-?NZ>(M(_<>WWMtRYELEk(-RExfEM(N(>iZ(c(RnWm_sM(Lf9Y-EN>>RYE_ER(WRN{>(L(!cMwE-f(R>NKfW-YcRRWWENRMRL6AEY(N>f4(M_(>_Z1LWY(LRcNMEEAfR-/NE>(ZRN_>RW(cEYwWYA(-RE)AWM4_R>-ZE_MYRW{,EYML_AX-fN(AZ(4_ER(ZF_(YEW}ARRcEEf-(RN.>RZ(_(R&W-{(MRLwAE>(NRf>(ENNRRZ0cEY(WNrlYvE(ff-oNW>(ZRN(REWAGRYYLEpE-RE7AR((NN>0(Cc(RZW;K(NZERA(-ELN>R(c_ER(RNc0YRL(5EMnEEf(-_-M>E(CcRR8WEU-MRLWAE-(-RfT(E_(RfZscEY(LRW0MEE(fR-ENE>(ZR_v_EW( RY3LRA(-RE=fEf(_R>;ZEcYYRWUuEM(MRA&-EN(fN(s_ER(WRZUYEL(ARMcEEf((RNCEmZ(_LR;WR}(MRLIAEY_NRfM(E_(RRZ}cEY(Lf9/M>E(ff-bNW>(ZR_WREW(!RY-LEA(-REVAc((_R>qZWc(YRWq6EYEERAj-EN(>R(._ERR(LcHYEL(LWMcELf(-fN>>EZ(cRRZWEH(MRZ.Ef-(NRf!(E_(fZZa_WRMLRpTMEZ(fR-qNEfM(Y_OREW(cNYtLEA(YRL(fE((_R>iZELYYRZ__cM(ERAHRZN(>R(l_EfNWRc5YEL-ARM2EEAMMNNk>EZ(EZRFWEq(YfL>AE-(NRp_(E_(RRZ5ELY(L>1rMEE(fR-<NE>YZR__REW(&RY LEA(YWEVfZ((_R>4ZEc(RfW>FEMRERl(-EN(>R-_NNR(ZccpRYL(ARM)LWAR(RNW>E(McRR,WEcMRTL2AY-(LZf<(E_(>D*LcEY>LRE-MEE-fRM_Ec>((L_F8fW(aRY;ZE_N-RE-fE-c_RALZEc(>_W)jfM(LEAh-EN(>R-Y_E>cWRc_YELMARMFLRf((fNU>RZ(_LRUWEccMRL-AE-MNRf((E_(fNZdcWY(WLBsMRE(AUcANE>>ZRWcREW-0RR_A(A(McE&AA((_R>i(WEfYRWW<EYRERAz-EEMf_(X_YR((Zc8YEL(!VY(EEf>(R(M>EZ-cRfy-W}(YLL=AR-(LZfoME>dRRZMcEYRLRE>MEE(l6-iEw>((E_sREW(bRRYLE L-RE(fE((_R>1(Mc(RWW{ccM(EfA6-EEY>R(N_E>cWRcMYEZ(rYM*E>f(-KNe_cZ(cRRcWEcNMRL(AE-(NRfn(R_(>(ZecRY(LRC<ME->fR--NEfEZR__RE((cMY<LfA(MEE^AA((_Rf>ZEcYYRW-)EY_ERAE_NN(fc(qZcR(W>coYMR_ARMLEEA8(RNc>EZRcRRQRE;(MRL?AL-(NRf{(E((RRZxcEY(LRe7MEE(ER-;NE>(ZA_3REW(;RcjLEA(-RE_fE((_Rf_cfc(R_WvNRM(ERAo-MEW>R(W_E_AWRccYEL(ARMEWMf((RNtNYZ(c>RhZWcLMRLWAE>.NRfU(E_(WAZ;cMY(L><qMWE(A_-ENE>fZR(ZREW-BRYOLEARR_E7fE((-N>,ZLc(Rp(WTEM(ERL(-EN->R-_NcR(Z_cUfWL(ARM,EEA.(RNZ>EZ>cRRQWEcM_-LUAR-(EMfq(E_(>fZEcERcLRcYMEE(fRM_E>>((W_)R(W(9RYSWWA>-REYfE(Y_R>zZE_M>_W?c7M(ZMAJ-EN(>R(M_ERAWRcRYELMARMBEAf(-EN >-Z(cRRyZW(LMRL-AERZNRf&(ENM>RZHcfY(-A*1MEE(Af-LNEfNZRW<REW(mRR_W_A(M(EJff((_R>;(WNuYRW>=E>LERAu-EN(A((7_RR(Z-caYWL(ARMZEEAc(RNL>EZ(cR>_fc,(YWL*AW-(NRf+-WNYRRZYcEYRLRH<MELMf>-DEq>(YR_2REW(cfRNLEOL-R(EfE((_Rf_(>c(RMWvcLM(ERAe-EEM>R(-_E>WWRc_YEL(cLMGEff(-cN8>EZ(_fWEWEcNMR-WAE-(NRA__(_(>(ZILEY(LR<tYWfRfR->NEAfZR_zREZMZNYaW_A(RWErfE((Nf>(ZE_ZYRZEqEM(ERAQ-RN(fW(!NNR(WfcQYEW6ARMYEEfY(RNi>EZ(_ARHZ2d(YcL:AE-(EffZ(ENLRRZLcEY(LRc_YcE(AM-oNM>(ZR_C>WMM#RYALEBN-RE?fE-M_>>V(Ec(>_WI,EM(LfAZ-EE->RYZ_ER(WRcTRML(X(M4LLf((fN=>EZAcRR>WEe>MRLiAEMMEEfw-__(AXZzcEY(Wfc(MELZfRY%NE>(ZRN_.WW(cRYSLAA(-RE+AW(>_RfcZEWEYRW/bEYMEfA2MWN(cZ(:_ER(WRc_YEWLARY_EEfM(RN{fRZ(_MRtW-d(MRLChWMZNRfA(EZcRRZjcERMW-G+YEE(c_-5NE>((fREREZ-pR>WLEA(-RL_((((Nf>!RNc(YRWocWERER#N-EE>>R(s_ER(A(c=R_L(sAMiEWf((RN>>E(NcRRfWE#-MRW_-(-(E(f?Y>_(RRZ9cEl_LRj>MEE>fR-mNEfM-h_z>_W(EWY=LEA(MfE-fE-Z_R>YZEc(YRZ_&(M(LRA7-AN(>R(BNWRfWR_cYEZYARMeEEAM--NbfWZ(_>RuWE}(MRLMAEMLNRA_(E_MRRZ^LMY(W-)QMME(A--eEWNYZR_fREZAiRYwLEhMYWEbAN((W->5ZEc(YRW_6EY(ERAW-ENA>R(W_MR(ZRc;ZML(A>MzEEf(-zLW>EZ(cR(WWET-MRW_-(-(ERfa-A_(RRZ6cEoWLRccMELNfR-TNEfM-W_#>WW(_ZY?LEA(M#LcfE-(_R-LZEc-YRWSEMM(WKAB-AN(fA(1_EfNWR_EYELfARYEEEff-YNpf(Z(RfRQWLT(M>LTA(YfNRf4(E>MRRZccEYR(_{)MEE(YT-aNL>(ZRWWREZR9RYWLEAA-REIZ>((Eg>t((c(REW0!ERNERsL-EEN>R-N_ER(ZLcCR-L(y_MyL-f((RNM>E(RcRR_WETMMRL.0h-(Laf0-(_(>LZvcEYALRcEMELRfR-XNEAf(>_I>(W(>TY;LLA(M6Eof(Mf_R>+ZE>RYRWcqEM(LEA:M(N(f-(X_ER(WRZWYEW>ARMREEf((RN/>RZ(N,R1WWr(M>Lq{WM>NRAE(EL0RRZdcEY(Wf=?Y(E(f>-4NL>(ZRNRREW(QRYcLEA(-REwAR((Eh>y((c(YRWxhWt>ER5L-ENR>R(p_ER(R_cqR-L(A>M8ELf(-QYA>E((cRW>WEG-MRZypf-(EMf0-__(fZZxcER3LRcpMEE>fR-KNEfMA-_3>LW(_-Y2LEA(MfELfE-M_R4WZEc(YRZ_OfM(LAA?-(N(>R(tNW>WWR_EYE(cARM2EEAM-WNdf-Z(EMR2WE (MRW_AEM(NRAL(E_MRRZ:NcY(WNOoYEE(fR-dNE__ZRNwREW>sRYwLE^M-fESAL((ZZ><ZEc(RfZ>KEYMERcc-EN(>R-__(R(ZAc4>EL(ARMCLWAE(REE>EYAcRRTWEcMYZLVv--((Efa(E_(RR(EcER(LRcLMEEMfR-;NR>((E_*>EW({RYJLENf-RLjfE(f_R>ZZEc(cKWqcEM(LRA1-RN(f_(__E>(WRn(YEL-ARM6EEfRY_N%>EZ(cERmWLy(YfAEAEM(NRAY(E_(RRZkW_Y(W>)3MAE(fR-lEWfEZRN_RE(NeRYKLEARYyEuAE((_N>4ZLc(YR-A#EYRERA=-EN(>R-_NcR((ccSf-L(ARMsEML_(REW>EZMcRRcWEd>MRL0LE-(NRf;(M_(RRZgcEc(LRI=MEEAfR-lNE>(>R_/REW(cEY4LEA(-RMQfE((_R>YZEc(YRWqWEM(ERAaMZN(>R(D_E>_WR_LYEWfARM EEf(-_N8f(Z(cRRgWLV(RRZEAEMRNRAE(EENRRZW-AY(Zpsp-vE(f>-GNL>((?EWREW(1R-RLEA--REEsM((_R>jW-c(Y>W9yEYqER<E-EEL>R(:_ER(>_c2R-L(<(M.EEf((RNW>E(RcRR_WEr-MRW_A(-(Lqf3MR_(RRZ7cEYYLRcEMEE-fR-cNE>((__OREW(.>YeLEA(-REYfE-R_RfEZEc(YRW_W-M(WcAz-LN(>R(i_EcfWR_LYEL-ARMcEEf(_NNhfZZ(cRR{WE{(YI>AAEM(NRYf(E_-RR-J_fY(WM7{Y_E(gZ-FLMW_ZR_fREWNbRYcLEsA-REE.M((_R>!WAc(Y>Wp,(RfERA:-ENR>>(c_ER(ZEcyREL(B-M4EEf(-fNS>E(-cR>MWEq(MRLIAL-(ERf7(W_(R>Zn_WRLLRcVMEZ%fR-:NE>((f_l>EW(H>YBLLA(-REAfE((_R>cZEc(YRWvcNM(LRA6MEN(>R(2_W_>WR_cYELYARMgEEf(f_NafLZ(c>R9WLm(RRZEAEM(NRfY(EWYRRZ%(ZY(WNO8MME(AR-iEWf>ZRNORE(NjRYKLEA(Y_EIAL((NZ> ZEc(RfZWvEYMER*Y-EN(>R(ENAR(ZRc6RRL-A>M9EE_f(REE>E(NcR>NWEj(AALt8(-(E_f!-(_(>_(_cERRLRcZMLE-fR->NE>RM__7REW(_NYcLLA(-RE(fE-R_R>>ZEc(YRW%WMM(WcA+MxN(>R()_E>WWR_EYELMARMcEEAMMZN&f(Z(EER9WEJ(MRWZAEMRNRfc(E_-RRZ^_AY(LR#0MLE(fR-lNEALZRNEREZR#RYaLEAM}cE&A-((Nc>nZEc(YRYWxEY>ERAc-EN->R(EYNR(ZRcqYfL-A>M,EML_(REa>E(ccRRcWEJMMRLtLE-(NRfI(M_(RRZ.cEc(LRBhMEL_fR-7NE>((__r>LW(bAYaLEA(MfEWfE-M_RyNZEc(YRW:cEM(LAAp--N(>R(iNWRAWR_EYE(-ARMHEEAMMWNdf-Z(NLR4WE:(YfLcAEMfNRfY(E_(RR(_cLY(ZN^;RYE(fR-SEWEWZRN(REMW&RYxLEA(YZEKAZ((EE>uZWc(YRWL6EYRERAL-EN(>R-__WR((cc3>_L(ARM;LWfA(REW>E(ZcRRlWEcMYELS#Y-(E4fw(E_(>f(RcE>hLRT-MEE(fRM_>(>(-L_KuRW(QRY8LE(E-RLEfEMc_R>_ZEc(>(WbcLM(W2As-LN(ff_E_E>MWR_YYEL(ARMk-_f(-ANTfLZ(cRR+ZWcLMRWEAEYNNRfj(E_R>MZF_WY(-A9cMLE(AfNENEffZRNYREW(oRYxM_A(YNEzfA((_R>b(Wc>YRZ(aERNERA:-ENRfA(!NMR(MfccYLL(ARM(EE%_(RE%>EZ(cRR:MRC(RZLGAA-(LLfp(ENcRR(RcER-LRcLMEE(Ac-8Ef>(-(_#RWW(c_RELEc_-RZYfL(-_R>cZEcRf_W%mEM((ZAc-LN(fwMW_ER(WRLcYLL-ARM&ERf(MWN.fcZ(cRR!WEMZMRWYAEMENRf2(E_(fcZ9_fY(LfK=MLE(Af-ENEA_ZRE(REW(lRY,LRA(YWEpfL((_>>mZEc>YRW#%EM-ERA#-ENRWY(bNMR(M<ccYLL(B*_AEEAM(RWi>LZ-cR>_Zcv(YfLSN--(NRfr(MYNRR(_cEAAL>HcMEE-fR-ELM>(ZR_B%YW-o>Y&WWQL-RL_fE-L_R>eZEc(REW<cZM(LfAm-EN(>RRY_E>RWR__YEL(ARMTE(f(McN2>-Z(cRRGZWcEMRWWAE>ZNRfU(ENMf-ZC_YY(-(auMEE(AfM-NEAlZR_WREW()RR_LRA(YLEGA6((_R>1(Wc>YRZMnEYYERAl-EN(WL(}N-R((WceYWL(AR>ZEEAR(RN_>EZMcRR%ZLw(RdLzAL-(Nff2-WNfRR(LcE>ZLRU2MELMAf-QEM>(Z>_HREW(jRYNLE1R-RLWfE((_R>u((c(RAW}+EM(EfAg-W->>R-E_ERfWRc7YEL(ZYM1LZf(M%N;>EZ(cRRfWEcYMRL}AE-(NRfwMd_(RRZ^cEY(LRTnMER_fR-KNE>-ZR_xREW(");local n=h.tLVAZeSG;h.wBLsrvzs(function()n=n+h.TmtuZCFc end)local function e(e,f)if f then return n end;n=e+n;end local f,n,o=r(h.tLVAZeSG,r,e,_,h.dKBoDSQp);local function l()local n,f=h.dKBoDSQp(_,e(h.TmtuZCFc,h.ZYElJVem),e(h.tudnIYpB,h.MmkxLTJp)+h.OWCOLRhJ);e(h.OWCOLRhJ);return(f*h.GFQwGxnE)+n;end;local de=true;local u=h.tLVAZeSG local function m()local d=n();local e=n();local t=h.TmtuZCFc;local d=(f(e,h.TmtuZCFc,h.zuzVXYYq)*(h.OWCOLRhJ^h.zmUWeyzQ))+d;local n=f(e,h.JGWWmVXg,h.EPossHjx);local e=((-h.TmtuZCFc)^f(e,h.zmUWeyzQ));if(n==h.tLVAZeSG)then if(d==u)then return e*h.tLVAZeSG;else n=h.TmtuZCFc;t=h.tLVAZeSG;end;elseif(n==h.vFTHSvou)then return(d==h.tLVAZeSG)and(e*(h.TmtuZCFc/h.tLVAZeSG))or(e*(h.tLVAZeSG/h.tLVAZeSG));end;return h.Rpbj_HKL(e,n-h.QiFPFPXO)*(t+(d/(h.OWCOLRhJ^h.zcetunPj)));end;local b=n;local function p(n)local f;if(not n)then n=b();if(n==h.tLVAZeSG)then return'';end;end;f=h.SMXSyfL_(_,e(h.TmtuZCFc,h.ZYElJVem),e(h.tudnIYpB,h.MmkxLTJp)+n-h.TmtuZCFc);e(n)local e=""for n=(h.TmtuZCFc+u),#f do e=e..h.SMXSyfL_(f,n,n)end return e;end;local u=#h.gQfKLhjP(a('\49.\48'))~=h.TmtuZCFc local e=n;local function ne(...)return{...},h.AZI_Jlev('#',...)end local function fe()local e={};local a={};local s={};local _={a,s,nil,e};local e=n()local r={}for d=h.TmtuZCFc,e do local f=o();local e;if(f==h.tLVAZeSG)then e=(o()~=#{});elseif(f==h.OWCOLRhJ)then local n=m();if u and h.GafACRPb(h.gQfKLhjP(n),'.(\48+)$')then n=h.mUPkKdMm(n);end e=n;elseif(f==h.ZYElJVem)then e=p();end;r[d]=e;end;for e=h.TmtuZCFc,n()do s[e-(#{h.TmtuZCFc})]=fe();end;for _=h.TmtuZCFc,n()do local e=o();if(f(e,h.TmtuZCFc,h.TmtuZCFc)==h.tLVAZeSG)then local s=f(e,h.OWCOLRhJ,h.ZYElJVem);local o=f(e,h.KSZi_RoH,h.MmkxLTJp);local e={l(),l(),nil,nil};if(s==h.tLVAZeSG)then e[t]=l();e[c]=l();elseif(s==#{h.TmtuZCFc})then e[t]=n();elseif(s==k[h.OWCOLRhJ])then e[t]=n()-(h.OWCOLRhJ^h.GuOUACIS)elseif(s==k[h.ZYElJVem])then e[t]=n()-(h.OWCOLRhJ^h.GuOUACIS)e[c]=l();end;if(f(o,h.TmtuZCFc,h.TmtuZCFc)==h.TmtuZCFc)then e[d]=r[e[d]]end if(f(o,h.OWCOLRhJ,h.OWCOLRhJ)==h.TmtuZCFc)then e[t]=r[e[t]]end if(f(o,h.ZYElJVem,h.ZYElJVem)==h.TmtuZCFc)then e[c]=r[e[c]]end a[_]=e;end end;_[h.ZYElJVem]=o();return _;end;local function te(f,e,n)local d=e;local d=n;return a(h.GafACRPb(h.GafACRPb(({h.wBLsrvzs(f)})[h.OWCOLRhJ],e),n))end local function p(g,_,a)local function te(...)local l,m,j,fe,u,n,o,b,ee,z,k,f;local e=h.tLVAZeSG;while-h.TmtuZCFc<e do if e>h.OWCOLRhJ then if e<=h.KSZi_RoH then if e~=-h.TmtuZCFc then repeat if e<h.KSZi_RoH then b={};ee={...};break;end;z=h.AZI_Jlev('#',...)-h.TmtuZCFc;k={};until true;else z=h.AZI_Jlev('#',...)-h.TmtuZCFc;k={};end else if h.TmtuZCFc<e then for n=h.dHLfGzWM,h._jKtdWCp do if h.MmkxLTJp>e then f=r(h.JLzpIhmr);break;end;e=-h.OWCOLRhJ;break;end;else f=r(h.JLzpIhmr);end end else if h.TmtuZCFc>e then l=r(h.MmkxLTJp,h.lReLszmZ,h.TmtuZCFc,h.lVJwpjEH,g);m=r(h.MmkxLTJp,h.lReLszmZ,h.OWCOLRhJ,h.dHLfGzWM,g);else if e>-h.TmtuZCFc then for f=h._FeALQCD,h.lMMrEv_C do if e~=h.TmtuZCFc then n=-h.gRXtPqS_;o=-h.TmtuZCFc;break;end;j=r(h.MmkxLTJp,h.vmrkkDkK,h.ZYElJVem,h.HUdywuBw,g);u=ne fe=h.tLVAZeSG;break;end;else j=r(h.MmkxLTJp,h.vmrkkDkK,h.ZYElJVem,h.HUdywuBw,g);u=ne fe=h.tLVAZeSG;end end end e=e+h.TmtuZCFc;end;for e=h.tLVAZeSG,z do if(e>=j)then b[e-j]=ee[e+h.TmtuZCFc];else f[e]=ee[e+h.TmtuZCFc];end;end;local j=z-j+h.TmtuZCFc local e;local r;function SHXPvtStqIoa()de=false;end;local function z(...)while true do end end while de do if n<-h.RLTVcLsH then n=n+42 end e=l[n];r=e[y];if 84>=r then if 41<r then if r>62 then if r<74 then if 67>=r then if r>=65 then if 65>=r then if not f[e[d]]then n=n+1;else n=e[t];end;else if 65~=r then repeat if 67>r then local h;for r=0,6 do if r>=3 then if r>4 then if r>3 then for h=19,92 do if 5~=r then f(e[d],e[t]);break;end;f(e[d],e[t]);n=n+1;e=l[n];break;end;else f(e[d],e[t]);n=n+1;e=l[n];end else if 2<r then for c=17,55 do if 3<r then f[e[d]]=f[e[t]];n=n+1;e=l[n];break;end;h=e[d]f[h]=f[h](s(f,h+1,e[t]))n=n+1;e=l[n];break;end;else h=e[d]f[h]=f[h](s(f,h+1,e[t]))n=n+1;e=l[n];end end else if r>0 then if r==1 then f(e[d],e[t]);n=n+1;e=l[n];else f(e[d],e[t]);n=n+1;e=l[n];end else f(e[d],e[t]);n=n+1;e=l[n];end end end break;end;local r;f[e[d]]=f[e[t]];n=n+1;e=l[n];r=e[d]f[r](f[r+1])n=n+1;e=l[n];f[e[d]]=a[e[t]];n=n+1;e=l[n];f[e[d]]();n=n+1;e=l[n];do return end;n=n+1;e=l[n];for e=e[d],e[t]do f[e]=nil;end;until true;else local h;for r=0,6 do if r>=3 then if r>4 then if r>3 then for h=19,92 do if 5~=r then f(e[d],e[t]);break;end;f(e[d],e[t]);n=n+1;e=l[n];break;end;else f(e[d],e[t]);n=n+1;e=l[n];end else if 2<r then for c=17,55 do if 3<r then f[e[d]]=f[e[t]];n=n+1;e=l[n];break;end;h=e[d]f[h]=f[h](s(f,h+1,e[t]))n=n+1;e=l[n];break;end;else h=e[d]f[h]=f[h](s(f,h+1,e[t]))n=n+1;e=l[n];end end else if r>0 then if r==1 then f(e[d],e[t]);n=n+1;e=l[n];else f(e[d],e[t]);n=n+1;e=l[n];end else f(e[d],e[t]);n=n+1;e=l[n];end end end end end else if r>=61 then for h=24,66 do if 63<r then local r;for h=0,3 do if 2<=h then if 1~=h then repeat if h<3 then f[e[d]][f[e[t]]]=f[e[c]];n=n+1;e=l[n];break;end;f[e[d]][f[e[t]]]=f[e[c]];until true;else f[e[d]][f[e[t]]]=f[e[c]];n=n+1;e=l[n];end else if 0==h then f[e[d]]=f[e[t]];n=n+1;e=l[n];else r=e[d]f[r]=f[r](f[r+1])n=n+1;e=l[n];end end end break;end;f[e[d]]={};break;end;else f[e[d]]={};end end else if 71>r then if r<69 then f[e[d]]=_[e[t]];else if 68<=r then for l=12,87 do if r~=69 then f[e[d]]=f[e[t]][f[e[c]]];break;end;local r,h,k,_,s,b,o,a,u;local l=0;while l>-1 do if l>=3 then if 4>=l then if l>=1 then for e=44,97 do if 3~=l then u=o==a and h[b]or 1+k;break;end;o=r[_];a=r[s];break;end;else o=r[_];a=r[s];end else if 3~=l then for e=12,97 do if l>5 then l=-2;break;end;n=u;break;end;else l=-2;end end else if l<1 then r=f;else if l~=-2 then repeat if l<2 then h=e;k=n;break;end;_=h[d];s=h[c];b=t;until true;else h=e;k=n;end end end l=l+1 end break;end;else local h,r,k,_,s,b,a,o,u;local l=0;while l>-1 do if l>=3 then if 4>=l then if l>=1 then for e=44,97 do if 3~=l then u=a==o and r[b]or 1+k;break;end;a=h[_];o=h[s];break;end;else a=h[_];o=h[s];end else if 3~=l then for e=12,97 do if l>5 then l=-2;break;end;n=u;break;end;else l=-2;end end else if l<1 then h=f;else if l~=-2 then repeat if l<2 then r=e;k=n;break;end;_=r[d];s=r[c];b=t;until true;else r=e;k=n;end end end l=l+1 end end end else if r>=72 then if 72==r then local h;for r=0,3 do if r<=1 then if-3<r then for h=41,67 do if 0~=r then f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];break;end;f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];break;end;else f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];end else if-1<r then for c=13,84 do if 2<r then if not f[e[d]]then n=n+1;else n=e[t];end;break;end;h=e[d]f[h]=f[h](s(f,h+1,e[t]))n=n+1;e=l[n];break;end;else if not f[e[d]]then n=n+1;else n=e[t];end;end end end else do return end;end else local e=e[d];o=e+j-1;for n=e,o do local e=b[n-e];f[n]=e;end;end end end else if r<=78 then if 75<r then if r>=77 then if 78>r then for e=e[d],e[t]do f[e]=nil;end;else local r,h,s;for c=0,2 do if c>0 then if c>=-2 then for o=15,84 do if 2>c then f(e[d],e[t]);n=n+1;e=l[n];break;end;r=e[d];h=f[r]s=f[r+2];if(s>0)then if(h>f[r+1])then n=e[t];else f[r+3]=h;end elseif(h<f[r+1])then n=e[t];else f[r+3]=h;end break;end;else f(e[d],e[t]);n=n+1;e=l[n];end else f[e[d]]=#f[e[t]];n=n+1;e=l[n];end end end else f[e[d]]=a[e[t]];end else if 75==r then for r=0,6 do if r<3 then if r<=0 then f[e[d]]=f[e[t]];n=n+1;e=l[n];else if-3~=r then repeat if 1~=r then f(e[d],e[t]);n=n+1;e=l[n];break;end;f[e[d]]=f[e[t]];n=n+1;e=l[n];until true;else f[e[d]]=f[e[t]];n=n+1;e=l[n];end end else if r<=4 then if 2<=r then repeat if r~=4 then f(e[d],e[t]);n=n+1;e=l[n];break;end;f(e[d],e[t]);n=n+1;e=l[n];until true;else f(e[d],e[t]);n=n+1;e=l[n];end else if 2<r then repeat if 6>r then f(e[d],e[t]);n=n+1;e=l[n];break;end;f(e[d],e[t]);until true;else f(e[d],e[t]);end end end end else local r,m,b,u,p,r,r,h,o,_,a,c,k;for r=0,6 do if r<3 then if 1>r then r=0;while r>-1 do if 3>=r then if r<=1 then if r>=-2 then repeat if r~=0 then m=d;break;end;h=e;until true;else h=e;end else if r~=3 then b=t;else u=f;end end else if r<=5 then if 1<r then repeat if r~=5 then p=u[h[b]];break;end;c=h[m];until true;else p=u[h[b]];end else if r~=4 then repeat if 6~=r then r=-2;break;end;f[c]=p;until true;else r=-2;end end end r=r+1 end n=n+1;e=l[n];else if 1==r then r=0;while r>-1 do if r>=3 then if r>=5 then if r==6 then r=-2;else f(c,a);end else if 2~=r then repeat if r<4 then a=h[_];break;end;c=h[o];until true;else c=h[o];end end else if 0>=r then h=e;else if 2~=r then o=d;else _=t;end end end r=r+1 end n=n+1;e=l[n];else r=0;while r>-1 do if 3>r then if 1<=r then if r>1 then _=t;else o=d;end else h=e;end else if 5<=r then if r>5 then r=-2;else f(c,a);end else if r==4 then c=h[o];else a=h[_];end end end r=r+1 end n=n+1;e=l[n];end end else if r>=5 then if 1<r then for u=28,95 do if r<6 then r=0;while r>-1 do if r>2 then if r<=4 then if r~=2 then for e=28,86 do if r<4 then a=h[_];break;end;c=h[o];break;end;else c=h[o];end else if r~=4 then for e=37,98 do if 5~=r then r=-2;break;end;f(c,a);break;end;else r=-2;end end else if r<=0 then h=e;else if r~=1 then _=t;else o=d;end end end r=r+1 end n=n+1;e=l[n];break;end;k=e[d]f[k]=f[k](s(f,k+1,e[t]))break;end;else r=0;while r>-1 do if r>2 then if r<=4 then if r~=2 then for e=28,86 do if r<4 then a=h[_];break;end;c=h[o];break;end;else c=h[o];end else if r~=4 then for e=37,98 do if 5~=r then r=-2;break;end;f(c,a);break;end;else r=-2;end end else if r<=0 then h=e;else if r~=1 then _=t;else o=d;end end end r=r+1 end n=n+1;e=l[n];end else if 2<r then for s=26,87 do if 3<r then r=0;while r>-1 do if r>2 then if r>=5 then if 2<=r then for e=48,78 do if 6~=r then f(c,a);break;end;r=-2;break;end;else r=-2;end else if 3~=r then c=h[o];else a=h[_];end end else if 1<=r then if 2==r then _=t;else o=d;end else h=e;end end r=r+1 end n=n+1;e=l[n];break;end;r=0;while r>-1 do if 3>r then if 1>r then h=e;else if r>-1 then repeat if r<2 then o=d;break;end;_=t;until true;else o=d;end end else if 5>r then if-1<r then repeat if 3<r then c=h[o];break;end;a=h[_];until true;else a=h[_];end else if 1<=r then for e=34,52 do if r~=6 then f(c,a);break;end;r=-2;break;end;else r=-2;end end end r=r+1 end n=n+1;e=l[n];break;end;else r=0;while r>-1 do if r>2 then if r>=5 then if 2<=r then for e=48,78 do if 6~=r then f(c,a);break;end;r=-2;break;end;else r=-2;end else if 3~=r then c=h[o];else a=h[_];end end else if 1<=r then if 2==r then _=t;else o=d;end else h=e;end end r=r+1 end n=n+1;e=l[n];end end end end end end else if r>81 then if r>82 then if r>79 then for h=26,62 do if r~=83 then for r=0,1 do if r~=0 then if f[e[d]]then n=n+1;else n=e[t];end;else f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];end end break;end;for r=0,1 do if 0<r then if(f[e[d]]==f[e[c]])then n=n+1;else n=e[t];end;else f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];end end break;end;else for r=0,1 do if 0<r then if(f[e[d]]==f[e[c]])then n=n+1;else n=e[t];end;else f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];end end end else local n=e[d];local d=f[n];for e=n+1,e[t]do h.OJVBa_bJ(d,f[e])end;end else if 79<r then if 76<=r then for h=44,93 do if 81>r then local r;f[e[d]][e[t]]=f[e[c]];n=n+1;e=l[n];r=e[d]f[r]=f[r](s(f,r+1,e[t]))n=n+1;e=l[n];f[e[d]]=a[e[t]];n=n+1;e=l[n];f[e[d]]=_[e[t]];n=n+1;e=l[n];f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];f[e[d]]=f[e[t]];n=n+1;e=l[n];r=e[d]f[r](s(f,r+1,e[t]))break;end;local r,h,c;for s=0,2 do if 0>=s then f[e[d]]=#f[e[t]];n=n+1;e=l[n];else if 1==s then f(e[d],e[t]);n=n+1;e=l[n];else r=e[d];h=f[r]c=f[r+2];if(c>0)then if(h>f[r+1])then n=e[t];else f[r+3]=h;end elseif(h<f[r+1])then n=e[t];else f[r+3]=h;end end end end break;end;else local r,h,s;for c=0,2 do if 0>=c then f[e[d]]=#f[e[t]];n=n+1;e=l[n];else if 1==c then f(e[d],e[t]);n=n+1;e=l[n];else r=e[d];h=f[r]s=f[r+2];if(s>0)then if(h>f[r+1])then n=e[t];else f[r+3]=h;end elseif(h<f[r+1])then n=e[t];else f[r+3]=h;end end end end end else local r,o;for h=0,5 do if 2<h then if 3<h then if h==4 then f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];else f[e[d]]=f[e[t]]*e[c];end else r=e[d]f[r]=f[r](s(f,r+1,e[t]))n=n+1;e=l[n];end else if 1<=h then if h~=-1 then repeat if 2~=h then f[e[d]]=f[e[t]];n=n+1;e=l[n];break;end;f[e[d]]=f[e[t]];n=n+1;e=l[n];until true;else f[e[d]]=f[e[t]];n=n+1;e=l[n];end else r=e[d];o=f[e[t]];f[r+1]=o;f[r]=o[e[c]];n=n+1;e=l[n];end end end end end end end else if 52>r then if 46>=r then if r>43 then if 44>=r then f[e[d]]=f[e[t]]+f[e[c]];else if 42<=r then repeat if 45<r then do return f[e[d]]end break;end;local h,r;f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];f[e[d]]=f[e[t]]+f[e[c]];n=n+1;e=l[n];f[e[d]]=f[e[t]];n=n+1;e=l[n];f[e[d]]=_[e[t]];n=n+1;e=l[n];f[e[d]]=f[e[t]]%e[c];n=n+1;e=l[n];f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];h=e[t];r=f[h]for e=h+1,e[c]do r=r..f[e];end;f[e[d]]=r;until true;else do return f[e[d]]end end end else if 43>r then f[e[d]]=f[e[t]]+f[e[c]];else local o,k,u,s,_,a,r,h;for r=0,5 do if r>2 then if 4>r then f[e[d]][f[e[t]]]=f[e[c]];n=n+1;e=l[n];else if 3<=r then repeat if 5>r then f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];break;end;f[e[d]][f[e[t]]]=f[e[c]];until true;else f[e[d]][f[e[t]]]=f[e[c]];end end else if 0<r then if-2<r then repeat if r<2 then r=0;while r>-1 do if 3<r then if r>5 then if r==6 then f[a]=_;else r=-2;end else if 4~=r then a=o[k];else _=s[o[u]];end end else if r>=2 then if r>=0 then repeat if r>2 then s=f;break;end;u=t;until true;else s=f;end else if r~=1 then o=e;else k=d;end end end r=r+1 end n=n+1;e=l[n];break;end;h=e[d]f[h]=f[h](f[h+1])n=n+1;e=l[n];until true;else h=e[d]f[h]=f[h](f[h+1])n=n+1;e=l[n];end else f[e[d]]=f[e[t]][e[c]];n=n+1;e=l[n];end end end end end else if 49>r then if 48>r then local n=e[d];local d=f[e[t]];f[n+1]=d;f[n]=d[e[c]];else f[e[d]]=(e[t]~=0);end else if 49>=r then f[e[d]]={};n=n+1;e=l[n];f[e[d]]={};n=n+1;e=l[n];f[e[d]]={};n=n+1;e=l[n];f(e[d],e[t]);n=n+1;e=l[n];f(e[d],e[t]);n=n+1;e=l[n];f(e[d],e[t]);n=n+1;e=l[n];f(e[d],e[t]);else if r>46 then repeat if r>50 then local s,_,o,a,k,r,h,c,u;for r=0,2 do if r>0 then if r~=2 then r=0;while r>-1 do if 2<r then if 5<=r then if 3<r then repeat if 5~=r then r=-2;break;end;f(k,a);until true;else r=-2;end else if r>-1 then for e=10,64 do if r~=4 then a=s[o];break;end;k=s[_];break;end;else a=s[o];end end else if r>0 then if 0<=r then repeat if r>1 then o=t;break;end;_=d;until true;else _=d;end else s=e;end end r=r+1 end n=n+1;e=l[n];else h=e[d];c=f[h]u=f[h+2];if(u>0)then if(c>f[h+1])then n=e[t];else f[h+3]=c;end elseif(c<f[h+1])then n=e[t];else f[h+3]=c;end end else f[e[d]]=#f[e[t]];n=n+1;e=l[n];end end break;end;f[e[d]]=f[e[t]]-e[c];until true;else f[e[d]]=f[e[t]]-e[c];end end end end else if 57>r then if 53<r then if r>=55 then if 55~=r then local n=e[d]local d,e=u(f[n](s(f,n+1,e[t])))o=e+n-1 local e=0;for n=n,o do e=e+1;f[n]=d[e];end;else local r,_,k,h;for c=0,5 do if c<3 then if 0<c then if c~=0 then for h=29,63 do if 2~=c then r=e[d]f[r]=f[r]()n=n+1;e=l[n];break;end;f(e[d],e[t]);n=n+1;e=l[n];break;end;else r=e[d]f[r]=f[r]()n=n+1;e=l[n];end else r=e[d]f[r]=f[r](f[r+1])n=n+1;e=l[n];end else if c<=3 then f[e[d]]=a[e[t]];n=n+1;e=l[n];else if c>2 then for a=11,89 do if 5>c then r=e[d]_,k=u(f[r](s(f,r+1,e[t])))o=k+r-1 h=0;for e=r,o do h=h+1;f[e]=_[h];end;n=n+1;e=l[n];break;end;r=e[d]f[r]=f[r](s(f,r+1,o))break;end;else r=e[d]_,k=u(f[r](s(f,r+1,e[t])))o=k+r-1 h=0;for e=r,o do h=h+1;f[e]=_[h];end;n=n+1;e=l[n];end end end end end else local r,h,c;for s=0,2 do if s<1 then f(e[d],e[t]);n=n+1;e=l[n];else if s>=-2 then for o=25,78 do if 2>s then f(e[d],e[t]);n=n+1;e=l[n];break;end;r=e[d];h=f[r]c=f[r+2];if(c>0)then if(h>f[r+1])then n=e[t];else f[r+3]=h;end elseif(h<f[r+1])then n=e[t];else f[r+3]=h;end break;end;else r=e[d];h=f[r]c=f[r+2];if(c>0)then if(h>f[r+1])then n=e[t];else f[r+3]=h;end elseif(h<f[r+1])then n=e[t];else f[r+3]=h;end end end end end else if 51<=r then repeat if r<53 then local r;r=e[d]f[r](f[r+1])n=n+1;e=l[n];f[e[d]]=a[e[t]];n=n+1;e=l[n];f[e[d]]=a[e[t]];n=n+1;e=l[n];f[e[d]]=f[e[t]][e[c]];n=n+1;e=l[n];f[e[d]]=a[e[t]];n=n+1;e=l[n];f[e[d]]=f[e[t]][e[c]];n=n+1;e=l[n];f[e[d]]=a[e[t]];break;end;a[e[t]]=f[e[d]];until true;else local r;r=e[d]f[r](f[r+1])n=n+1;e=l[n];f[e[d]]=a[e[t]];n=n+1;e=l[n];f[e[d]]=a[e[t]];n=n+1;e=l[n];f[e[d]]=f[e[t]][e[c]];n=n+1;e=l[n];f[e[d]]=a[e[t]];n=n+1;e=l[n];f[e[d]]=f[e[t]][e[c]];n=n+1;e=l[n];f[e[d]]=a[e[t]];end end else if r>=60 then if 60<r then if r~=61 then local n=e[d]local d,e=u(f[n](s(f,n+1,e[t])))o=e+n-1 local e=0;for n=n,o do e=e+1;f[n]=d[e];end;else local e=e[d]local d,n=u(f[e](f[e+1]))o=n+e-1 local n=0;for e=e,o do n=n+1;f[e]=d[n];end;end else local r;f[e[d]][e[t]]=f[e[c]];n=n+1;e=l[n];r=e[d]f[r]=f[r](s(f,r+1,e[t]))n=n+1;e=l[n];f[e[d]]=a[e[t]];n=n+1;e=l[n];f[e[d]]=_[e[t]];n=n+1;e=l[n];f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];f[e[d]]=f[e[t]];n=n+1;e=l[n];r=e[d]f[r](s(f,r+1,e[t]))end else if r<58 then f[e[d]]=p(m[e[t]],nil,a);else if 58<r then local e=e[d];local n=f[e];for e=e+1,o do h.OJVBa_bJ(n,f[e])end;else local _,s,o,r,h,a,l;local n=0;while n>-1 do if 2<n then if 4>=n then if 0~=n then repeat if 3<n then l=f[h];for e=1+h,r[o]do l=l..f[e];end;break;end;a=r[_];until true;else l=f[h];for e=1+h,r[o]do l=l..f[e];end;end else if 2~=n then repeat if n>5 then n=-2;break;end;f[a]=l;until true;else f[a]=l;end end else if n>0 then if-3~=n then repeat if 1<n then h=r[s];break;end;r=e;until true;else h=r[s];end else _=d;s=t;o=c;end end n=n+1 end end end end end end end else if r<21 then if r>9 then if r<=14 then if 12<=r then if r>=13 then if r>13 then f[e[d]]=f[e[t]][e[c]];n=n+1;e=l[n];f[e[d]]();n=n+1;e=l[n];f[e[d]]=f[e[t]];n=n+1;e=l[n];f[e[d]]();n=n+1;e=l[n];do return end;else f[e[d]]=a[e[t]];end else f[e[d]]=f[e[t]][f[e[c]]];end else if 8~=r then for t=48,76 do if 10~=r then local t,s,r;for c=0,1 do if-3<c then repeat if 1~=c then t=e[d];o=t+j-1;for e=t,o do s=b[e-t];f[e]=s;end;n=n+1;e=l[n];break;end;t=e[d];r=f[t];for e=t+1,o do h.OJVBa_bJ(r,f[e])end;until true;else t=e[d];r=f[t];for e=t+1,o do h.OJVBa_bJ(r,f[e])end;end end break;end;local t,s,a,r,c;for _=0,1 do if-1<=_ then for k=47,52 do if 0<_ then t=e[d];c=f[t];for e=t+1,o do h.OJVBa_bJ(c,f[e])end;break;end;t=e[d]s,a=u(f[t](f[t+1]))o=a+t-1 r=0;for e=t,o do r=r+1;f[e]=s[r];end;n=n+1;e=l[n];break;end;else t=e[d];c=f[t];for e=t+1,o do h.OJVBa_bJ(c,f[e])end;end end break;end;else local t,_,a,r,c;for s=0,1 do if-1<=s then for k=47,52 do if 0<s then t=e[d];c=f[t];for e=t+1,o do h.OJVBa_bJ(c,f[e])end;break;end;t=e[d]_,a=u(f[t](f[t+1]))o=a+t-1 r=0;for e=t,o do r=r+1;f[e]=_[r];end;n=n+1;e=l[n];break;end;else t=e[d];c=f[t];for e=t+1,o do h.OJVBa_bJ(c,f[e])end;end end end end else if 18>r then if r<=15 then f[e[d]][e[t]]=f[e[c]];else if r>=15 then repeat if r~=16 then local o=m[e[t]];local s;local r={};s=h.V_CmZSyd({},{__index=function(n,e)local e=r[e];return e[1][e[2]];end,__newindex=function(f,e,n)local e=r[e]e[1][e[2]]=n;end;});for d=1,e[c]do n=n+1;local e=l[n];if e[y]==96 then r[d-1]={f,e[t]};else r[d-1]={_,e[t]};end;k[#k+1]=r;end;f[e[d]]=p(o,s,a);break;end;local d=e[d];local l=f[d]local r=f[d+2];if(r>0)then if(l>f[d+1])then n=e[t];else f[d+3]=l;end elseif(l<f[d+1])then n=e[t];else f[d+3]=l;end until true;else local d=e[d];local l=f[d]local r=f[d+2];if(r>0)then if(l>f[d+1])then n=e[t];else f[d+3]=l;end elseif(l<f[d+1])then n=e[t];else f[d+3]=l;end end end else if r>18 then if r>17 then repeat if 19<r then f[e[d]]={};break;end;local e=e[d]f[e](f[e+1])until true;else f[e[d]]={};end else f[e[d]]=f[e[t]]+e[c];end end end else if 4<r then if 6>=r then if r>5 then f[e[d]]={};n=n+1;e=l[n];f(e[d],e[t]);n=n+1;e=l[n];f[e[d]]=f[e[t]];n=n+1;e=l[n];f(e[d],e[t]);n=n+1;e=l[n];f(e[d],e[t]);n=n+1;e=l[n];f(e[d],e[t]);n=n+1;e=l[n];f(e[d],e[t]);else local e=e[d];local n=f[e];for e=e+1,o do h.OJVBa_bJ(n,f[e])end;end else if 8<=r then if r>=6 then for l=23,70 do if r>8 then n=e[t];break;end;local l,r,h,o,s,c;local n=0;while n>-1 do if n<=3 then if n<=1 then if n~=1 then l=e;else r=d;end else if-2<n then for e=24,70 do if 2<n then o=f;break;end;h=t;break;end;else h=t;end end else if 5<n then if n~=6 then n=-2;else f[c]=s;end else if n>1 then repeat if 5~=n then s=o[l[h]];break;end;c=l[r];until true;else c=l[r];end end end n=n+1 end break;end;else n=e[t];end else local e=e[d]f[e]=f[e](s(f,e+1,o))end end else if 2<=r then if 2>=r then local e=e[d]f[e]=f[e]()else if r==3 then local r;f[e[d]]=_[e[t]];n=n+1;e=l[n];f[e[d]]=_[e[t]];n=n+1;e=l[n];f[e[d]]=f[e[t]];n=n+1;e=l[n];r=e[d]f[r]=f[r](f[r+1])n=n+1;e=l[n];f[e[d]][f[e[t]]]=f[e[c]];n=n+1;e=l[n];do return end;else if(f[e[d]]==e[c])then n=n+1;else n=e[t];end;end end else if-1~=r then for h=10,95 do if r~=1 then local r;f(e[d],e[t]);n=n+1;e=l[n];r=e[d]f[r](f[r+1])n=n+1;e=l[n];f[e[d]]=a[e[t]];n=n+1;e=l[n];f[e[d]]();n=n+1;e=l[n];do return end;n=n+1;e=l[n];for e=e[d],e[t]do f[e]=nil;end;break;end;local e=e[d];o=e+j-1;for n=e,o do local e=b[n-e];f[n]=e;end;break;end;else local e=e[d];o=e+j-1;for n=e,o do local e=b[n-e];f[n]=e;end;end end end end else if 30<r then if 35<r then if r>38 then if 40<=r then if r~=40 then local l,s,c,h,r;local n=0;while n>-1 do if n<=2 then if n>0 then if 0~=n then repeat if 1~=n then c=t;break;end;s=d;until true;else c=t;end else l=e;end else if n>4 then if 2<n then repeat if n~=5 then n=-2;break;end;f(r,h);until true;else f(r,h);end else if n>0 then repeat if n<4 then h=l[c];break;end;r=l[s];until true;else r=l[s];end end end n=n+1 end else if(f[e[d]]==e[c])then n=n+1;else n=e[t];end;end else f[e[d]][e[t]]=f[e[c]];end else if r<37 then f[e[d]]=f[e[t]][e[c]];else if 38~=r then local r;f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];r=e[d];do return f[r](s(f,r+1,e[t]))end;n=n+1;e=l[n];r=e[d];do return s(f,r,o)end;n=n+1;e=l[n];do return end;else n=e[t];end end end else if r<=32 then if r>=27 then repeat if 32~=r then f[e[d]]=(e[t]~=0);break;end;local o,_,a,l,s,h,r;local n=0;while n>-1 do if n<3 then if n>=1 then if 1<n then s=l[_];else l=e;end else o=d;_=t;a=c;end else if 5<=n then if n~=6 then f[h]=r;else n=-2;end else if n~=1 then repeat if 4>n then h=l[o];break;end;r=f[s];for e=1+s,l[a]do r=r..f[e];end;until true;else h=l[o];end end end n=n+1 end until true;else f[e[d]]=(e[t]~=0);end else if 34<=r then if 33<=r then repeat if r>34 then local h,s,o;for r=0,6 do if 3>r then if 1<=r then if r~=-3 then repeat if 2>r then f[e[d]]=f[e[t]][e[c]];n=n+1;e=l[n];break;end;f[e[d]]={};n=n+1;e=l[n];until true;else f[e[d]]={};n=n+1;e=l[n];end else f[e[d]]=a[e[t]];n=n+1;e=l[n];end else if 5>r then if r>2 then for h=19,59 do if 3~=r then f(e[d],e[t]);n=n+1;e=l[n];break;end;f(e[d],e[t]);n=n+1;e=l[n];break;end;else f(e[d],e[t]);n=n+1;e=l[n];end else if 2~=r then repeat if 6~=r then f(e[d],e[t]);n=n+1;e=l[n];break;end;h=e[d];s=f[h]o=f[h+2];if(o>0)then if(s>f[h+1])then n=e[t];else f[h+3]=s;end elseif(s<f[h+1])then n=e[t];else f[h+3]=s;end until true;else f(e[d],e[t]);n=n+1;e=l[n];end end end end break;end;if(f[e[d]]~=e[c])then n=n+1;else n=e[t];end;until true;else local h,s,o;for r=0,6 do if 3>r then if 1<=r then if r~=-3 then repeat if 2>r then f[e[d]]=f[e[t]][e[c]];n=n+1;e=l[n];break;end;f[e[d]]={};n=n+1;e=l[n];until true;else f[e[d]]={};n=n+1;e=l[n];end else f[e[d]]=a[e[t]];n=n+1;e=l[n];end else if 5>r then if r>2 then for h=19,59 do if 3~=r then f(e[d],e[t]);n=n+1;e=l[n];break;end;f(e[d],e[t]);n=n+1;e=l[n];break;end;else f(e[d],e[t]);n=n+1;e=l[n];end else if 2~=r then repeat if 6~=r then f(e[d],e[t]);n=n+1;e=l[n];break;end;h=e[d];s=f[h]o=f[h+2];if(o>0)then if(s>f[h+1])then n=e[t];else f[h+3]=s;end elseif(s<f[h+1])then n=e[t];else f[h+3]=s;end until true;else f(e[d],e[t]);n=n+1;e=l[n];end end end end end else if f[e[d]]then n=n+1;else n=e[t];end;end end end else if 26<=r then if 28<=r then if r<29 then f[e[d]][f[e[t]]]=f[e[c]];else if r>26 then repeat if 30~=r then local h;for r=0,6 do if 2<r then if r>4 then if r>1 then for h=10,91 do if 5<r then f(e[d],e[t]);break;end;f(e[d],e[t]);n=n+1;e=l[n];break;end;else f(e[d],e[t]);end else if 2<r then for h=45,75 do if r<4 then f(e[d],e[t]);n=n+1;e=l[n];break;end;f(e[d],e[t]);n=n+1;e=l[n];break;end;else f(e[d],e[t]);n=n+1;e=l[n];end end else if 0>=r then h=e[d]f[h]=f[h](s(f,h+1,e[t]))n=n+1;e=l[n];else if r~=-1 then for h=39,82 do if 1~=r then f(e[d],e[t]);n=n+1;e=l[n];break;end;f[e[d]]=f[e[t]];n=n+1;e=l[n];break;end;else f[e[d]]=f[e[t]];n=n+1;e=l[n];end end end end break;end;local e=e[d]f[e]=f[e](f[e+1])until true;else local h;for r=0,6 do if 2<r then if r>4 then if r>1 then for h=10,91 do if 5<r then f(e[d],e[t]);break;end;f(e[d],e[t]);n=n+1;e=l[n];break;end;else f(e[d],e[t]);end else if 2<r then for h=45,75 do if r<4 then f(e[d],e[t]);n=n+1;e=l[n];break;end;f(e[d],e[t]);n=n+1;e=l[n];break;end;else f(e[d],e[t]);n=n+1;e=l[n];end end else if 0>=r then h=e[d]f[h]=f[h](s(f,h+1,e[t]))n=n+1;e=l[n];else if r~=-1 then for h=39,82 do if 1~=r then f(e[d],e[t]);n=n+1;e=l[n];break;end;f[e[d]]=f[e[t]];n=n+1;e=l[n];break;end;else f[e[d]]=f[e[t]];n=n+1;e=l[n];end end end end end end else if 26~=r then for r=0,1 do if r<1 then f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];else if not f[e[d]]then n=n+1;else n=e[t];end;end end else f[e[d]]=f[e[t]]+e[c];end end else if r<=22 then if r~=22 then local n=e[d];do return f[n](s(f,n+1,e[t]))end;else local e=e[d];do return s(f,e,o)end;end else if 24<=r then if r>23 then for l=15,68 do if r<25 then local e=e[d]f[e]=f[e](f[e+1])break;end;local h,r,u,o,s,a,_,k,b;local l=0;while l>-1 do if 2>=l then if l<=0 then h=f;else if-1<=l then for f=25,64 do if l>1 then o=r[d];s=r[c];a=t;break;end;r=e;u=n;break;end;else o=r[d];s=r[c];a=t;end end else if 5<=l then if l~=5 then l=-2;else n=b;end else if l>2 then repeat if l~=3 then b=_==k and r[a]or 1+u;break;end;_=h[o];k=h[s];until true;else _=h[o];k=h[s];end end end l=l+1 end break;end;else local e=e[d]f[e]=f[e](f[e+1])end else f[e[d]]=f[e[t]][e[c]];n=n+1;e=l[n];f[e[d]]();n=n+1;e=l[n];f[e[d]]=f[e[t]];n=n+1;e=l[n];f[e[d]]();n=n+1;e=l[n];do return end;end end end end end end else if 128<=r then if 148<r then if r>159 then if 165>r then if 161>=r then if r~=156 then repeat if r>160 then local h;for r=0,4 do if r<2 then if r~=-1 then repeat if 0<r then f(e[d],e[t]);n=n+1;e=l[n];break;end;f[e[d]]=f[e[t]];n=n+1;e=l[n];until true;else f[e[d]]=f[e[t]];n=n+1;e=l[n];end else if 2<r then if 0~=r then repeat if r~=4 then h=e[d]f[h]=f[h](s(f,h+1,e[t]))n=n+1;e=l[n];break;end;if(f[e[d]]==e[c])then n=n+1;else n=e[t];end;until true;else if(f[e[d]]==e[c])then n=n+1;else n=e[t];end;end else f(e[d],e[t]);n=n+1;e=l[n];end end end break;end;if f[e[d]]then n=n+1;else n=e[t];end;until true;else local h;for r=0,4 do if r<2 then if r~=-1 then repeat if 0<r then f(e[d],e[t]);n=n+1;e=l[n];break;end;f[e[d]]=f[e[t]];n=n+1;e=l[n];until true;else f[e[d]]=f[e[t]];n=n+1;e=l[n];end else if 2<r then if 0~=r then repeat if r~=4 then h=e[d]f[h]=f[h](s(f,h+1,e[t]))n=n+1;e=l[n];break;end;if(f[e[d]]==e[c])then n=n+1;else n=e[t];end;until true;else if(f[e[d]]==e[c])then n=n+1;else n=e[t];end;end else f(e[d],e[t]);n=n+1;e=l[n];end end end end else if r>162 then if 163~=r then local l,r,h,c,s;local n=0;while n>-1 do if 3<=n then if 4>=n then if n==3 then c=l[h];else s=l[r];end else if 6~=n then f(s,c);else n=-2;end end else if n<=0 then l=e;else if n~=1 then h=t;else r=d;end end end n=n+1 end else local r;for h=0,1 do if-4~=h then repeat if 1~=h then r=e[d]f[r]=f[r]()n=n+1;e=l[n];break;end;if f[e[d]]then n=n+1;else n=e[t];end;until true;else r=e[d]f[r]=f[r]()n=n+1;e=l[n];end end end else local n=e[d]f[n](s(f,n+1,e[t]))end end else if r<=167 then if r<166 then local _,o,a,r,s,h;f[e[d]]=f[e[t]][e[c]];n=n+1;e=l[n];f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];f[e[d]]=f[e[t]][e[c]];n=n+1;e=l[n];f[e[d]][f[e[t]]]=f[e[c]];n=n+1;e=l[n];do return f[e[d]]end n=n+1;e=l[n];_=e[d];o={};for e=1,#k do a=k[e];for e=0,#a do r=a[e];s=r[1];h=r[2];if s==f and h>=_ then o[h]=s[h];r[1]=o;end;end;end;else if r>=162 then repeat if 166~=r then _[e[t]]=f[e[d]];break;end;local l=e[d];local t={};for e=1,#k do local e=k[e];for n=0,#e do local e=e[n];local d=e[1];local n=e[2];if d==f and n>=l then t[n]=d[n];e[1]=t;end;end;end;until true;else _[e[t]]=f[e[d]];end end else if 169>r then local r,h;r=e[d];h=f[e[t]];f[r+1]=h;f[r]=h[e[c]];n=n+1;e=l[n];f[e[d]]=f[e[t]];n=n+1;e=l[n];f[e[d]]=f[e[t]];n=n+1;e=l[n];r=e[d]f[r]=f[r](s(f,r+1,e[t]))n=n+1;e=l[n];f[e[d]][f[e[t]]]=f[e[c]];n=n+1;e=l[n];r=e[d];h=f[e[t]];f[r+1]=h;f[r]=h[e[c]];n=n+1;e=l[n];f[e[d]]=f[e[t]];else if 165<=r then for h=28,72 do if r>169 then for r=0,1 do if-2~=r then repeat if 0~=r then if f[e[d]]then n=n+1;else n=e[t];end;break;end;f[e[d]]=a[e[t]];n=n+1;e=l[n];until true;else if f[e[d]]then n=n+1;else n=e[t];end;end end break;end;if(e[d]<f[e[c]])then n=n+1;else n=e[t];end;break;end;else if(e[d]<f[e[c]])then n=n+1;else n=e[t];end;end end end end else if r<=153 then if r>150 then if r<152 then local l=e[d];local t={};for e=1,#k do local e=k[e];for n=0,#e do local e=e[n];local d=e[1];local n=e[2];if d==f and n>=l then t[n]=d[n];e[1]=t;end;end;end;else if r~=148 then for h=23,75 do if r>152 then local r;f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];r=e[d]f[r]=f[r](f[r+1])n=n+1;e=l[n];f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];f[e[d]]=#f[e[t]];n=n+1;e=l[n];if(f[e[d]]==e[c])then n=n+1;else n=e[t];end;break;end;local n=e[d];do return f[n](s(f,n+1,e[t]))end;break;end;else local n=e[d];do return f[n](s(f,n+1,e[t]))end;end end else if r~=149 then f[e[d]]=_[e[t]];n=n+1;e=l[n];f[e[d]]=_[e[t]];n=n+1;e=l[n];f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];f[e[d]]=_[e[t]];n=n+1;e=l[n];f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];f[e[d]]=_[e[t]];n=n+1;e=l[n];f[e[d]]=_[e[t]];else local d=e[d];local l=f[d]local r=f[d+2];if(r>0)then if(l>f[d+1])then n=e[t];else f[d+3]=l;end elseif(l<f[d+1])then n=e[t];else f[d+3]=l;end end end else if 156>=r then if 155>r then local h,r;for s=0,4 do if s<2 then if-4<=s then repeat if s~=1 then f[e[d]]=_[e[t]];n=n+1;e=l[n];break;end;f[e[d]]=f[e[t]]+f[e[c]];n=n+1;e=l[n];until true;else f[e[d]]=_[e[t]];n=n+1;e=l[n];end else if 3>s then f[e[d]]=f[e[t]]%e[c];n=n+1;e=l[n];else if s>2 then repeat if s>3 then h=e[t];r=f[h]for e=h+1,e[c]do r=r..f[e];end;f[e[d]]=r;break;end;f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];until true;else h=e[t];r=f[h]for e=h+1,e[c]do r=r..f[e];end;f[e[d]]=r;end end end end else if 151~=r then repeat if 155<r then f[e[d]]=f[e[t]]%e[c];break;end;for r=0,1 do if 1~=r then f(e[d],e[t]);n=n+1;e=l[n];else f[e[d]]=a[e[t]];end end until true;else f[e[d]]=f[e[t]]%e[c];end end else if 158>r then f[e[d]]=f[e[t]][e[c]];n=n+1;e=l[n];f[e[d]]();n=n+1;e=l[n];f[e[d]]=f[e[t]];n=n+1;e=l[n];f[e[d]]();n=n+1;e=l[n];do return end;else if r<159 then local d=e[d];local r=f[d+2];local l=f[d]+r;f[d]=l;if(r>0)then if(l<=f[d+1])then n=e[t];f[d+3]=l;end elseif(l>=f[d+1])then n=e[t];f[d+3]=l;end else local r;f[e[d]]=f[e[t]];n=n+1;e=l[n];r=e[d]f[r](f[r+1])n=n+1;e=l[n];f[e[d]]=a[e[t]];n=n+1;e=l[n];f[e[d]]();n=n+1;e=l[n];do return end;end end end end end else if 138<=r then if r<=142 then if r>139 then if r>140 then if 137~=r then repeat if 141<r then f[e[d]]=#f[e[t]];break;end;local n=e[d]f[n]=f[n](s(f,n+1,e[t]))until true;else local n=e[d]f[n]=f[n](s(f,n+1,e[t]))end else local r,c;for o=0,1 do if-1<=o then for a=17,54 do if 0~=o then r=e[d];c=f[r];for e=r+1,e[t]do h.OJVBa_bJ(c,f[e])end;break;end;r=e[d]f[r]=f[r](s(f,r+1,e[t]))n=n+1;e=l[n];break;end;else r=e[d];c=f[r];for e=r+1,e[t]do h.OJVBa_bJ(c,f[e])end;end end end else if r>135 then for l=17,93 do if r<139 then if(f[e[d]]~=e[c])then n=n+1;else n=e[t];end;break;end;if not f[e[d]]then n=n+1;else n=e[t];end;break;end;else if not f[e[d]]then n=n+1;else n=e[t];end;end end else if 146>r then if 144<=r then if 142~=r then repeat if 144<r then local h,k,o,c,a,u,r,b;f[e[d]]=_[e[t]];n=n+1;e=l[n];f[e[d]]=_[e[t]];n=n+1;e=l[n];f[e[d]]=_[e[t]];n=n+1;e=l[n];r=0;while r>-1 do if 3>=r then if r<=1 then if r>=-2 then for n=31,79 do if r~=0 then k=d;break;end;h=e;break;end;else h=e;end else if r>=-1 then for e=47,82 do if r>2 then c=f;break;end;o=t;break;end;else o=t;end end else if r<=5 then if 1~=r then for e=41,84 do if r>4 then u=h[k];break;end;a=c[h[o]];break;end;else a=c[h[o]];end else if r==6 then f[u]=a;else r=-2;end end end r=r+1 end n=n+1;e=l[n];r=0;while r>-1 do if 4<=r then if 5>=r then if r>2 then repeat if r>4 then u=h[k];break;end;a=c[h[o]];until true;else a=c[h[o]];end else if 2<r then for e=49,82 do if 6~=r then r=-2;break;end;f[u]=a;break;end;else r=-2;end end else if 1>=r then if r>=-1 then repeat if r>0 then k=d;break;end;h=e;until true;else k=d;end else if r>=-1 then for e=39,82 do if 2<r then c=f;break;end;o=t;break;end;else c=f;end end end r=r+1 end n=n+1;e=l[n];r=0;while r>-1 do if 4<=r then if r<6 then if r==4 then a=c[h[o]];else u=h[k];end else if r~=2 then for e=44,71 do if r<7 then f[u]=a;break;end;r=-2;break;end;else f[u]=a;end end else if r<=1 then if r>0 then k=d;else h=e;end else if r~=0 then repeat if r>2 then c=f;break;end;o=t;until true;else c=f;end end end r=r+1 end n=n+1;e=l[n];b=e[d]f[b]=f[b](s(f,b+1,e[t]))break;end;f[e[d]]=f[e[t]]%f[e[c]];until true;else local h,u,a,c,o,k,r,b;f[e[d]]=_[e[t]];n=n+1;e=l[n];f[e[d]]=_[e[t]];n=n+1;e=l[n];f[e[d]]=_[e[t]];n=n+1;e=l[n];r=0;while r>-1 do if 3>=r then if r<=1 then if r>=-2 then for n=31,79 do if r~=0 then u=d;break;end;h=e;break;end;else h=e;end else if r>=-1 then for e=47,82 do if r>2 then c=f;break;end;a=t;break;end;else a=t;end end else if r<=5 then if 1~=r then for e=41,84 do if r>4 then k=h[u];break;end;o=c[h[a]];break;end;else o=c[h[a]];end else if r==6 then f[k]=o;else r=-2;end end end r=r+1 end n=n+1;e=l[n];r=0;while r>-1 do if 4<=r then if 5>=r then if r>2 then repeat if r>4 then k=h[u];break;end;o=c[h[a]];until true;else o=c[h[a]];end else if 2<r then for e=49,82 do if 6~=r then r=-2;break;end;f[k]=o;break;end;else r=-2;end end else if 1>=r then if r>=-1 then repeat if r>0 then u=d;break;end;h=e;until true;else u=d;end else if r>=-1 then for e=39,82 do if 2<r then c=f;break;end;a=t;break;end;else c=f;end end end r=r+1 end n=n+1;e=l[n];r=0;while r>-1 do if 4<=r then if r<6 then if r==4 then o=c[h[a]];else k=h[u];end else if r~=2 then for e=44,71 do if r<7 then f[k]=o;break;end;r=-2;break;end;else f[k]=o;end end else if r<=1 then if r>0 then u=d;else h=e;end else if r~=0 then repeat if r>2 then c=f;break;end;a=t;until true;else c=f;end end end r=r+1 end n=n+1;e=l[n];b=e[d]f[b]=f[b](s(f,b+1,e[t]))end else local d=e[d];local r=f[d+2];local l=f[d]+r;f[d]=l;if(r>0)then if(l<=f[d+1])then n=e[t];f[d+3]=l;end elseif(l>=f[d+1])then n=e[t];f[d+3]=l;end end else if r>146 then if 145<=r then repeat if 147<r then f[e[d]]=f[e[t]]-e[c];break;end;f[e[d]]=f[e[t]]-f[e[c]];until true;else f[e[d]]=f[e[t]]-e[c];end else if(f[e[d]]==f[e[c]])then n=n+1;else n=e[t];end;end end end else if 133>r then if r>=130 then if 131<=r then if r>127 then repeat if r<132 then local h,a,_,o,s,r;f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];r=0;while r>-1 do if 3>r then if r<=0 then h=e;else if-1<r then repeat if 2>r then a=d;break;end;_=t;until true;else _=t;end end else if 5<=r then if 4<=r then for e=37,60 do if 5~=r then r=-2;break;end;f(s,o);break;end;else f(s,o);end else if r>3 then s=h[a];else o=h[_];end end end r=r+1 end n=n+1;e=l[n];r=0;while r>-1 do if 3<=r then if 5>r then if r~=3 then s=h[a];else o=h[_];end else if r~=1 then for e=29,97 do if 6>r then f(s,o);break;end;r=-2;break;end;else f(s,o);end end else if r<=0 then h=e;else if 2~=r then a=d;else _=t;end end end r=r+1 end n=n+1;e=l[n];r=0;while r>-1 do if r>2 then if 5>r then if r~=3 then s=h[a];else o=h[_];end else if 1<r then repeat if 6~=r then f(s,o);break;end;r=-2;until true;else f(s,o);end end else if 1<=r then if-3<r then repeat if r>1 then _=t;break;end;a=d;until true;else a=d;end else h=e;end end r=r+1 end n=n+1;e=l[n];f[e[d]]=#f[e[t]];n=n+1;e=l[n];f[e[d]]=f[e[t]]-f[e[c]];n=n+1;e=l[n];r=0;while r>-1 do if 3<=r then if 5<=r then if r<6 then f(s,o);else r=-2;end else if r>2 then repeat if r>3 then s=h[a];break;end;o=h[_];until true;else s=h[a];end end else if r>0 then if r~=-1 then for e=43,97 do if r~=1 then _=t;break;end;a=d;break;end;else a=d;end else h=e;end end r=r+1 end break;end;f[e[d]]=#f[e[t]];until true;else local h,o,_,a,s,r;f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];r=0;while r>-1 do if 3>r then if r<=0 then h=e;else if-1<r then repeat if 2>r then o=d;break;end;_=t;until true;else _=t;end end else if 5<=r then if 4<=r then for e=37,60 do if 5~=r then r=-2;break;end;f(s,a);break;end;else f(s,a);end else if r>3 then s=h[o];else a=h[_];end end end r=r+1 end n=n+1;e=l[n];r=0;while r>-1 do if 3<=r then if 5>r then if r~=3 then s=h[o];else a=h[_];end else if r~=1 then for e=29,97 do if 6>r then f(s,a);break;end;r=-2;break;end;else f(s,a);end end else if r<=0 then h=e;else if 2~=r then o=d;else _=t;end end end r=r+1 end n=n+1;e=l[n];r=0;while r>-1 do if r>2 then if 5>r then if r~=3 then s=h[o];else a=h[_];end else if 1<r then repeat if 6~=r then f(s,a);break;end;r=-2;until true;else f(s,a);end end else if 1<=r then if-3<r then repeat if r>1 then _=t;break;end;o=d;until true;else o=d;end else h=e;end end r=r+1 end n=n+1;e=l[n];f[e[d]]=#f[e[t]];n=n+1;e=l[n];f[e[d]]=f[e[t]]-f[e[c]];n=n+1;e=l[n];r=0;while r>-1 do if 3<=r then if 5<=r then if r<6 then f(s,a);else r=-2;end else if r>2 then repeat if r>3 then s=h[o];break;end;a=h[_];until true;else s=h[o];end end else if r>0 then if r~=-1 then for e=43,97 do if r~=1 then _=t;break;end;o=d;break;end;else o=d;end else h=e;end end r=r+1 end end else do return f[e[d]]end end else if 124~=r then for n=10,54 do if r~=129 then f[e[d]]=f[e[t]]%e[c];break;end;local n=e[d]f[n](s(f,n+1,e[t]))break;end;else f[e[d]]=f[e[t]]%e[c];end end else if r>134 then if 135>=r then for r=0,1 do if r~=1 then f[e[d]]=a[e[t]];n=n+1;e=l[n];else if not f[e[d]]then n=n+1;else n=e[t];end;end end else if r>134 then for n=28,81 do if r<137 then f[e[d]][f[e[t]]]=f[e[c]];break;end;local n=e[d]f[n]=f[n](s(f,n+1,e[t]))break;end;else f[e[d]][f[e[t]]]=f[e[c]];end end else if r>=129 then repeat if 134>r then f[e[d]]=f[e[t]]-f[e[c]];break;end;local e=e[d];do return s(f,e,o)end;until true;else local e=e[d];do return s(f,e,o)end;end end end end end else if 106>r then if 95>r then if r<90 then if r>=87 then if r>=88 then if r==88 then local s,k,a,_,u,r,h,c,o;for r=0,2 do if 0<r then if-2~=r then repeat if r~=1 then h=e[d];c=f[h]o=f[h+2];if(o>0)then if(c>f[h+1])then n=e[t];else f[h+3]=c;end elseif(c<f[h+1])then n=e[t];else f[h+3]=c;end break;end;r=0;while r>-1 do if 3>r then if 0<r then if r==1 then k=d;else a=t;end else s=e;end else if 4<r then if 4~=r then for e=32,82 do if 5<r then r=-2;break;end;f(u,_);break;end;else r=-2;end else if-1<r then for e=42,77 do if 3<r then u=s[k];break;end;_=s[a];break;end;else _=s[a];end end end r=r+1 end n=n+1;e=l[n];until true;else h=e[d];c=f[h]o=f[h+2];if(o>0)then if(c>f[h+1])then n=e[t];else f[h+3]=c;end elseif(c<f[h+1])then n=e[t];else f[h+3]=c;end end else f[e[d]]=#f[e[t]];n=n+1;e=l[n];end end else local r;f[e[d]]=f[e[t]];n=n+1;e=l[n];r=e[d]f[r](f[r+1])n=n+1;e=l[n];f[e[d]]=a[e[t]];n=n+1;e=l[n];f[e[d]]();n=n+1;e=l[n];do return end;n=n+1;e=l[n];for e=e[d],e[t]do f[e]=nil;end;end else for e=e[d],e[t]do f[e]=nil;end;end else if 86>r then local r;for h=0,2 do if 0<h then if h~=-2 then repeat if h>1 then f[e[d]][f[e[t]]]=f[e[c]];break;end;f[e[d]]=f[e[t]]-e[c];n=n+1;e=l[n];until true;else f[e[d]][f[e[t]]]=f[e[c]];end else r=e[d]f[r]=f[r](s(f,r+1,e[t]))n=n+1;e=l[n];end end else f[e[d]]();end end else if 91>=r then if 87~=r then repeat if r>90 then local e=e[d]f[e](f[e+1])break;end;f[e[d]]=f[e[t]][e[c]];n=n+1;e=l[n];a[e[t]]=f[e[d]];n=n+1;e=l[n];f[e[d]]=a[e[t]];n=n+1;e=l[n];f[e[d]]=f[e[t]][e[c]];n=n+1;e=l[n];a[e[t]]=f[e[d]];n=n+1;e=l[n];f[e[d]]=(e[t]~=0);n=n+1;e=l[n];a[e[t]]=f[e[d]];until true;else local e=e[d]f[e](f[e+1])end else if 92<r then if 89<r then for n=41,80 do if r~=94 then _[e[t]]=f[e[d]];break;end;f[e[d]]=f[e[t]]%f[e[c]];break;end;else _[e[t]]=f[e[d]];end else local n=e[d];local d=f[n];for e=n+1,e[t]do h.OJVBa_bJ(d,f[e])end;end end end else if r>99 then if r>=103 then if r<104 then local j,a,_,o,j,r,k,h,u,p,b,m,c;r=0;while r>-1 do if r<=2 then if r<=0 then h=e;else if r~=-2 then for e=31,65 do if r~=1 then _=t;break;end;a=d;break;end;else _=t;end end else if r<=4 then if r>=1 then for e=41,88 do if r<4 then o=h[_];break;end;c=h[a];break;end;else o=h[_];end else if 3<=r then for e=23,87 do if 6~=r then f(c,o);break;end;r=-2;break;end;else f(c,o);end end end r=r+1 end n=n+1;e=l[n];r=0;while r>-1 do if 3<=r then if r<5 then if 0<=r then repeat if 4>r then o=h[_];break;end;c=h[a];until true;else c=h[a];end else if 2<=r then repeat if 6~=r then f(c,o);break;end;r=-2;until true;else r=-2;end end else if r>=1 then if-1<r then repeat if 2>r then a=d;break;end;_=t;until true;else a=d;end else h=e;end end r=r+1 end n=n+1;e=l[n];k=e[d]f[k]=f[k](s(f,k+1,e[t]))n=n+1;e=l[n];f[e[d]]={};n=n+1;e=l[n];r=0;while r>-1 do if 4>r then if r<2 then if r~=-1 then for n=33,52 do if 0<r then u=d;break;end;h=e;break;end;else u=d;end else if r~=-1 then repeat if 2~=r then b=f;break;end;p=t;until true;else b=f;end end else if r<=5 then if r==5 then c=h[u];else m=b[h[p]];end else if r==7 then r=-2;else f[c]=m;end end end r=r+1 end n=n+1;e=l[n];r=0;while r>-1 do if r<=2 then if r>0 then if-2<=r then for e=25,92 do if 1~=r then _=t;break;end;a=d;break;end;else a=d;end else h=e;end else if 5<=r then if r~=4 then for e=38,93 do if 6>r then f(c,o);break;end;r=-2;break;end;else f(c,o);end else if 1<r then repeat if 4>r then o=h[_];break;end;c=h[a];until true;else o=h[_];end end end r=r+1 end n=n+1;e=l[n];r=0;while r>-1 do if r<3 then if 1<=r then if r>=0 then repeat if r<2 then a=d;break;end;_=t;until true;else a=d;end else h=e;end else if r>4 then if r~=3 then repeat if 6~=r then f(c,o);break;end;r=-2;until true;else r=-2;end else if 3~=r then c=h[a];else o=h[_];end end end r=r+1 end else if r==105 then local h;for r=0,6 do if r>=3 then if 5<=r then if r>=1 then for h=38,73 do if 6>r then f[e[d]]=f[e[t]];n=n+1;e=l[n];break;end;f(e[d],e[t]);break;end;else f(e[d],e[t]);end else if r~=0 then repeat if r>3 then h=e[d]f[h]=f[h](s(f,h+1,e[t]))n=n+1;e=l[n];break;end;f(e[d],e[t]);n=n+1;e=l[n];until true;else f(e[d],e[t]);n=n+1;e=l[n];end end else if r<=0 then f(e[d],e[t]);n=n+1;e=l[n];else if 0~=r then repeat if r~=2 then f(e[d],e[t]);n=n+1;e=l[n];break;end;f(e[d],e[t]);n=n+1;e=l[n];until true;else f(e[d],e[t]);n=n+1;e=l[n];end end end end else local h;for r=0,6 do if r<3 then if r<=0 then f(e[d],e[t]);n=n+1;e=l[n];else if r<2 then f(e[d],e[t]);n=n+1;e=l[n];else h=e[d]f[h]=f[h](s(f,h+1,e[t]))n=n+1;e=l[n];end end else if 5<=r then if 1<r then repeat if r>5 then f(e[d],e[t]);break;end;f(e[d],e[t]);n=n+1;e=l[n];until true;else f(e[d],e[t]);n=n+1;e=l[n];end else if 0<r then repeat if r~=4 then f[e[d]]=f[e[t]];n=n+1;e=l[n];break;end;f(e[d],e[t]);n=n+1;e=l[n];until true;else f(e[d],e[t]);n=n+1;e=l[n];end end end end end end else if 101<=r then if 100<r then for h=36,74 do if r<102 then f[e[d]]=p(m[e[t]],nil,a);break;end;local r;f[e[d]]=f[e[t]];n=n+1;e=l[n];r=e[d]f[r](f[r+1])n=n+1;e=l[n];f[e[d]]=a[e[t]];n=n+1;e=l[n];f[e[d]]();n=n+1;e=l[n];do return end;n=n+1;e=l[n];for e=e[d],e[t]do f[e]=nil;end;break;end;else local r;f[e[d]]=f[e[t]];n=n+1;e=l[n];r=e[d]f[r](f[r+1])n=n+1;e=l[n];f[e[d]]=a[e[t]];n=n+1;e=l[n];f[e[d]]();n=n+1;e=l[n];do return end;n=n+1;e=l[n];for e=e[d],e[t]do f[e]=nil;end;end else local h,r;f[e[d]]=#f[e[t]];n=n+1;e=l[n];f[e[d]]=f[e[t]]%f[e[c]];n=n+1;e=l[n];f[e[d]]=f[e[t]]+e[c];n=n+1;e=l[n];f[e[d]]=_[e[t]];n=n+1;e=l[n];h=e[d];r=f[e[t]];f[h+1]=r;f[h]=r[e[c]];n=n+1;e=l[n];f[e[d]]=f[e[t]];n=n+1;e=l[n];f[e[d]]=f[e[t]];end end else if r<97 then if r>91 then for n=24,79 do if 95~=r then local l,s,h,c,r,o;local n=0;while n>-1 do if 4<=n then if 5>=n then if 1~=n then for e=41,67 do if n>4 then o=l[s];break;end;r=c[l[h]];break;end;else r=c[l[h]];end else if n>=3 then repeat if 6~=n then n=-2;break;end;f[o]=r;until true;else n=-2;end end else if n<2 then if-4~=n then for f=47,62 do if n~=0 then s=d;break;end;l=e;break;end;else s=d;end else if 2~=n then c=f;else h=t;end end end n=n+1 end break;end;f[e[d]]=f[e[t]]*e[c];break;end;else f[e[d]]=f[e[t]]*e[c];end else if r>97 then if r>97 then repeat if r~=98 then for r=0,3 do if 2>r then if r>-3 then for h=38,93 do if 1>r then f(e[d],e[t]);n=n+1;e=l[n];break;end;f(e[d],e[t]);n=n+1;e=l[n];break;end;else f(e[d],e[t]);n=n+1;e=l[n];end else if 1<=r then repeat if r~=2 then if f[e[d]]then n=n+1;else n=e[t];end;break;end;f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];until true;else if f[e[d]]then n=n+1;else n=e[t];end;end end end break;end;f[e[d]]=f[e[t]]*e[c];until true;else for r=0,3 do if 2>r then if r>-3 then for h=38,93 do if 1>r then f(e[d],e[t]);n=n+1;e=l[n];break;end;f(e[d],e[t]);n=n+1;e=l[n];break;end;else f(e[d],e[t]);n=n+1;e=l[n];end else if 1<=r then repeat if r~=2 then if f[e[d]]then n=n+1;else n=e[t];end;break;end;f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];until true;else if f[e[d]]then n=n+1;else n=e[t];end;end end end end else local e=e[d]f[e]=f[e]()end end end end else if 117>r then if r<111 then if 108<=r then if 108>=r then local h,s,a,_,o,c,r,u,j,y,p,m,b;r=0;while r>-1 do if 3<r then if 5<r then if 3<=r then for e=26,85 do if r<7 then f[c]=o;break;end;r=-2;break;end;else f[c]=o;end else if 5~=r then o=_[h[a]];else c=h[s];end end else if 2<=r then if r<3 then a=t;else _=f;end else if 0==r then h=e;else s=d;end end end r=r+1 end n=n+1;e=l[n];r=0;while r>-1 do if 4>r then if r>=2 then if 1<=r then repeat if 3~=r then a=t;break;end;_=f;until true;else a=t;end else if r~=1 then h=e;else s=d;end end else if 6>r then if 2~=r then for e=36,83 do if 5~=r then o=_[h[a]];break;end;c=h[s];break;end;else c=h[s];end else if 7>r then f[c]=o;else r=-2;end end end r=r+1 end n=n+1;e=l[n];u=e[d]f[u]=f[u](f[u+1])n=n+1;e=l[n];r=0;while r>-1 do if r>3 then if r>5 then if r>3 then repeat if r<7 then f[c]=o;break;end;r=-2;until true;else r=-2;end else if r~=3 then for e=24,70 do if 4<r then c=h[s];break;end;o=_[h[a]];break;end;else c=h[s];end end else if 1<r then if 2~=r then _=f;else a=t;end else if-1~=r then repeat if r~=1 then h=e;break;end;s=d;until true;else s=d;end end end r=r+1 end n=n+1;e=l[n];do return f[e[d]]end n=n+1;e=l[n];u=e[d];j={};for e=1,#k do y=k[e];for e=0,#y do p=y[e];m=p[1];b=p[2];if m==f and b>=u then j[b]=m[b];p[1]=j;end;end;end;n=n+1;e=l[n];n=e[t];else if 110~=r then local e=e[d]local d,n=u(f[e](f[e+1]))o=n+e-1 local n=0;for e=e,o do n=n+1;f[e]=d[n];end;else local r;f(e[d],e[t]);n=n+1;e=l[n];r=e[d]f[r]=f[r](s(f,r+1,e[t]))n=n+1;e=l[n];f[e[d]]=f[e[t]];n=n+1;e=l[n];f(e[d],e[t]);n=n+1;e=l[n];f(e[d],e[t]);n=n+1;e=l[n];f(e[d],e[t]);n=n+1;e=l[n];f(e[d],e[t]);end end else if r>104 then for s=46,76 do if 107>r then local o=m[e[t]];local s;local r={};s=h.V_CmZSyd({},{__index=function(n,e)local e=r[e];return e[1][e[2]];end,__newindex=function(f,e,n)local e=r[e]e[1][e[2]]=n;end;});for d=1,e[c]do n=n+1;local e=l[n];if e[y]==96 then r[d-1]={f,e[t]};else r[d-1]={_,e[t]};end;k[#k+1]=r;end;f[e[d]]=p(o,s,a);break;end;for r=0,6 do if 2<r then if r<=4 then if 3<r then f[e[d]]=(e[t]~=0);n=n+1;e=l[n];else f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];end else if 1~=r then repeat if r>5 then f[e[d]]=f[e[t]][e[c]];break;end;f[e[d]]=_[e[t]];n=n+1;e=l[n];until true;else f[e[d]]=f[e[t]][e[c]];end end else if 0<r then if r==2 then f[e[d]]=f[e[t]][e[c]];n=n+1;e=l[n];else f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];end else f[e[d]]=f[e[t]][e[c]];n=n+1;e=l[n];end end end break;end;else local o=m[e[t]];local s;local r={};s=h.V_CmZSyd({},{__index=function(n,e)local e=r[e];return e[1][e[2]];end,__newindex=function(f,e,n)local e=r[e]e[1][e[2]]=n;end;});for d=1,e[c]do n=n+1;local e=l[n];if e[y]==96 then r[d-1]={f,e[t]};else r[d-1]={_,e[t]};end;k[#k+1]=r;end;f[e[d]]=p(o,s,a);end end else if 114>r then if r>111 then if r>=108 then repeat if 113>r then f[e[d]]=f[e[t]][e[c]];break;end;local u,p,h,k,_,a,o,b,r;for r=0,5 do if 3<=r then if 4<=r then if 3~=r then for h=43,71 do if r~=4 then f[e[d]]=f[e[t]]+f[e[c]];break;end;f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];break;end;else f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];end else u=e[d]f[u]=f[u](s(f,u+1,e[t]))n=n+1;e=l[n];end else if r>0 then if-1<r then for c=10,81 do if r~=1 then r=0;while r>-1 do if r<=3 then if 2>r then if-4~=r then for n=47,64 do if r>0 then k=d;break;end;h=e;break;end;else k=d;end else if r~=3 then _=t;else a=f;end end else if 5>=r then if 1<=r then repeat if r~=5 then o=a[h[_]];break;end;b=h[k];until true;else o=a[h[_]];end else if 3<=r then repeat if 7~=r then f[b]=o;break;end;r=-2;until true;else r=-2;end end end r=r+1 end n=n+1;e=l[n];break;end;r=0;while r>-1 do if r>3 then if 6<=r then if 2<=r then repeat if r<7 then f[b]=o;break;end;r=-2;until true;else f[b]=o;end else if r>=2 then for e=38,68 do if r>4 then b=h[k];break;end;o=a[h[_]];break;end;else o=a[h[_]];end end else if r>1 then if r>0 then for e=20,65 do if r>2 then a=f;break;end;_=t;break;end;else a=f;end else if r>=-4 then repeat if 0~=r then k=d;break;end;h=e;until true;else h=e;end end end r=r+1 end n=n+1;e=l[n];break;end;else r=0;while r>-1 do if r<=3 then if 2>r then if-4~=r then for n=47,64 do if r>0 then k=d;break;end;h=e;break;end;else k=d;end else if r~=3 then _=t;else a=f;end end else if 5>=r then if 1<=r then repeat if r~=5 then o=a[h[_]];break;end;b=h[k];until true;else o=a[h[_]];end else if 3<=r then repeat if 7~=r then f[b]=o;break;end;r=-2;until true;else r=-2;end end end r=r+1 end n=n+1;e=l[n];end else u=e[d];p=f[e[t]];f[u+1]=p;f[u]=p[e[c]];n=n+1;e=l[n];end end end until true;else local u,p,h,k,_,o,a,b,r;for r=0,5 do if 3<=r then if 4<=r then if 3~=r then for h=43,71 do if r~=4 then f[e[d]]=f[e[t]]+f[e[c]];break;end;f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];break;end;else f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];end else u=e[d]f[u]=f[u](s(f,u+1,e[t]))n=n+1;e=l[n];end else if r>0 then if-1<r then for c=10,81 do if r~=1 then r=0;while r>-1 do if r<=3 then if 2>r then if-4~=r then for n=47,64 do if r>0 then k=d;break;end;h=e;break;end;else k=d;end else if r~=3 then _=t;else o=f;end end else if 5>=r then if 1<=r then repeat if r~=5 then a=o[h[_]];break;end;b=h[k];until true;else a=o[h[_]];end else if 3<=r then repeat if 7~=r then f[b]=a;break;end;r=-2;until true;else r=-2;end end end r=r+1 end n=n+1;e=l[n];break;end;r=0;while r>-1 do if r>3 then if 6<=r then if 2<=r then repeat if r<7 then f[b]=a;break;end;r=-2;until true;else f[b]=a;end else if r>=2 then for e=38,68 do if r>4 then b=h[k];break;end;a=o[h[_]];break;end;else a=o[h[_]];end end else if r>1 then if r>0 then for e=20,65 do if r>2 then o=f;break;end;_=t;break;end;else o=f;end else if r>=-4 then repeat if 0~=r then k=d;break;end;h=e;until true;else h=e;end end end r=r+1 end n=n+1;e=l[n];break;end;else r=0;while r>-1 do if r<=3 then if 2>r then if-4~=r then for n=47,64 do if r>0 then k=d;break;end;h=e;break;end;else k=d;end else if r~=3 then _=t;else o=f;end end else if 5>=r then if 1<=r then repeat if r~=5 then a=o[h[_]];break;end;b=h[k];until true;else a=o[h[_]];end else if 3<=r then repeat if 7~=r then f[b]=a;break;end;r=-2;until true;else r=-2;end end end r=r+1 end n=n+1;e=l[n];end else u=e[d];p=f[e[t]];f[u+1]=p;f[u]=p[e[c]];n=n+1;e=l[n];end end end end else local n=e[d];local d=f[e[t]];f[n+1]=d;f[n]=d[e[c]];end else if 115<=r then if 111<r then repeat if 116~=r then local h,_,a,o,u,r,s,k,b;for r=0,4 do if r>1 then if r>2 then if 4==r then s=e[d];k=f[s]b=f[s+2];if(b>0)then if(k>f[s+1])then n=e[t];else f[s+3]=k;end elseif(k<f[s+1])then n=e[t];else f[s+3]=k;end else r=0;while r>-1 do if 2>=r then if r<1 then h=e;else if r~=-3 then for e=39,85 do if r<2 then _=d;break;end;a=t;break;end;else _=d;end end else if r<5 then if r~=0 then for e=11,82 do if 4~=r then o=h[a];break;end;u=h[_];break;end;else o=h[a];end else if r~=2 then repeat if 5~=r then r=-2;break;end;f(u,o);until true;else f(u,o);end end end r=r+1 end n=n+1;e=l[n];end else f[e[d]]=#f[e[t]];n=n+1;e=l[n];end else if r>-2 then repeat if 0~=r then r=0;while r>-1 do if r>2 then if r<5 then if 4~=r then o=h[a];else u=h[_];end else if 1<r then repeat if 5<r then r=-2;break;end;f(u,o);until true;else r=-2;end end else if 1>r then h=e;else if-2<r then for e=35,57 do if 1<r then a=t;break;end;_=d;break;end;else a=t;end end end r=r+1 end n=n+1;e=l[n];break;end;f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];until true;else f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];end end end break;end;local j,_,c,a,j,r,k,h,b,u,m,p,o;r=0;while r>-1 do if r<3 then if 0>=r then h=e;else if r>-3 then for e=21,64 do if r~=2 then _=d;break;end;c=t;break;end;else c=t;end end else if r>=5 then if 4<r then for e=29,88 do if r<6 then f(o,a);break;end;r=-2;break;end;else r=-2;end else if 3~=r then o=h[_];else a=h[c];end end end r=r+1 end n=n+1;e=l[n];r=0;while r>-1 do if r>=3 then if 5<=r then if r>2 then for e=42,61 do if 6~=r then f(o,a);break;end;r=-2;break;end;else f(o,a);end else if-1~=r then repeat if r>3 then o=h[_];break;end;a=h[c];until true;else a=h[c];end end else if r<1 then h=e;else if r==1 then _=d;else c=t;end end end r=r+1 end n=n+1;e=l[n];r=0;while r>-1 do if r<3 then if r>0 then if 1<r then c=t;else _=d;end else h=e;end else if r<=4 then if 2<r then for e=48,54 do if r~=3 then o=h[_];break;end;a=h[c];break;end;else a=h[c];end else if 3<r then for e=22,53 do if r~=6 then f(o,a);break;end;r=-2;break;end;else r=-2;end end end r=r+1 end n=n+1;e=l[n];r=0;while r>-1 do if r<=2 then if r>0 then if r~=-1 then repeat if 1~=r then c=t;break;end;_=d;until true;else c=t;end else h=e;end else if r>=5 then if 6>r then f(o,a);else r=-2;end else if r>0 then repeat if r>3 then o=h[_];break;end;a=h[c];until true;else a=h[c];end end end r=r+1 end n=n+1;e=l[n];r=0;while r>-1 do if 2>=r then if r>0 then if 2==r then c=t;else _=d;end else h=e;end else if r>=5 then if r~=2 then repeat if 5<r then r=-2;break;end;f(o,a);until true;else r=-2;end else if 0<=r then repeat if 4>r then a=h[c];break;end;o=h[_];until true;else o=h[_];end end end r=r+1 end n=n+1;e=l[n];k=e[d]f[k]=f[k](s(f,k+1,e[t]))n=n+1;e=l[n];r=0;while r>-1 do if r<4 then if r>1 then if r>=1 then repeat if r~=2 then m=f;break;end;u=t;until true;else u=t;end else if r~=0 then b=d;else h=e;end end else if 5<r then if 5<r then for e=15,76 do if r~=6 then r=-2;break;end;f[o]=p;break;end;else r=-2;end else if r>4 then o=h[b];else p=m[h[u]];end end end r=r+1 end until true;else local h,k,a,o,_,r,s,u,b;for r=0,4 do if r>1 then if r>2 then if 4==r then s=e[d];u=f[s]b=f[s+2];if(b>0)then if(u>f[s+1])then n=e[t];else f[s+3]=u;end elseif(u<f[s+1])then n=e[t];else f[s+3]=u;end else r=0;while r>-1 do if 2>=r then if r<1 then h=e;else if r~=-3 then for e=39,85 do if r<2 then k=d;break;end;a=t;break;end;else k=d;end end else if r<5 then if r~=0 then for e=11,82 do if 4~=r then o=h[a];break;end;_=h[k];break;end;else o=h[a];end else if r~=2 then repeat if 5~=r then r=-2;break;end;f(_,o);until true;else f(_,o);end end end r=r+1 end n=n+1;e=l[n];end else f[e[d]]=#f[e[t]];n=n+1;e=l[n];end else if r>-2 then repeat if 0~=r then r=0;while r>-1 do if r>2 then if r<5 then if 4~=r then o=h[a];else _=h[k];end else if 1<r then repeat if 5<r then r=-2;break;end;f(_,o);until true;else r=-2;end end else if 1>r then h=e;else if-2<r then for e=35,57 do if 1<r then a=t;break;end;k=d;break;end;else a=t;end end end r=r+1 end n=n+1;e=l[n];break;end;f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];until true;else f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];end end end end else f[e[d]]=f[e[t]][e[c]];n=n+1;e=l[n];f[e[d]]();n=n+1;e=l[n];f[e[d]]=f[e[t]];n=n+1;e=l[n];f[e[d]]();n=n+1;e=l[n];do return end;end end end else if r>121 then if r<=124 then if r>122 then if 120<r then for l=42,77 do if r~=123 then if(f[e[d]]==f[e[c]])then n=n+1;else n=e[t];end;break;end;a[e[t]]=f[e[d]];break;end;else a[e[t]]=f[e[d]];end else do return end;end else if r>=126 then if r>=122 then for h=49,73 do if 126<r then local r,_,a,h,u,c;r=e[d];do return f[r](s(f,r+1,e[t]))end;n=n+1;e=l[n];r=e[d];do return s(f,r,o)end;n=n+1;e=l[n];r=e[d];_={};for e=1,#k do a=k[e];for e=0,#a do h=a[e];u=h[1];c=h[2];if u==f and c>=r then _[c]=u[c];h[1]=_;end;end;end;break;end;f[e[d]]();break;end;else f[e[d]]();end else local r;f(e[d],e[t]);n=n+1;e=l[n];f(e[d],e[t]);n=n+1;e=l[n];f(e[d],e[t]);n=n+1;e=l[n];f(e[d],e[t]);n=n+1;e=l[n];f(e[d],e[t]);n=n+1;e=l[n];r=e[d]f[r]=f[r](s(f,r+1,e[t]))n=n+1;e=l[n];f[e[d]]=f[e[t]];end end else if 118>=r then if 118~=r then local e=e[d]f[e]=f[e](s(f,e+1,o))else f[e[d]]=_[e[t]];end else if r<=119 then local r;f(e[d],e[t]);n=n+1;e=l[n];f(e[d],e[t]);n=n+1;e=l[n];f(e[d],e[t]);n=n+1;e=l[n];f(e[d],e[t]);n=n+1;e=l[n];f(e[d],e[t]);n=n+1;e=l[n];r=e[d]f[r]=f[r](s(f,r+1,e[t]))n=n+1;e=l[n];f[e[d]]=f[e[t]];else if 121~=r then for r=0,6 do if r<=2 then if r>=1 then if 2>r then f[e[d]]=_[e[t]];n=n+1;e=l[n];else f[e[d]]=_[e[t]];n=n+1;e=l[n];end else f[e[d]]=a[e[t]];n=n+1;e=l[n];end else if r<5 then if r~=1 then repeat if 3~=r then f[e[d]]=_[e[t]];n=n+1;e=l[n];break;end;f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];until true;else f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];end else if 1~=r then repeat if 6>r then f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];break;end;f[e[d]]={};until true;else f[e[d]]=f[e[t]][f[e[c]]];n=n+1;e=l[n];end end end end else if(e[d]<f[e[c]])then n=n+1;else n=e[t];end;end end end end end end end end n=1+n;end;end;return te end;local d=0xff;local l={};local r=(1);local t='';(function(n)local f=n local h=0x00 local e=0x00 f={(function(c)if h>0x27 then return c end h=h+1 e=(e+0x5f2-c)%0x21 return(e%0x03==0x2 and(function(f)if not n[f]then e=e+0x01 n[f]=(0x51);d[2]=(d[2]*(te(function()l()end,s(t))-te(d[1],s(t))))+1;l[r]={};d=d[2];r=r+d;end return true end)'RtaOA'and f[0x3](0x102+c))or(e%0x03==0x0 and(function(f)if not n[f]then e=e+0x01 n[f]=(0xa1);end return true end)'lYkna'and f[0x2](c+0x190))or(e%0x03==0x1 and(function(f)if not n[f]then e=e+0x01 n[f]=(0xa3);end return true end)'StxHe'and f[0x1](c+0xa3))or c end),(function(d)if h>0x2e then return d end h=h+1 e=(e+0x57d-d)%0x41 return(e%0x03==0x2 and(function(f)if not n[f]then e=e+0x01 n[f]=(0x70);end return true end)'_jGzI'and f[0x1](0xcd+d))or(e%0x03==0x1 and(function(f)if not n[f]then e=e+0x01 n[f]=(0x6d);end return true end)'ijJbj'and f[0x3](d+0x9f))or(e%0x03==0x0 and(function(f)if not n[f]then e=e+0x01 n[f]=(0xab);end return true end)'flUEq'and f[0x2](d+0x1e8))or d end),(function(c)if h>0x2e then return c end h=h+1 e=(e+0xfa3-c)%0x49 return(e%0x03==0x0 and(function(f)if not n[f]then e=e+0x01 n[f]=(0xf5);l[r]=le();r=r+d;end return true end)'QVnYe'and f[0x2](0x148+c))or(e%0x03==0x1 and(function(f)if not n[f]then e=e+0x01 n[f]=(0xec);t={t..'\58 a',t};l[r]=fe();r=r+(1);t[1]='\58'..t[1];d[2]=0xff;end return true end)'oolp_'and f[0x1](c+0x10b))or(e%0x03==0x2 and(function(f)if not n[f]then e=e+0x01 n[f]=(0x6c);t='\37';d={function()d()end};t=t..'\100\43';end return true end)'WaiRe'and f[0x3](c+0x96))or c end)}f[0x3](0x1a59)end){};local e=p(s(l));l[2]={};l[1]=e(l[1])pTQfUqWQTxvVufT=nil;e=p(s(l))return e(...);end return ne((function()local n={}local e=0x01;local f;if h.ajlHbYBO then f=h.ajlHbYBO(ne)else f=''end if h.GafACRPb(f,h.KHGPcudk)then e=e+0;else e=e+1;end n[e]=0x02;n[n[e]+0x01]=0x03;return n;end)(),...)end)((function(f,e,n,d,t,l)local l;if f>=4 then if 5>=f then if f~=3 then for l=17,89 do if f<5 then local f=d;local r,h,t=t(2);do return function()local l,d,n,e=e(n,f(f,f),f(f,f)+3);f(4);return(e*r)+(n*h)+(d*t)+l;end;end;break;end;local f=d;do return function()local e=e(n,f(f,f),f(f,f));f(1);return e;end;end;break;end;else local f=d;do return function()local e=e(n,f(f,f),f(f,f));f(1);return e;end;end;end else if f<7 then do return t[n]end;else if f~=6 then for e=31,79 do if 8>f then do return setmetatable({},{['__\99\97\108\108']=function(e,t,d,f,n)if n then return e[n]elseif f then return e else e[t]=d end end})end break;end;do return n(f,nil,n);end break;end;else do return n(f,nil,n);end end end end else if f<=1 then if f==1 then do return function(n,e,f)if f then local e=(n/2^(e-1))%2^((f-1)-(e-1)+1);return e-e%1;else local e=2^(e-1);return(n%(e+e)>=e)and 1 or 0;end;end;end;else do return e(1),e(4,t,d,n,e),e(5,t,d,n)end;end else if 1~=f then repeat if f~=3 then do return 16777216,65536,256 end;break;end;do return e(1),e(4,t,d,n,e),e(5,t,d,n)end;until true;else do return e(1),e(4,t,d,n,e),e(5,t,d,n)end;end end end end),...)
+local DiscordLib = {}
+local UserInputService = game:GetService("UserInputService")
+local TweenService = game:GetService("TweenService")
+local RunService = game:GetService("RunService")
+local LocalPlayer = game:GetService("Players").LocalPlayer
+local Mouse = LocalPlayer:GetMouse()
+local HttpService = game:GetService("HttpService")
+local pfp
+local user
+local tag
+local userinfo = {}
+
+pcall(function()
+	userinfo = HttpService:JSONDecode(readfile("discordlibinfo.txt"));
+end)
+
+pfp = userinfo["pfp"] or "https://www.roblox.com/headshot-thumbnail/image?userId=".. game.Players.LocalPlayer.UserId .."&width=420&height=420&format=png"
+user =  userinfo["user"] or game.Players.LocalPlayer.Name
+tag = userinfo["tag"] or tostring(math.random(1000,9999))
+
+local function SaveInfo()
+	userinfo["pfp"] = pfp
+	userinfo["user"] = user
+	userinfo["tag"] = tag
+	writefile("discordlibinfo.txt", HttpService:JSONEncode(userinfo));
+end
+
+local function MakeDraggable(topbarobject, object)
+	local Dragging = nil
+	local DragInput = nil
+	local DragStart = nil
+	local StartPosition = nil
+
+	local function Update(input)
+		local Delta = input.Position - DragStart
+		local pos =
+			UDim2.new(
+				StartPosition.X.Scale,
+				StartPosition.X.Offset + Delta.X,
+				StartPosition.Y.Scale,
+				StartPosition.Y.Offset + Delta.Y
+			)
+		object.Position = pos
+	end
+
+	topbarobject.InputBegan:Connect(
+		function(input)
+			if input.UserInputType == Enum.UserInputType.MouseButton1 or input.UserInputType == Enum.UserInputType.Touch then
+				Dragging = true
+				DragStart = input.Position
+				StartPosition = object.Position
+
+				input.Changed:Connect(
+					function()
+						if input.UserInputState == Enum.UserInputState.End then
+							Dragging = false
+						end
+					end
+				)
+			end
+		end
+	)
+
+	topbarobject.InputChanged:Connect(
+		function(input)
+			if
+				input.UserInputType == Enum.UserInputType.MouseMovement or
+					input.UserInputType == Enum.UserInputType.Touch
+			then
+				DragInput = input
+			end
+		end
+	)
+
+	UserInputService.InputChanged:Connect(
+		function(input)
+			if input == DragInput and Dragging then
+				Update(input)
+			end
+		end
+	)
+end
+
+local Discord = Instance.new("ScreenGui")
+Discord.Name = "Discord"
+Discord.Parent = game.CoreGui
+Discord.ZIndexBehavior = Enum.ZIndexBehavior.Sibling
+
+function DiscordLib:Window(text)
+	local currentservertoggled = ""
+	local minimized = false
+	local fs = false
+	local settingsopened = false
+	local MainFrame = Instance.new("Frame")
+	local TopFrame = Instance.new("Frame")
+	local Title = Instance.new("TextLabel")
+	local CloseBtn = Instance.new("TextButton")
+	local CloseIcon = Instance.new("ImageLabel")
+	local MinimizeBtn = Instance.new("TextButton")
+	local MinimizeIcon = Instance.new("ImageLabel")
+	local ServersHolder = Instance.new("Folder")
+	local Userpad = Instance.new("Frame")
+	local UserIcon = Instance.new("Frame")
+	local UserIconCorner = Instance.new("UICorner")
+	local UserImage = Instance.new("ImageLabel")
+	local UserCircleImage = Instance.new("ImageLabel")
+	local UserName = Instance.new("TextLabel")
+	local UserTag = Instance.new("TextLabel")
+	local ServersHoldFrame = Instance.new("Frame")
+	local ServersHold = Instance.new("ScrollingFrame")
+	local ServersHoldLayout = Instance.new("UIListLayout")
+	local ServersHoldPadding = Instance.new("UIPadding")
+	local TopFrameHolder = Instance.new("Frame")
+
+	MainFrame.Name = "MainFrame"
+	MainFrame.Parent = Discord
+	MainFrame.AnchorPoint = Vector2.new(0.5, 0.5)
+	MainFrame.BorderSizePixel = 0
+	MainFrame.ClipsDescendants = true
+	MainFrame.Position = UDim2.new(0.5, 0, 0.5, 0)
+	MainFrame.Size = UDim2.new(0, 681, 0, 396)
+	local Background = Instance.new("ImageLabel", MainFrame)
+Background.Size = UDim2.new(1,0,1,0)
+Background.Position = UDim2.new(0,0,0,0)
+Background.Image = "rbxassetid://88482275038439"
+Background.BackgroundTransparency = 1
+Background.ScaleType = Enum.ScaleType.Crop
+
+	TopFrame.Name = "TopFrame"
+	TopFrame.Parent = MainFrame
+	TopFrame.BackgroundColor3 = Color3.fromRGB(32, 34, 37)
+	TopFrame.BackgroundTransparency = 1.000
+	TopFrame.BorderSizePixel = 0
+	TopFrame.Position = UDim2.new(-0.000658480625, 0, 0, 0)
+	TopFrame.Size = UDim2.new(0, 681, 0, 22)
+	
+	TopFrameHolder.Name = "TopFrameHolder"
+	TopFrameHolder.Parent = TopFrame
+	TopFrameHolder.BackgroundColor3 = Color3.fromRGB(32, 34, 37)
+	TopFrameHolder.BackgroundTransparency = 1.000
+	TopFrameHolder.BorderSizePixel = 0
+	TopFrameHolder.Position = UDim2.new(-0.000658480625, 0, 0, 0)
+	TopFrameHolder.Size = UDim2.new(0, 681, 0, 22)
+
+	Title.Name = "Title"
+	Title.Parent = TopFrame
+	Title.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	Title.BackgroundTransparency = 1.000
+	Title.Position = UDim2.new(0.0102790017, 0, 0, 0)
+	Title.Size = UDim2.new(0, 192, 0, 23)
+	Title.Font = Enum.Font.Gotham
+	Title.Text = text
+	Title.TextColor3 = Color3.fromRGB(99, 102, 109)
+	Title.TextSize = 13.000
+	Title.TextXAlignment = Enum.TextXAlignment.Left
+
+	CloseBtn.Name = "CloseBtn"
+	CloseBtn.Parent = TopFrame
+	CloseBtn.BackgroundColor3 = Color3.fromRGB(32, 34, 37)
+	CloseBtn.BackgroundTransparency = 0
+	CloseBtn.Position = UDim2.new(0.959063113, 0, -0.0169996787, 0)
+	CloseBtn.Size = UDim2.new(0, 28, 0, 22)
+	CloseBtn.Font = Enum.Font.Gotham
+	CloseBtn.Text = ""
+	CloseBtn.TextColor3 = Color3.fromRGB(255, 255, 255)
+	CloseBtn.TextSize = 14.000
+	CloseBtn.BorderSizePixel = 0
+	CloseBtn.AutoButtonColor = false
+
+	CloseIcon.Name = "CloseIcon"
+	CloseIcon.Parent = CloseBtn
+	CloseIcon.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	CloseIcon.BackgroundTransparency = 1.000
+	CloseIcon.Position = UDim2.new(0.189182192, 0, 0.128935531, 0)
+	CloseIcon.Size = UDim2.new(0, 17, 0, 17)
+	CloseIcon.Image = "http://www.roblox.com/asset/?id=6035047409"
+	CloseIcon.ImageColor3 = Color3.fromRGB(220, 221, 222)
+
+	MinimizeBtn.Name = "MinimizeButton"
+	MinimizeBtn.Parent = TopFrame
+	MinimizeBtn.BackgroundColor3 = Color3.fromRGB(32, 34, 37)
+	MinimizeBtn.BackgroundTransparency = 0
+	MinimizeBtn.Position = UDim2.new(0.917947114, 0, -0.0169996787, 0)
+	MinimizeBtn.Size = UDim2.new(0, 28, 0, 22)
+	MinimizeBtn.Font = Enum.Font.Gotham
+	MinimizeBtn.Text = ""
+	MinimizeBtn.TextColor3 = Color3.fromRGB(255, 255, 255)
+	MinimizeBtn.TextSize = 14.000
+	MinimizeBtn.BorderSizePixel = 0
+	MinimizeBtn.AutoButtonColor = false
+
+	MinimizeIcon.Name = "MinimizeLabel"
+	MinimizeIcon.Parent = MinimizeBtn
+	MinimizeIcon.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	MinimizeIcon.BackgroundTransparency = 1.000
+	MinimizeIcon.Position = UDim2.new(0.189182192, 0, 0.128935531, 0)
+	MinimizeIcon.Size = UDim2.new(0, 17, 0, 17)
+	MinimizeIcon.Image = "http://www.roblox.com/asset/?id=6035067836"
+	MinimizeIcon.ImageColor3 = Color3.fromRGB(220, 221, 222)
+
+	ServersHolder.Name = "ServersHolder"
+	ServersHolder.Parent = TopFrameHolder
+
+	Userpad.Name = "Userpad"
+	Userpad.Parent = TopFrameHolder
+	Userpad.BackgroundColor3 = Color3.fromRGB(41, 43, 47)
+	Userpad.BorderSizePixel = 0
+	Userpad.Position = UDim2.new(0.106243297, 0, 15.9807148, 0)
+	Userpad.Size = UDim2.new(0, 179, 0, 43)
+
+	UserIcon.Name = "UserIcon"
+	UserIcon.Parent = Userpad
+	UserIcon.BackgroundColor3 = Color3.fromRGB(31, 33, 36)
+	UserIcon.BorderSizePixel = 0
+	UserIcon.Position = UDim2.new(0.0340000018, 0, 0.123999998, 0)
+	UserIcon.Size = UDim2.new(0, 32, 0, 32)
+
+	UserIconCorner.CornerRadius = UDim.new(1, 8)
+	UserIconCorner.Name = "UserIconCorner"
+	UserIconCorner.Parent = UserIcon
+
+	UserImage.Name = "UserImage"
+	UserImage.Parent = UserIcon
+	UserImage.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	UserImage.BackgroundTransparency = 1.000
+	UserImage.Size = UDim2.new(0, 32, 0, 32)
+	UserImage.Image = pfp 
+	
+	UserCircleImage.Name = "UserImage"
+	UserCircleImage.Parent = UserImage
+	UserCircleImage.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	UserCircleImage.BackgroundTransparency = 1.000
+	UserCircleImage.Size = UDim2.new(0, 32, 0, 32)
+	UserCircleImage.Image = "rbxassetid://4031889928"
+	UserCircleImage.ImageColor3 = Color3.fromRGB(41, 43, 47)
+	
+	UserName.Name = "UserName"
+	UserName.Parent = Userpad
+	UserName.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	UserName.BackgroundTransparency = 1.000
+	UserName.BorderSizePixel = 0
+	UserName.Position = UDim2.new(0.230000004, 0, 0.115999997, 0)
+	UserName.Size = UDim2.new(0, 98, 0, 17)
+	UserName.Font = Enum.Font.GothamSemibold
+	UserName.TextColor3 = Color3.fromRGB(255, 255, 255)
+	UserName.TextSize = 13.000
+	UserName.TextXAlignment = Enum.TextXAlignment.Left
+	UserName.ClipsDescendants = true
+
+	UserTag.Name = "UserTag"
+	UserTag.Parent = Userpad
+	UserTag.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	UserTag.BackgroundTransparency = 1.000
+	UserTag.BorderSizePixel = 0
+	UserTag.Position = UDim2.new(0.230000004, 0, 0.455000013, 0)
+	UserTag.Size = UDim2.new(0, 95, 0, 17)
+	UserTag.Font = Enum.Font.Gotham
+	UserTag.TextColor3 = Color3.fromRGB(255, 255, 255)
+	UserTag.TextSize = 13.000
+	UserTag.TextTransparency = 0.300
+	UserTag.TextXAlignment = Enum.TextXAlignment.Left
+	
+	UserName.Text = user
+	UserTag.Text = "#" .. tag
+
+	ServersHoldFrame.Name = "ServersHoldFrame"
+	ServersHoldFrame.Parent = MainFrame
+	ServersHoldFrame.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	ServersHoldFrame.BackgroundTransparency = 1.000
+	ServersHoldFrame.BorderColor3 = Color3.fromRGB(27, 42, 53)
+	ServersHoldFrame.Size = UDim2.new(0, 71, 0, 396)
+
+	ServersHold.Name = "ServersHold"
+	ServersHold.Parent = ServersHoldFrame
+	ServersHold.Active = true
+	ServersHold.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	ServersHold.BackgroundTransparency = 1.000
+	ServersHold.BorderSizePixel = 0
+	ServersHold.Position = UDim2.new(-0.000359333731, 0, 0.0580808073, 0)
+	ServersHold.Size = UDim2.new(0, 71, 0, 373)
+	ServersHold.ScrollBarThickness = 1
+	ServersHold.ScrollBarImageTransparency = 1
+	ServersHold.CanvasSize = UDim2.new(0, 0, 0, 0)
+
+	ServersHoldLayout.Name = "ServersHoldLayout"
+	ServersHoldLayout.Parent = ServersHold
+	ServersHoldLayout.SortOrder = Enum.SortOrder.LayoutOrder
+	ServersHoldLayout.Padding = UDim.new(0, 7)
+
+	ServersHoldPadding.Name = "ServersHoldPadding"
+	ServersHoldPadding.Parent = ServersHold
+
+	CloseBtn.MouseButton1Click:Connect(
+		function()
+			MainFrame:TweenSize(UDim2.new(0, 0, 0, 0), Enum.EasingDirection.Out, Enum.EasingStyle.Quart, .3, true)
+		end
+	)
+
+	CloseBtn.MouseEnter:Connect(
+		function()
+			CloseBtn.BackgroundColor3 = Color3.fromRGB(240, 71, 71)
+		end
+	)
+
+	CloseBtn.MouseLeave:Connect(
+		function()
+			CloseBtn.BackgroundColor3 = Color3.fromRGB(32, 34, 37)
+		end
+	)
+
+	MinimizeBtn.MouseEnter:Connect(
+		function()
+			MinimizeBtn.BackgroundColor3 = Color3.fromRGB(40, 43, 46)
+		end
+	)
+
+	MinimizeBtn.MouseLeave:Connect(
+		function()
+			MinimizeBtn.BackgroundColor3 = Color3.fromRGB(32, 34, 37)
+		end
+	)
+
+	MinimizeBtn.MouseButton1Click:Connect(
+		function()
+			if minimized == false then
+				MainFrame:TweenSize(
+					UDim2.new(0, 681, 0, 22),
+					Enum.EasingDirection.Out,
+					Enum.EasingStyle.Quart,
+					.3,
+					true
+				)
+			else
+				MainFrame:TweenSize(
+					UDim2.new(0, 681, 0, 396),
+					Enum.EasingDirection.Out,
+					Enum.EasingStyle.Quart,
+					.3,
+					true
+				)
+			end
+			minimized = not minimized
+		end
+	)
+	
+	local SettingsOpenBtn = Instance.new("TextButton")
+	local SettingsOpenBtnIco = Instance.new("ImageLabel")
+	
+	SettingsOpenBtn.Name = "SettingsOpenBtn"
+	SettingsOpenBtn.Parent = Userpad
+	SettingsOpenBtn.BackgroundColor3 = Color3.fromRGB(53, 56, 62)
+	SettingsOpenBtn.BackgroundTransparency = 1.000
+	SettingsOpenBtn.Position = UDim2.new(0.849161983, 0, 0.279069781, 0)
+	SettingsOpenBtn.Size = UDim2.new(0, 18, 0, 18)
+	SettingsOpenBtn.Font = Enum.Font.SourceSans
+	SettingsOpenBtn.Text = ""
+	SettingsOpenBtn.TextColor3 = Color3.fromRGB(0, 0, 0)
+	SettingsOpenBtn.TextSize = 14.000
+
+	SettingsOpenBtnIco.Name = "SettingsOpenBtnIco"
+	SettingsOpenBtnIco.Parent = SettingsOpenBtn
+	SettingsOpenBtnIco.BackgroundColor3 = Color3.fromRGB(220, 220, 220)
+	SettingsOpenBtnIco.BackgroundTransparency = 1.000
+	SettingsOpenBtnIco.Size = UDim2.new(0, 18, 0, 18)
+	SettingsOpenBtnIco.Image = "http://www.roblox.com/asset/?id=6031280882"
+	SettingsOpenBtnIco.ImageColor3 = Color3.fromRGB(220, 220, 220)
+	local SettingsFrame = Instance.new("Frame")
+	local Settings = Instance.new("Frame")
+	local SettingsHolder = Instance.new("Frame")
+	local CloseSettingsBtn = Instance.new("TextButton")
+	local CloseSettingsBtnCorner = Instance.new("UICorner")
+	local CloseSettingsBtnCircle = Instance.new("Frame")
+	local CloseSettingsBtnCircleCorner = Instance.new("UICorner")
+	local CloseSettingsBtnIcon = Instance.new("ImageLabel")
+	local TextLabel = Instance.new("TextLabel")
+	local UserPanel = Instance.new("Frame")
+	local UserSettingsPad = Instance.new("Frame")
+	local UserSettingsPadCorner = Instance.new("UICorner")
+	local UsernameText = Instance.new("TextLabel")
+	local UserSettingsPadUserTag = Instance.new("Frame")
+	local UserSettingsPadUser = Instance.new("TextLabel")
+	local UserSettingsPadUserTagLayout = Instance.new("UIListLayout")
+	local UserSettingsPadTag = Instance.new("TextLabel")
+	local EditBtn = Instance.new("TextButton")
+	local EditBtnCorner = Instance.new("UICorner")
+	local UserPanelUserIcon = Instance.new("TextButton")
+	local UserPanelUserImage = Instance.new("ImageLabel")
+	local UserPanelUserCircle = Instance.new("ImageLabel")
+	local BlackFrame = Instance.new("Frame")
+	local BlackFrameCorner = Instance.new("UICorner")
+	local ChangeAvatarText = Instance.new("TextLabel")
+	local SearchIcoFrame = Instance.new("Frame")
+	local SearchIcoFrameCorner = Instance.new("UICorner")
+	local SearchIco = Instance.new("ImageLabel")
+	local UserPanelUserTag = Instance.new("Frame")
+	local UserPanelUser = Instance.new("TextLabel")
+	local UserPanelUserTagLayout = Instance.new("UIListLayout")
+	local UserPanelTag = Instance.new("TextLabel")
+	local UserPanelCorner = Instance.new("UICorner")
+	local LeftFrame = Instance.new("Frame")
+	local MyAccountBtn = Instance.new("TextButton")
+	local MyAccountBtnCorner = Instance.new("UICorner")
+	local MyAccountBtnTitle = Instance.new("TextLabel")
+	local SettingsTitle = Instance.new("TextLabel")
+	local DiscordInfo = Instance.new("TextLabel")
+	local CurrentSettingOpen = Instance.new("TextLabel")
+
+	SettingsFrame.Name = "SettingsFrame"
+	SettingsFrame.Parent = MainFrame
+	SettingsFrame.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+	SettingsFrame.BackgroundTransparency = 1.000
+	SettingsFrame.Size = UDim2.new(0, 681, 0, 396)
+	SettingsFrame.Visible = false
+
+	Settings.Name = "Settings"
+	Settings.Parent = SettingsFrame
+	Settings.BackgroundColor3 = Color3.fromRGB(54, 57, 63)
+	Settings.BorderSizePixel = 0
+	Settings.Position = UDim2.new(0, 0, 0.0530303046, 0)
+	Settings.Size = UDim2.new(0, 681, 0, 375)
+
+	SettingsHolder.Name = "SettingsHolder"
+	SettingsHolder.Parent = Settings
+	SettingsHolder.AnchorPoint = Vector2.new(0.5, 0.5)
+	SettingsHolder.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	SettingsHolder.BackgroundTransparency = 1.000
+	SettingsHolder.ClipsDescendants = true
+	SettingsHolder.Position = UDim2.new(0.49926579, 0, 0.498666674, 0)
+	SettingsHolder.Size = UDim2.new(0, 0, 0, 0)
+
+	CloseSettingsBtn.Name = "CloseSettingsBtn"
+	CloseSettingsBtn.Parent = SettingsHolder
+	CloseSettingsBtn.AnchorPoint = Vector2.new(0.5, 0.5)
+	CloseSettingsBtn.BackgroundColor3 = Color3.fromRGB(113, 117, 123)
+	CloseSettingsBtn.Position = UDim2.new(0.952967286, 0, 0.0853333324, 0)
+	CloseSettingsBtn.Selectable = false
+	CloseSettingsBtn.Size = UDim2.new(0, 30, 0, 30)
+	CloseSettingsBtn.AutoButtonColor = false
+	CloseSettingsBtn.Font = Enum.Font.SourceSans
+	CloseSettingsBtn.Text = ""
+	CloseSettingsBtn.TextColor3 = Color3.fromRGB(0, 0, 0)
+	CloseSettingsBtn.TextSize = 14.000
+
+	CloseSettingsBtnCorner.CornerRadius = UDim.new(1, 0)
+	CloseSettingsBtnCorner.Name = "CloseSettingsBtnCorner"
+	CloseSettingsBtnCorner.Parent = CloseSettingsBtn
+
+	CloseSettingsBtnCircle.Name = "CloseSettingsBtnCircle"
+	CloseSettingsBtnCircle.Parent = CloseSettingsBtn
+	CloseSettingsBtnCircle.BackgroundColor3 = Color3.fromRGB(54, 57, 63)
+	CloseSettingsBtnCircle.Position = UDim2.new(0.0879999995, 0, 0.118000001, 0)
+	CloseSettingsBtnCircle.Size = UDim2.new(0, 24, 0, 24)
+
+	CloseSettingsBtnCircleCorner.CornerRadius = UDim.new(1, 0)
+	CloseSettingsBtnCircleCorner.Name = "CloseSettingsBtnCircleCorner"
+	CloseSettingsBtnCircleCorner.Parent = CloseSettingsBtnCircle
+
+	CloseSettingsBtnIcon.Name = "CloseSettingsBtnIcon"
+	CloseSettingsBtnIcon.Parent = CloseSettingsBtnCircle
+	CloseSettingsBtnIcon.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	CloseSettingsBtnIcon.BackgroundTransparency = 1.000
+	CloseSettingsBtnIcon.Position = UDim2.new(0, 2, 0, 2)
+	CloseSettingsBtnIcon.Size = UDim2.new(0, 19, 0, 19)
+	CloseSettingsBtnIcon.Image = "http://www.roblox.com/asset/?id=6035047409"
+	CloseSettingsBtnIcon.ImageColor3 = Color3.fromRGB(222, 222, 222)
+	
+	CloseSettingsBtn.MouseButton1Click:Connect(function()
+		settingsopened = false
+		TopFrameHolder.Visible = true
+		ServersHoldFrame.Visible = true
+		SettingsHolder:TweenSize(UDim2.new(0, 0, 0, 0), Enum.EasingDirection.Out, Enum.EasingStyle.Quart, .3, true)
+		TweenService:Create(
+			Settings,
+			TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+			{BackgroundTransparency = 1}
+		):Play()
+		for i,v in next, SettingsHolder:GetChildren() do
+			TweenService:Create(
+				v,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundTransparency = 1}
+			):Play()
+		end
+		wait(.3)
+		SettingsFrame.Visible = false
+	end)
+	
+	CloseSettingsBtn.MouseEnter:Connect(function()
+		CloseSettingsBtnCircle.BackgroundColor3 = Color3.fromRGB(72,76,82)
+	end)
+
+	CloseSettingsBtn.MouseLeave:Connect(function()
+		CloseSettingsBtnCircle.BackgroundColor3 = Color3.fromRGB(54, 57, 63)
+	end)
+	
+	UserInputService.InputBegan:Connect(
+		function(io, p)
+			if io.KeyCode == Enum.KeyCode.RightControl then
+				if settingsopened == true then
+					settingsopened = false
+					TopFrameHolder.Visible = true
+					ServersHoldFrame.Visible = true
+					SettingsHolder:TweenSize(UDim2.new(0, 0, 0, 0), Enum.EasingDirection.Out, Enum.EasingStyle.Quart, .3, true)
+					TweenService:Create(
+						Settings,
+						TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+						{BackgroundTransparency = 1}
+					):Play()
+					for i,v in next, SettingsHolder:GetChildren() do
+						TweenService:Create(
+							v,
+							TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+							{BackgroundTransparency = 1}
+						):Play()
+					end
+					wait(.3)
+					SettingsFrame.Visible = false
+				end
+			end
+		end
+	)
+
+	TextLabel.Parent = CloseSettingsBtn
+	TextLabel.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	TextLabel.BackgroundTransparency = 1.000
+	TextLabel.Position = UDim2.new(-0.0666666701, 0, 1.06666672, 0)
+	TextLabel.Size = UDim2.new(0, 34, 0, 22)
+	TextLabel.Font = Enum.Font.GothamSemibold
+	TextLabel.Text = "rightctrl"
+	TextLabel.TextColor3 = Color3.fromRGB(113, 117, 123)
+	TextLabel.TextSize = 11.000
+
+	UserPanel.Name = "UserPanel"
+	UserPanel.Parent = SettingsHolder
+	UserPanel.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+	UserPanel.Position = UDim2.new(0.365638763, 0, 0.130666673, 0)
+	UserPanel.Size = UDim2.new(0, 362, 0, 164)
+
+	UserSettingsPad.Name = "UserSettingsPad"
+	UserSettingsPad.Parent = UserPanel
+	UserSettingsPad.BackgroundColor3 = Color3.fromRGB(54, 57, 63)
+	UserSettingsPad.Position = UDim2.new(0.0331491716, 0, 0.568140388, 0)
+	UserSettingsPad.Size = UDim2.new(0, 337, 0, 56)
+
+	UserSettingsPadCorner.Name = "UserSettingsPadCorner"
+	UserSettingsPadCorner.Parent = UserSettingsPad
+
+	UsernameText.Name = "UsernameText"
+	UsernameText.Parent = UserSettingsPad
+	UsernameText.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	UsernameText.BackgroundTransparency = 1.000
+	UsernameText.Position = UDim2.new(0.0419999994, 0, 0.154714286, 0)
+	UsernameText.Size = UDim2.new(0, 65, 0, 19)
+	UsernameText.Font = Enum.Font.GothamBold
+	UsernameText.Text = "USERNAME"
+	UsernameText.TextColor3 = Color3.fromRGB(126, 130, 136)
+	UsernameText.TextSize = 11.000
+	UsernameText.TextXAlignment = Enum.TextXAlignment.Left
+
+	UserSettingsPadUserTag.Name = "UserSettingsPadUserTag"
+	UserSettingsPadUserTag.Parent = UserSettingsPad
+	UserSettingsPadUserTag.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	UserSettingsPadUserTag.BackgroundTransparency = 1.000
+	UserSettingsPadUserTag.Position = UDim2.new(0.0419999994, 0, 0.493999988, 0)
+	UserSettingsPadUserTag.Size = UDim2.new(0, 65, 0, 19)
+
+	UserSettingsPadUser.Name = "UserSettingsPadUser"
+	UserSettingsPadUser.Parent = UserSettingsPadUserTag
+	UserSettingsPadUser.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	UserSettingsPadUser.BackgroundTransparency = 1.000
+	UserSettingsPadUser.Font = Enum.Font.Gotham
+	UserSettingsPadUser.TextColor3 = Color3.fromRGB(255, 255, 255)
+	UserSettingsPadUser.TextSize = 13.000
+	UserSettingsPadUser.TextXAlignment = Enum.TextXAlignment.Left
+	UserSettingsPadUser.Text = user
+	UserSettingsPadUser.Size = UDim2.new(0, UserSettingsPadUser.TextBounds.X + 2, 0, 19)
+
+	UserSettingsPadUserTagLayout.Name = "UserSettingsPadUserTagLayout"
+	UserSettingsPadUserTagLayout.Parent = UserSettingsPadUserTag
+	UserSettingsPadUserTagLayout.FillDirection = Enum.FillDirection.Horizontal
+	UserSettingsPadUserTagLayout.SortOrder = Enum.SortOrder.LayoutOrder
+
+	UserSettingsPadTag.Name = "UserSettingsPadTag"
+	UserSettingsPadTag.Parent = UserSettingsPadUserTag
+	UserSettingsPadTag.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	UserSettingsPadTag.BackgroundTransparency = 1.000
+	UserSettingsPadTag.Position = UDim2.new(0.0419999994, 0, 0.493999988, 0)
+	UserSettingsPadTag.Size = UDim2.new(0, 65, 0, 19)
+	UserSettingsPadTag.Font = Enum.Font.Gotham
+	UserSettingsPadTag.Text = "#" .. tag
+	UserSettingsPadTag.TextColor3 = Color3.fromRGB(184, 186, 189)
+	UserSettingsPadTag.TextSize = 13.000
+	UserSettingsPadTag.TextXAlignment = Enum.TextXAlignment.Left
+
+	EditBtn.Name = "EditBtn"
+	EditBtn.Parent = UserSettingsPad
+	EditBtn.BackgroundColor3 = Color3.fromRGB(116, 127, 141)
+	EditBtn.Position = UDim2.new(0.797671914, 0, 0.232142866, 0)
+	EditBtn.Size = UDim2.new(0, 55, 0, 30)
+	EditBtn.Font = Enum.Font.Gotham
+	EditBtn.Text = "Edit"
+	EditBtn.TextColor3 = Color3.fromRGB(255, 255, 255)
+	EditBtn.TextSize = 14.000
+	EditBtn.AutoButtonColor = false
+	
+	EditBtn.MouseEnter:Connect(function()
+		TweenService:Create(
+			EditBtn,
+			TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+			{BackgroundColor3 = Color3.fromRGB(104,114,127)}
+		):Play()
+	end)
+	
+	EditBtn.MouseLeave:Connect(function()
+		TweenService:Create(
+			EditBtn,
+			TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+			{BackgroundColor3 = Color3.fromRGB(116, 127, 141)}
+		):Play()
+	end)
+
+	EditBtnCorner.CornerRadius = UDim.new(0, 3)
+	EditBtnCorner.Name = "EditBtnCorner"
+	EditBtnCorner.Parent = EditBtn
+
+	UserPanelUserIcon.Name = "UserPanelUserIcon"
+	UserPanelUserIcon.Parent = UserPanel
+	UserPanelUserIcon.BackgroundColor3 = Color3.fromRGB(31, 33, 36)
+	UserPanelUserIcon.BorderSizePixel = 0
+	UserPanelUserIcon.Position = UDim2.new(0.0340000018, 0, 0.074000001, 0)
+	UserPanelUserIcon.Size = UDim2.new(0, 71, 0, 71)
+	UserPanelUserIcon.AutoButtonColor = false
+	UserPanelUserIcon.Text = ""
+
+	UserPanelUserImage.Name = "UserPanelUserImage"
+	UserPanelUserImage.Parent = UserPanelUserIcon
+	UserPanelUserImage.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	UserPanelUserImage.BackgroundTransparency = 1.000
+	UserPanelUserImage.Size = UDim2.new(0, 71, 0, 71)
+	UserPanelUserImage.Image = pfp
+
+	UserPanelUserCircle.Name = "UserPanelUserCircle"
+	UserPanelUserCircle.Parent = UserPanelUserImage
+	UserPanelUserCircle.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	UserPanelUserCircle.BackgroundTransparency = 1.000
+	UserPanelUserCircle.Size = UDim2.new(0, 71, 0, 71)
+	UserPanelUserCircle.Image = "rbxassetid://4031889928"
+	UserPanelUserCircle.ImageColor3 = Color3.fromRGB(47, 49, 54)
+
+	BlackFrame.Name = "BlackFrame"
+	BlackFrame.Parent = UserPanelUserIcon
+	BlackFrame.BackgroundColor3 = Color3.fromRGB(0, 0, 0)
+	BlackFrame.BackgroundTransparency = 0.400
+	BlackFrame.BorderSizePixel = 0
+	BlackFrame.Size = UDim2.new(0, 71, 0, 71)
+	BlackFrame.Visible = false
+
+	BlackFrameCorner.CornerRadius = UDim.new(1, 8)
+	BlackFrameCorner.Name = "BlackFrameCorner"
+	BlackFrameCorner.Parent = BlackFrame
+
+	ChangeAvatarText.Name = "ChangeAvatarText"
+	ChangeAvatarText.Parent = BlackFrame
+	ChangeAvatarText.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	ChangeAvatarText.BackgroundTransparency = 1.000
+	ChangeAvatarText.Size = UDim2.new(0, 71, 0, 71)
+	ChangeAvatarText.Font = Enum.Font.GothamBold
+	ChangeAvatarText.Text = "CHAGNE    AVATAR"
+	ChangeAvatarText.TextColor3 = Color3.fromRGB(255, 255, 255)
+	ChangeAvatarText.TextSize = 11.000
+	ChangeAvatarText.TextWrapped = true
+
+	SearchIcoFrame.Name = "SearchIcoFrame"
+	SearchIcoFrame.Parent = UserPanelUserIcon
+	SearchIcoFrame.BackgroundColor3 = Color3.fromRGB(222, 222, 222)
+	SearchIcoFrame.Position = UDim2.new(0.657999992, 0, 0, 0)
+	SearchIcoFrame.Size = UDim2.new(0, 20, 0, 20)
+
+	SearchIcoFrameCorner.CornerRadius = UDim.new(1, 8)
+	SearchIcoFrameCorner.Name = "SearchIcoFrameCorner"
+	SearchIcoFrameCorner.Parent = SearchIcoFrame
+
+	SearchIco.Name = "SearchIco"
+	SearchIco.Parent = SearchIcoFrame
+	SearchIco.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	SearchIco.BackgroundTransparency = 1.000
+	SearchIco.Position = UDim2.new(0.150000006, 0, 0.100000001, 0)
+	SearchIco.Size = UDim2.new(0, 15, 0, 15)
+	SearchIco.Image = "http://www.roblox.com/asset/?id=6034407084"
+	SearchIco.ImageColor3 = Color3.fromRGB(114, 118, 125)
+	
+	UserPanelUserIcon.MouseEnter:Connect(function()
+		BlackFrame.Visible = true
+	end)
+	
+	UserPanelUserIcon.MouseLeave:Connect(function()
+		BlackFrame.Visible = false
+	end)
+	
+	UserPanelUserIcon.MouseButton1Click:Connect(function()
+		local NotificationHolder = Instance.new("TextButton")
+		NotificationHolder.Name = "NotificationHolder"
+		NotificationHolder.Parent = SettingsHolder
+		NotificationHolder.BackgroundColor3 = Color3.fromRGB(22,22,22)
+		NotificationHolder.Position = UDim2.new(-0.00881057233, 0, -0.00266666664, 0)
+		NotificationHolder.Size = UDim2.new(0, 687, 0, 375)
+		NotificationHolder.AutoButtonColor = false
+		NotificationHolder.Font = Enum.Font.SourceSans
+		NotificationHolder.Text = ""
+		NotificationHolder.TextColor3 = Color3.fromRGB(0, 0, 0)
+		NotificationHolder.TextSize = 14.000
+		NotificationHolder.BackgroundTransparency = 1
+		NotificationHolder.Visible = true
+		TweenService:Create(
+			NotificationHolder,
+			TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+			{BackgroundTransparency = 0.2}
+		):Play()
+
+
+
+		local AvatarChange = Instance.new("Frame")
+		local UserChangeCorner = Instance.new("UICorner")
+		local UnderBar = Instance.new("Frame")
+		local UnderBarCorner = Instance.new("UICorner")
+		local UnderBarFrame = Instance.new("Frame")
+		local Text1 = Instance.new("TextLabel")
+		local Text2 = Instance.new("TextLabel")
+		local TextBoxFrame = Instance.new("Frame")
+		local TextBoxFrameCorner = Instance.new("UICorner")
+		local TextBoxFrame1 = Instance.new("Frame")
+		local TextBoxFrame1Corner = Instance.new("UICorner")
+		local AvatarTextbox = Instance.new("TextBox")
+		local ChangeBtn = Instance.new("TextButton")
+		local ChangeCorner = Instance.new("UICorner")
+		local CloseBtn2 = Instance.new("TextButton")
+		local Close2Icon = Instance.new("ImageLabel")
+		local CloseBtn1 = Instance.new("TextButton")
+		local CloseBtn1Corner = Instance.new("UICorner")
+		local ResetBtn = Instance.new("TextButton")
+		local ResetCorner = Instance.new("UICorner")
+
+
+		AvatarChange.Name = "AvatarChange"
+		AvatarChange.Parent = NotificationHolder
+		AvatarChange.AnchorPoint = Vector2.new(0.5, 0.5)
+		AvatarChange.BackgroundColor3 = Color3.fromRGB(54, 57, 63)
+		AvatarChange.ClipsDescendants = true
+		AvatarChange.Position = UDim2.new(0.513071597, 0, 0.4746176, 0)
+		AvatarChange.Size = UDim2.new(0, 0, 0, 0)
+		AvatarChange.BackgroundTransparency = 1
+		
+		AvatarChange:TweenSize(UDim2.new(0, 346, 0, 198), Enum.EasingDirection.Out, Enum.EasingStyle.Quart, .2, true)
+		TweenService:Create(
+			AvatarChange,
+			TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+			{BackgroundTransparency = 0}
+		):Play()
+
+
+		UserChangeCorner.CornerRadius = UDim.new(0, 5)
+		UserChangeCorner.Name = "UserChangeCorner"
+		UserChangeCorner.Parent = AvatarChange
+
+		UnderBar.Name = "UnderBar"
+		UnderBar.Parent = AvatarChange
+		UnderBar.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+		UnderBar.Position = UDim2.new(-0.000297061284, 0, 0.945048928, 0)
+		UnderBar.Size = UDim2.new(0, 346, 0, 13)
+
+		UnderBarCorner.CornerRadius = UDim.new(0, 5)
+		UnderBarCorner.Name = "UnderBarCorner"
+		UnderBarCorner.Parent = UnderBar
+
+		UnderBarFrame.Name = "UnderBarFrame"
+		UnderBarFrame.Parent = UnderBar
+		UnderBarFrame.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+		UnderBarFrame.BorderSizePixel = 0
+		UnderBarFrame.Position = UDim2.new(-0.000297061284, 0, -2.53846145, 0)
+		UnderBarFrame.Size = UDim2.new(0, 346, 0, 39)
+
+		Text1.Name = "Text1"
+		Text1.Parent = AvatarChange
+		Text1.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		Text1.BackgroundTransparency = 1.000
+		Text1.Position = UDim2.new(-0.000594122568, 0, 0.0202020202, 0)
+		Text1.Size = UDim2.new(0, 346, 0, 68)
+		Text1.Font = Enum.Font.GothamSemibold
+		Text1.Text = "Change your avatar"
+		Text1.TextColor3 = Color3.fromRGB(255, 255, 255)
+		Text1.TextSize = 20.000
+
+		Text2.Name = "Text2"
+		Text2.Parent = AvatarChange
+		Text2.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		Text2.BackgroundTransparency = 1.000
+		Text2.Position = UDim2.new(-0.000594122568, 0, 0.141587839, 0)
+		Text2.Size = UDim2.new(0, 346, 0, 63)
+		Text2.Font = Enum.Font.Gotham
+		Text2.Text = "Enter your new profile in a Roblox decal link."
+		Text2.TextColor3 = Color3.fromRGB(171, 172, 176)
+		Text2.TextSize = 14.000
+
+		TextBoxFrame.Name = "TextBoxFrame"
+		TextBoxFrame.Parent = AvatarChange
+		TextBoxFrame.AnchorPoint = Vector2.new(0.5, 0.5)
+		TextBoxFrame.BackgroundColor3 = Color3.fromRGB(37, 40, 43)
+		TextBoxFrame.Position = UDim2.new(0.49710983, 0, 0.560606062, 0)
+		TextBoxFrame.Size = UDim2.new(0, 319, 0, 38)
+
+		TextBoxFrameCorner.CornerRadius = UDim.new(0, 3)
+		TextBoxFrameCorner.Name = "TextBoxFrameCorner"
+		TextBoxFrameCorner.Parent = TextBoxFrame
+
+		TextBoxFrame1.Name = "TextBoxFrame1"
+		TextBoxFrame1.Parent = TextBoxFrame
+		TextBoxFrame1.AnchorPoint = Vector2.new(0.5, 0.5)
+		TextBoxFrame1.BackgroundColor3 = Color3.fromRGB(48, 51, 57)
+		TextBoxFrame1.ClipsDescendants = true
+		TextBoxFrame1.Position = UDim2.new(0.5, 0, 0.5, 0)
+		TextBoxFrame1.Size = UDim2.new(0, 317, 0, 36)
+
+		TextBoxFrame1Corner.CornerRadius = UDim.new(0, 3)
+		TextBoxFrame1Corner.Name = "TextBoxFrame1Corner"
+		TextBoxFrame1Corner.Parent = TextBoxFrame1
+
+		AvatarTextbox.Name = "AvatarTextbox"
+		AvatarTextbox.Parent = TextBoxFrame1
+		AvatarTextbox.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		AvatarTextbox.BackgroundTransparency = 1.000
+		AvatarTextbox.Position = UDim2.new(0.0378548913, 0, 0, 0)
+		AvatarTextbox.Size = UDim2.new(0, 293, 0, 37)
+		AvatarTextbox.Font = Enum.Font.Gotham
+		AvatarTextbox.Text = ""
+		AvatarTextbox.TextColor3 = Color3.fromRGB(193, 195, 197)
+		AvatarTextbox.TextSize = 14.000
+		AvatarTextbox.TextXAlignment = Enum.TextXAlignment.Left
+
+		ChangeBtn.Name = "ChangeBtn"
+		ChangeBtn.Parent = AvatarChange
+		ChangeBtn.BackgroundColor3 = Color3.fromRGB(114, 137, 228)
+		ChangeBtn.Position = UDim2.new(0.749670506, 0, 0.823232353, 0)
+		ChangeBtn.Size = UDim2.new(0, 76, 0, 27)
+		ChangeBtn.Font = Enum.Font.Gotham
+		ChangeBtn.Text = "Change"
+		ChangeBtn.TextColor3 = Color3.fromRGB(255, 255, 255)
+		ChangeBtn.TextSize = 13.000
+		ChangeBtn.AutoButtonColor = false
+
+		ChangeBtn.MouseEnter:Connect(function()
+			TweenService:Create(
+				ChangeBtn,
+				TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundColor3 = Color3.fromRGB(103,123,196)}
+			):Play()
+		end)
+
+		ChangeBtn.MouseLeave:Connect(function()
+			TweenService:Create(
+				ChangeBtn,
+				TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundColor3 = Color3.fromRGB(114, 137, 228)}
+			):Play()
+		end)
+
+		ChangeBtn.MouseButton1Click:Connect(function()
+			pfp = tostring(AvatarTextbox.Text)
+			UserImage.Image = pfp 
+			UserPanelUserImage.Image = pfp
+			SaveInfo()
+
+			AvatarChange:TweenSize(UDim2.new(0, 0, 0, 0), Enum.EasingDirection.Out, Enum.EasingStyle.Quart, .2, true)
+			TweenService:Create(
+				AvatarChange,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundTransparency = 1}
+			):Play()
+			TweenService:Create(
+				NotificationHolder,
+				TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundTransparency = 1}
+			):Play()
+			wait(.2)
+			NotificationHolder:Destroy()
+		end)
+
+		
+
+		ChangeCorner.CornerRadius = UDim.new(0, 4)
+		ChangeCorner.Name = "ChangeCorner"
+		ChangeCorner.Parent = ChangeBtn
+
+		CloseBtn2.Name = "CloseBtn2"
+		CloseBtn2.Parent = AvatarChange
+		CloseBtn2.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		CloseBtn2.BackgroundTransparency = 1.000
+		CloseBtn2.Position = UDim2.new(0.898000002, 0, 0, 0)
+		CloseBtn2.Size = UDim2.new(0, 26, 0, 26)
+		CloseBtn2.Font = Enum.Font.Gotham
+		CloseBtn2.Text = ""
+		CloseBtn2.TextColor3 = Color3.fromRGB(255, 255, 255)
+		CloseBtn2.TextSize = 14.000
+
+		Close2Icon.Name = "Close2Icon"
+		Close2Icon.Parent = CloseBtn2
+		Close2Icon.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		Close2Icon.BackgroundTransparency = 1.000
+		Close2Icon.Position = UDim2.new(-0.0384615399, 0, 0.312910825, 0)
+		Close2Icon.Size = UDim2.new(0, 25, 0, 25)
+		Close2Icon.Image = "http://www.roblox.com/asset/?id=6035047409"
+		Close2Icon.ImageColor3 = Color3.fromRGB(119, 122, 127)
+
+		CloseBtn1.Name = "CloseBtn1"
+		CloseBtn1.Parent = AvatarChange
+		CloseBtn1.BackgroundColor3 = Color3.fromRGB(114, 137, 228)
+		CloseBtn1.BackgroundTransparency = 1.000
+		CloseBtn1.Position = UDim2.new(0.495000005, 0, 0.823000014, 0)
+		CloseBtn1.Size = UDim2.new(0, 76, 0, 27)
+		CloseBtn1.Font = Enum.Font.Gotham
+		CloseBtn1.Text = "Close"
+		CloseBtn1.TextColor3 = Color3.fromRGB(255, 255, 255)
+		CloseBtn1.TextSize = 13.000
+
+		CloseBtn1Corner.CornerRadius = UDim.new(0, 4)
+		CloseBtn1Corner.Name = "CloseBtn1Corner"
+		CloseBtn1Corner.Parent = CloseBtn1
+
+		ResetBtn.Name = "ResetBtn"
+		ResetBtn.Parent = AvatarChange
+		ResetBtn.BackgroundColor3 = Color3.fromRGB(114, 137, 228)
+		ResetBtn.BackgroundTransparency = 1.000
+		ResetBtn.Position = UDim2.new(0.260895967, 0, 0.823000014, 0)
+		ResetBtn.Size = UDim2.new(0, 76, 0, 27)
+		ResetBtn.Font = Enum.Font.Gotham
+		ResetBtn.Text = "Reset"
+		ResetBtn.TextColor3 = Color3.fromRGB(255, 255, 255)
+		ResetBtn.TextSize = 13.000
+		
+		ResetBtn.MouseButton1Click:Connect(function()
+			pfp = "https://www.roblox.com/headshot-thumbnail/image?userId=".. game.Players.LocalPlayer.UserId .."&width=420&height=420&format=png"
+			UserImage.Image = pfp 
+			UserPanelUserImage.Image = pfp
+			SaveInfo()
+
+			AvatarChange:TweenSize(UDim2.new(0, 0, 0, 0), Enum.EasingDirection.Out, Enum.EasingStyle.Quart, .2, true)
+			TweenService:Create(
+				AvatarChange,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundTransparency = 1}
+			):Play()
+			TweenService:Create(
+				NotificationHolder,
+				TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundTransparency = 1}
+			):Play()
+			wait(.2)
+			NotificationHolder:Destroy()
+		end)
+
+		ResetCorner.CornerRadius = UDim.new(0, 4)
+		ResetCorner.Name = "ResetCorner"
+		ResetCorner.Parent = ResetBtn
+		
+		CloseBtn1.MouseButton1Click:Connect(function()
+			AvatarChange:TweenSize(UDim2.new(0, 0, 0, 0), Enum.EasingDirection.Out, Enum.EasingStyle.Quart, .2, true)
+			TweenService:Create(
+				AvatarChange,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundTransparency = 1}
+			):Play()
+			TweenService:Create(
+				NotificationHolder,
+				TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundTransparency = 1}
+			):Play()
+			wait(.2)
+			NotificationHolder:Destroy()
+		end)
+
+		CloseBtn2.MouseButton1Click:Connect(function()
+			AvatarChange:TweenSize(UDim2.new(0, 0, 0, 0), Enum.EasingDirection.Out, Enum.EasingStyle.Quart, .2, true)
+			TweenService:Create(
+				AvatarChange,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundTransparency = 1}
+			):Play()
+			TweenService:Create(
+				NotificationHolder,
+				TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundTransparency = 1}
+			):Play()
+			wait(.2)
+			NotificationHolder:Destroy()
+		end)
+		
+		CloseBtn2.MouseEnter:Connect(function()
+			TweenService:Create(
+				Close2Icon,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{ImageColor3 = Color3.fromRGB(210,210,210)}
+			):Play()
+		end)
+
+		CloseBtn2.MouseLeave:Connect(function()
+			TweenService:Create(
+				Close2Icon,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{ImageColor3 = Color3.fromRGB(119, 122, 127)}
+			):Play()
+		end)
+
+
+		AvatarTextbox.Focused:Connect(function()
+			TweenService:Create(
+				TextBoxFrame,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundColor3 = Color3.fromRGB(114, 137, 228)}
+			):Play()
+		end)
+
+		AvatarTextbox.FocusLost:Connect(function()
+			TweenService:Create(
+				TextBoxFrame,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundColor3 = Color3.fromRGB(37, 40, 43)}
+			):Play()
+		end)
+
+
+	end)
+
+	UserPanelUserTag.Name = "UserPanelUserTag"
+	UserPanelUserTag.Parent = UserPanel
+	UserPanelUserTag.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	UserPanelUserTag.BackgroundTransparency = 1.000
+	UserPanelUserTag.Position = UDim2.new(0.271143615, 0, 0.231804818, 0)
+	UserPanelUserTag.Size = UDim2.new(0, 113, 0, 19)
+
+	UserPanelUser.Name = "UserPanelUser"
+	UserPanelUser.Parent = UserPanelUserTag
+	UserPanelUser.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	UserPanelUser.BackgroundTransparency = 1.000
+	UserPanelUser.Font = Enum.Font.GothamSemibold
+	UserPanelUser.TextColor3 = Color3.fromRGB(255, 255, 255)
+	UserPanelUser.TextSize = 17.000
+	UserPanelUser.TextXAlignment = Enum.TextXAlignment.Left
+	UserPanelUser.Text = user
+	UserPanelUser.Size = UDim2.new(0, UserPanelUser.TextBounds.X + 2, 0, 19)
+
+	
+	UserPanelUserTagLayout.Name = "UserPanelUserTagLayout"
+	UserPanelUserTagLayout.Parent = UserPanelUserTag
+	UserPanelUserTagLayout.FillDirection = Enum.FillDirection.Horizontal
+	UserPanelUserTagLayout.SortOrder = Enum.SortOrder.LayoutOrder
+
+	UserPanelTag.Name = "UserPanelTag"
+	UserPanelTag.Parent = UserPanelUserTag
+	UserPanelTag.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	UserPanelTag.BackgroundTransparency = 1.000
+	UserPanelTag.Position = UDim2.new(0.0419999994, 0, 0.493999988, 0)
+	UserPanelTag.Size = UDim2.new(0, 65, 0, 19)
+	UserPanelTag.Font = Enum.Font.Gotham
+	UserPanelTag.Text = "#" .. tag
+	UserPanelTag.TextColor3 = Color3.fromRGB(184, 186, 189)
+	UserPanelTag.TextSize = 17.000
+	UserPanelTag.TextXAlignment = Enum.TextXAlignment.Left
+
+	UserPanelCorner.Name = "UserPanelCorner"
+	UserPanelCorner.Parent = UserPanel
+
+	LeftFrame.Name = "LeftFrame"
+	LeftFrame.Parent = SettingsHolder
+	LeftFrame.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+	LeftFrame.BorderSizePixel = 0
+	LeftFrame.Position = UDim2.new(0, 0, -0.000303059904, 0)
+	LeftFrame.Size = UDim2.new(0, 233, 0, 375)
+
+	MyAccountBtn.Name = "MyAccountBtn"
+	MyAccountBtn.Parent = LeftFrame
+	MyAccountBtn.BackgroundColor3 = Color3.fromRGB(57, 60, 67)
+	MyAccountBtn.BorderSizePixel = 0
+	MyAccountBtn.Position = UDim2.new(0.271232396, 0, 0.101614028, 0)
+	MyAccountBtn.Size = UDim2.new(0, 160, 0, 30)
+	MyAccountBtn.AutoButtonColor = false
+	MyAccountBtn.Font = Enum.Font.SourceSans
+	MyAccountBtn.Text = ""
+	MyAccountBtn.TextColor3 = Color3.fromRGB(0, 0, 0)
+	MyAccountBtn.TextSize = 14.000
+
+	MyAccountBtnCorner.CornerRadius = UDim.new(0, 6)
+	MyAccountBtnCorner.Name = "MyAccountBtnCorner"
+	MyAccountBtnCorner.Parent = MyAccountBtn
+
+	MyAccountBtnTitle.Name = "MyAccountBtnTitle"
+	MyAccountBtnTitle.Parent = MyAccountBtn
+	MyAccountBtnTitle.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	MyAccountBtnTitle.BackgroundTransparency = 1.000
+	MyAccountBtnTitle.BorderSizePixel = 0
+	MyAccountBtnTitle.Position = UDim2.new(0.0759999976, 0, -0.166999996, 0)
+	MyAccountBtnTitle.Size = UDim2.new(0, 95, 0, 39)
+	MyAccountBtnTitle.Font = Enum.Font.GothamSemibold
+	MyAccountBtnTitle.Text = "My Account"
+	MyAccountBtnTitle.TextColor3 = Color3.fromRGB(255, 255, 255)
+	MyAccountBtnTitle.TextSize = 14.000
+	MyAccountBtnTitle.TextXAlignment = Enum.TextXAlignment.Left
+
+	SettingsTitle.Name = "SettingsTitle"
+	SettingsTitle.Parent = LeftFrame
+	SettingsTitle.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	SettingsTitle.BackgroundTransparency = 1.000
+	SettingsTitle.Position = UDim2.new(0.308999985, 0, 0.0450000018, 0)
+	SettingsTitle.Size = UDim2.new(0, 65, 0, 19)
+	SettingsTitle.Font = Enum.Font.GothamBlack
+	SettingsTitle.Text = "SETTINGS"
+	SettingsTitle.TextColor3 = Color3.fromRGB(142, 146, 152)
+	SettingsTitle.TextSize = 11.000
+	SettingsTitle.TextXAlignment = Enum.TextXAlignment.Left
+
+	DiscordInfo.Name = "DiscordInfo"
+	DiscordInfo.Parent = LeftFrame
+	DiscordInfo.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	DiscordInfo.BackgroundTransparency = 1.000
+	DiscordInfo.Position = UDim2.new(0.304721028, 0, 0.821333349, 0)
+	DiscordInfo.Size = UDim2.new(0, 133, 0, 44)
+	DiscordInfo.Font = Enum.Font.Gotham
+	DiscordInfo.Text = "Stable 1.0.0 (00001)  Host 0.0.0.1                Roblox Lua Engine    "
+	DiscordInfo.TextColor3 = Color3.fromRGB(101, 108, 116)
+	DiscordInfo.TextSize = 13.000
+	DiscordInfo.TextWrapped = true
+	DiscordInfo.TextXAlignment = Enum.TextXAlignment.Left
+	DiscordInfo.TextYAlignment = Enum.TextYAlignment.Top
+
+	CurrentSettingOpen.Name = "CurrentSettingOpen"
+	CurrentSettingOpen.Parent = LeftFrame
+	CurrentSettingOpen.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+	CurrentSettingOpen.BackgroundTransparency = 1.000
+	CurrentSettingOpen.Position = UDim2.new(1.07294846, 0, 0.0450000018, 0)
+	CurrentSettingOpen.Size = UDim2.new(0, 65, 0, 19)
+	CurrentSettingOpen.Font = Enum.Font.GothamBlack
+	CurrentSettingOpen.Text = "MY ACCOUNT"
+	CurrentSettingOpen.TextColor3 = Color3.fromRGB(255, 255, 255)
+	CurrentSettingOpen.TextSize = 14.000
+	CurrentSettingOpen.TextXAlignment = Enum.TextXAlignment.Left
+
+	
+	SettingsOpenBtn.MouseButton1Click:Connect(function ()
+		settingsopened = true
+			TopFrameHolder.Visible = false
+			ServersHoldFrame.Visible = false
+			SettingsFrame.Visible = true
+			SettingsHolder:TweenSize(UDim2.new(0, 681, 0, 375), Enum.EasingDirection.Out, Enum.EasingStyle.Quart, .3, true)
+			Settings.BackgroundTransparency = 1
+			TweenService:Create(
+				Settings,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundTransparency = 0}
+			):Play()
+			for i,v in next, SettingsHolder:GetChildren() do
+				v.BackgroundTransparency = 1
+				TweenService:Create(
+					v,
+					TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+					{BackgroundTransparency = 0}
+				):Play()
+			end
+	end)
+	
+	EditBtn.MouseButton1Click:Connect(function()
+		local NotificationHolder = Instance.new("TextButton")
+		NotificationHolder.Name = "NotificationHolder"
+		NotificationHolder.Parent = SettingsHolder
+		NotificationHolder.BackgroundColor3 = Color3.fromRGB(22,22,22)
+		NotificationHolder.Position = UDim2.new(-0.00881057233, 0, -0.00266666664, 0)
+		NotificationHolder.Size = UDim2.new(0, 687, 0, 375)
+		NotificationHolder.AutoButtonColor = false
+		NotificationHolder.Font = Enum.Font.SourceSans
+		NotificationHolder.Text = ""
+		NotificationHolder.TextColor3 = Color3.fromRGB(0, 0, 0)
+		NotificationHolder.TextSize = 14.000
+		NotificationHolder.BackgroundTransparency = 1
+		NotificationHolder.Visible = true
+		TweenService:Create(
+			NotificationHolder,
+			TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+			{BackgroundTransparency = 0.2}
+		):Play()
+
+		local UserChange = Instance.new("Frame")
+		local UserChangeCorner = Instance.new("UICorner")
+		local UnderBar = Instance.new("Frame")
+		local UnderBarCorner = Instance.new("UICorner")
+		local UnderBarFrame = Instance.new("Frame")
+		local Text1 = Instance.new("TextLabel")
+		local Text2 = Instance.new("TextLabel")
+		local TextBoxFrame = Instance.new("Frame")
+		local TextBoxFrameCorner = Instance.new("UICorner")
+		local TextBoxFrame1 = Instance.new("Frame")
+		local TextBoxFrame1Corner = Instance.new("UICorner")
+		local UsernameTextbox = Instance.new("TextBox")
+		local Seperator = Instance.new("Frame")
+		local HashtagLabel = Instance.new("TextLabel")
+		local TagTextbox = Instance.new("TextBox")
+		local ChangeBtn = Instance.new("TextButton")
+		local ChangeCorner = Instance.new("UICorner")
+		local CloseBtn2 = Instance.new("TextButton")
+		local Close2Icon = Instance.new("ImageLabel")
+		local CloseBtn1 = Instance.new("TextButton")
+		local CloseBtn1Corner = Instance.new("UICorner")
+
+		UserChange.Name = "UserChange"
+		UserChange.Parent = NotificationHolder
+		UserChange.AnchorPoint = Vector2.new(0.5, 0.5)
+		UserChange.BackgroundColor3 = Color3.fromRGB(54, 57, 63)
+		UserChange.ClipsDescendants = true
+		UserChange.Position = UDim2.new(0.513071597, 0, 0.4746176, 0)
+		UserChange.Size = UDim2.new(0, 0, 0, 0)
+		UserChange.BackgroundTransparency = 1
+		
+		UserChange:TweenSize(UDim2.new(0, 346, 0, 198), Enum.EasingDirection.Out, Enum.EasingStyle.Quart, .2, true)
+		TweenService:Create(
+			UserChange,
+			TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+			{BackgroundTransparency = 0}
+		):Play()
+		
+		UserChangeCorner.CornerRadius = UDim.new(0, 5)
+		UserChangeCorner.Name = "UserChangeCorner"
+		UserChangeCorner.Parent = UserChange
+
+		UnderBar.Name = "UnderBar"
+		UnderBar.Parent = UserChange
+		UnderBar.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+		UnderBar.Position = UDim2.new(-0.000297061284, 0, 0.945048928, 0)
+		UnderBar.Size = UDim2.new(0, 346, 0, 13)
+
+		UnderBarCorner.CornerRadius = UDim.new(0, 5)
+		UnderBarCorner.Name = "UnderBarCorner"
+		UnderBarCorner.Parent = UnderBar
+
+		UnderBarFrame.Name = "UnderBarFrame"
+		UnderBarFrame.Parent = UnderBar
+		UnderBarFrame.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+		UnderBarFrame.BorderSizePixel = 0
+		UnderBarFrame.Position = UDim2.new(-0.000297061284, 0, -2.53846145, 0)
+		UnderBarFrame.Size = UDim2.new(0, 346, 0, 39)
+
+		Text1.Name = "Text1"
+		Text1.Parent = UserChange
+		Text1.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		Text1.BackgroundTransparency = 1.000
+		Text1.Position = UDim2.new(-0.000594122568, 0, 0.0202020202, 0)
+		Text1.Size = UDim2.new(0, 346, 0, 68)
+		Text1.Font = Enum.Font.GothamSemibold
+		Text1.Text = "Change your username"
+		Text1.TextColor3 = Color3.fromRGB(255, 255, 255)
+		Text1.TextSize = 20.000
+
+		Text2.Name = "Text2"
+		Text2.Parent = UserChange
+		Text2.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		Text2.BackgroundTransparency = 1.000
+		Text2.Position = UDim2.new(-0.000594122568, 0, 0.141587839, 0)
+		Text2.Size = UDim2.new(0, 346, 0, 63)
+		Text2.Font = Enum.Font.Gotham
+		Text2.Text = "Enter your new username."
+		Text2.TextColor3 = Color3.fromRGB(171, 172, 176)
+		Text2.TextSize = 14.000
+
+		TextBoxFrame.Name = "TextBoxFrame"
+		TextBoxFrame.Parent = UserChange
+		TextBoxFrame.AnchorPoint = Vector2.new(0.5, 0.5)
+		TextBoxFrame.BackgroundColor3 = Color3.fromRGB(37, 40, 43)
+		TextBoxFrame.Position = UDim2.new(0.49710983, 0, 0.560606062, 0)
+		TextBoxFrame.Size = UDim2.new(0, 319, 0, 38)
+
+		TextBoxFrameCorner.CornerRadius = UDim.new(0, 3)
+		TextBoxFrameCorner.Name = "TextBoxFrameCorner"
+		TextBoxFrameCorner.Parent = TextBoxFrame
+
+		TextBoxFrame1.Name = "TextBoxFrame1"
+		TextBoxFrame1.Parent = TextBoxFrame
+		TextBoxFrame1.AnchorPoint = Vector2.new(0.5, 0.5)
+		TextBoxFrame1.BackgroundColor3 = Color3.fromRGB(48, 51, 57)
+		TextBoxFrame1.Position = UDim2.new(0.5, 0, 0.5, 0)
+		TextBoxFrame1.Size = UDim2.new(0, 317, 0, 36)
+
+		TextBoxFrame1Corner.CornerRadius = UDim.new(0, 3)
+		TextBoxFrame1Corner.Name = "TextBoxFrame1Corner"
+		TextBoxFrame1Corner.Parent = TextBoxFrame1
+
+		UsernameTextbox.Name = "UsernameTextbox"
+		UsernameTextbox.Parent = TextBoxFrame1
+		UsernameTextbox.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		UsernameTextbox.BackgroundTransparency = 1.000
+		UsernameTextbox.Position = UDim2.new(0.0378548913, 0, 0, 0)
+		UsernameTextbox.Size = UDim2.new(0, 221, 0, 37)
+		UsernameTextbox.Font = Enum.Font.Gotham
+		UsernameTextbox.Text = user
+		UsernameTextbox.TextColor3 = Color3.fromRGB(193, 195, 197)
+		UsernameTextbox.TextSize = 14.000
+		UsernameTextbox.TextXAlignment = Enum.TextXAlignment.Left
+
+		Seperator.Name = "Seperator"
+		Seperator.Parent = TextBoxFrame1
+		Seperator.AnchorPoint = Vector2.new(0.5, 0.5)
+		Seperator.BackgroundColor3 = Color3.fromRGB(64, 68, 73)
+		Seperator.BorderSizePixel = 0
+		Seperator.Position = UDim2.new(0.753000021, 0, 0.500999987, 0)
+		Seperator.Size = UDim2.new(0, 1, 0, 25)
+
+		HashtagLabel.Name = "HashtagLabel"
+		HashtagLabel.Parent = TextBoxFrame1
+		HashtagLabel.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		HashtagLabel.BackgroundTransparency = 1.000
+		HashtagLabel.Position = UDim2.new(0.765877604, 0, -0.0546001866, 0)
+		HashtagLabel.Size = UDim2.new(0, 23, 0, 37)
+		HashtagLabel.Font = Enum.Font.Gotham
+		HashtagLabel.Text = "#"
+		HashtagLabel.TextColor3 = Color3.fromRGB(79, 82, 88)
+		HashtagLabel.TextSize = 16.000
+
+		TagTextbox.Name = "TagTextbox"
+		TagTextbox.Parent = TextBoxFrame1
+		TagTextbox.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		TagTextbox.BackgroundTransparency = 1.000
+		TagTextbox.Position = UDim2.new(0.824999988, 0, -0.0280000009, 0)
+		TagTextbox.Size = UDim2.new(0, 59, 0, 38)
+		TagTextbox.Font = Enum.Font.Gotham
+		TagTextbox.PlaceholderColor3 = Color3.fromRGB(210, 211, 212)
+		TagTextbox.Text = tag
+		TagTextbox.TextColor3 = Color3.fromRGB(193, 195, 197)
+		TagTextbox.TextSize = 14.000
+		TagTextbox.TextXAlignment = Enum.TextXAlignment.Left
+
+		ChangeBtn.Name = "ChangeBtn"
+		ChangeBtn.Parent = UserChange
+		ChangeBtn.BackgroundColor3 = Color3.fromRGB(114, 137, 228)
+		ChangeBtn.Position = UDim2.new(0.749670506, 0, 0.823232353, 0)
+		ChangeBtn.Size = UDim2.new(0, 76, 0, 27)
+		ChangeBtn.Font = Enum.Font.Gotham
+		ChangeBtn.Text = "Change"
+		ChangeBtn.TextColor3 = Color3.fromRGB(255, 255, 255)
+		ChangeBtn.TextSize = 13.000
+		ChangeBtn.AutoButtonColor = false
+		
+		ChangeBtn.MouseEnter:Connect(function()
+			TweenService:Create(
+				ChangeBtn,
+				TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundColor3 = Color3.fromRGB(103,123,196)}
+			):Play()
+		end)
+		
+		ChangeBtn.MouseLeave:Connect(function()
+			TweenService:Create(
+				ChangeBtn,
+				TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundColor3 = Color3.fromRGB(114, 137, 228)}
+			):Play()
+		end)
+		
+		ChangeBtn.MouseButton1Click:Connect(function()
+			user = UsernameTextbox.Text
+			tag = TagTextbox.Text
+			UserSettingsPadUser.Text = user
+			UserSettingsPadUser.Size = UDim2.new(0, UserSettingsPadUser.TextBounds.X + 2, 0, 19)
+			UserSettingsPadTag.Text = "#" .. tag
+			UserPanelTag.Text = "#" .. tag
+			UserPanelUser.Text = user
+			UserPanelUser.Size = UDim2.new(0, UserPanelUser.TextBounds.X + 2, 0, 19)
+			UserName.Text = user
+			UserTag.Text = "#" .. tag
+			SaveInfo()
+
+			UserChange:TweenSize(UDim2.new(0, 0, 0, 0), Enum.EasingDirection.Out, Enum.EasingStyle.Quart, .2, true)
+			TweenService:Create(
+				UserChange,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundTransparency = 1}
+			):Play()
+			TweenService:Create(
+				NotificationHolder,
+				TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundTransparency = 1}
+			):Play()
+			wait(.2)
+			NotificationHolder:Destroy()
+		end)
+
+		ChangeCorner.CornerRadius = UDim.new(0, 4)
+		ChangeCorner.Name = "ChangeCorner"
+		ChangeCorner.Parent = ChangeBtn
+
+		CloseBtn2.Name = "CloseBtn2"
+		CloseBtn2.Parent = UserChange
+		CloseBtn2.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		CloseBtn2.BackgroundTransparency = 1.000
+		CloseBtn2.Position = UDim2.new(0.898000002, 0, 0, 0)
+		CloseBtn2.Size = UDim2.new(0, 26, 0, 26)
+		CloseBtn2.Font = Enum.Font.Gotham
+		CloseBtn2.Text = ""
+		CloseBtn2.TextColor3 = Color3.fromRGB(255, 255, 255)
+		CloseBtn2.TextSize = 14.000
+
+		Close2Icon.Name = "Close2Icon"
+		Close2Icon.Parent = CloseBtn2
+		Close2Icon.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		Close2Icon.BackgroundTransparency = 1.000
+		Close2Icon.Position = UDim2.new(-0.0384615399, 0, 0.312910825, 0)
+		Close2Icon.Size = UDim2.new(0, 25, 0, 25)
+		Close2Icon.Image = "http://www.roblox.com/asset/?id=6035047409"
+		Close2Icon.ImageColor3 = Color3.fromRGB(119, 122, 127)
+
+		CloseBtn1.Name = "CloseBtn1"
+		CloseBtn1.Parent = UserChange
+		CloseBtn1.BackgroundColor3 = Color3.fromRGB(114, 137, 228)
+		CloseBtn1.BackgroundTransparency = 1.000
+		CloseBtn1.Position = UDim2.new(0.495000005, 0, 0.823000014, 0)
+		CloseBtn1.Size = UDim2.new(0, 76, 0, 27)
+		CloseBtn1.Font = Enum.Font.Gotham
+		CloseBtn1.Text = "Close"
+		CloseBtn1.TextColor3 = Color3.fromRGB(255, 255, 255)
+		CloseBtn1.TextSize = 13.000
+
+		CloseBtn1Corner.CornerRadius = UDim.new(0, 4)
+		CloseBtn1Corner.Name = "CloseBtn1Corner"
+		CloseBtn1Corner.Parent = CloseBtn1
+		
+		CloseBtn1.MouseButton1Click:Connect(function()
+			UserChange:TweenSize(UDim2.new(0, 0, 0, 0), Enum.EasingDirection.Out, Enum.EasingStyle.Quart, .2, true)
+			TweenService:Create(
+				UserChange,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundTransparency = 1}
+			):Play()
+			TweenService:Create(
+				NotificationHolder,
+				TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundTransparency = 1}
+			):Play()
+			wait(.2)
+			NotificationHolder:Destroy()
+		end)
+		
+		CloseBtn2.MouseButton1Click:Connect(function()
+			UserChange:TweenSize(UDim2.new(0, 0, 0, 0), Enum.EasingDirection.Out, Enum.EasingStyle.Quart, .2, true)
+			TweenService:Create(
+				UserChange,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundTransparency = 1}
+			):Play()
+			TweenService:Create(
+				NotificationHolder,
+				TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundTransparency = 1}
+			):Play()
+			wait(.2)
+			NotificationHolder:Destroy()
+		end)
+		
+		CloseBtn2.MouseEnter:Connect(function()
+			TweenService:Create(
+				Close2Icon,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{ImageColor3 = Color3.fromRGB(210,210,210)}
+			):Play()
+		end)
+		
+		CloseBtn2.MouseLeave:Connect(function()
+			TweenService:Create(
+				Close2Icon,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{ImageColor3 = Color3.fromRGB(119, 122, 127)}
+			):Play()
+		end)
+		
+		TagTextbox.Changed:Connect(function()
+			TagTextbox.Text = TagTextbox.Text:sub(1,4)	
+		end)
+		
+		TagTextbox:GetPropertyChangedSignal("Text"):Connect(function()
+			TagTextbox.Text = TagTextbox.Text:gsub('%D+', '');
+		end)
+		
+		UsernameTextbox.Changed:Connect(function()
+			UsernameTextbox.Text = UsernameTextbox.Text:sub(1,13)	
+		end)
+		
+		TagTextbox.Focused:Connect(function()
+			TweenService:Create(
+				TextBoxFrame,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundColor3 = Color3.fromRGB(114, 137, 228)}
+			):Play()
+		end)
+		
+		TagTextbox.FocusLost:Connect(function()
+			TweenService:Create(
+				TextBoxFrame,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundColor3 = Color3.fromRGB(37, 40, 43)}
+			):Play()
+		end)
+		
+		UsernameTextbox.Focused:Connect(function()
+			TweenService:Create(
+				TextBoxFrame,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundColor3 = Color3.fromRGB(114, 137, 228)}
+			):Play()
+		end)
+
+		UsernameTextbox.FocusLost:Connect(function()
+			TweenService:Create(
+				TextBoxFrame,
+				TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundColor3 = Color3.fromRGB(37, 40, 43)}
+			):Play()
+		end)
+		
+	end)
+	
+	function DiscordLib:Notification(titletext, desctext, btntext)
+		local NotificationHolderMain = Instance.new("TextButton")
+		local Notification = Instance.new("Frame")
+		local NotificationCorner = Instance.new("UICorner")
+		local UnderBar = Instance.new("Frame")
+		local UnderBarCorner = Instance.new("UICorner")
+		local UnderBarFrame = Instance.new("Frame")
+		local Text1 = Instance.new("TextLabel")
+		local Text2 = Instance.new("TextLabel")
+		local AlrightBtn = Instance.new("TextButton")
+		local AlrightCorner = Instance.new("UICorner")
+
+		NotificationHolderMain.Name = "NotificationHolderMain"
+		NotificationHolderMain.Parent = MainFrame
+		NotificationHolderMain.BackgroundColor3 = Color3.fromRGB(22, 22, 22)
+		NotificationHolderMain.BackgroundTransparency = 1
+		NotificationHolderMain.BorderSizePixel = 0
+		NotificationHolderMain.Position = UDim2.new(0, 0, 0.0560000017, 0)
+		NotificationHolderMain.Size = UDim2.new(0, 681, 0, 374)
+		NotificationHolderMain.AutoButtonColor = false
+		NotificationHolderMain.Font = Enum.Font.SourceSans
+		NotificationHolderMain.Text = ""
+		NotificationHolderMain.TextColor3 = Color3.fromRGB(0, 0, 0)
+		NotificationHolderMain.TextSize = 14.000
+		TweenService:Create(
+			NotificationHolderMain,
+			TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+			{BackgroundTransparency = 0.2}
+		):Play()
+		
+
+		Notification.Name = "Notification"
+		Notification.Parent = NotificationHolderMain
+		Notification.AnchorPoint = Vector2.new(0.5, 0.5)
+		Notification.BackgroundColor3 = Color3.fromRGB(54, 57, 63)
+		Notification.ClipsDescendants = true
+		Notification.Position = UDim2.new(0.524819076, 0, 0.469270051, 0)
+		Notification.Size = UDim2.new(0, 0, 0, 0)
+		Notification.BackgroundTransparency = 1
+		
+		Notification:TweenSize(UDim2.new(0, 346, 0, 176), Enum.EasingDirection.Out, Enum.EasingStyle.Quart, .2, true)
+		
+		TweenService:Create(
+			Notification,
+			TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+			{BackgroundTransparency = 0}
+		):Play()
+
+		NotificationCorner.CornerRadius = UDim.new(0, 5)
+		NotificationCorner.Name = "NotificationCorner"
+		NotificationCorner.Parent = Notification
+
+		UnderBar.Name = "UnderBar"
+		UnderBar.Parent = Notification
+		UnderBar.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+		UnderBar.Position = UDim2.new(-0.000297061284, 0, 0.945048928, 0)
+		UnderBar.Size = UDim2.new(0, 346, 0, 10)
+
+		UnderBarCorner.CornerRadius = UDim.new(0, 5)
+		UnderBarCorner.Name = "UnderBarCorner"
+		UnderBarCorner.Parent = UnderBar
+
+		UnderBarFrame.Name = "UnderBarFrame"
+		UnderBarFrame.Parent = UnderBar
+		UnderBarFrame.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+		UnderBarFrame.BorderSizePixel = 0
+		UnderBarFrame.Position = UDim2.new(-0.000297061284, 0, -3.76068449, 0)
+		UnderBarFrame.Size = UDim2.new(0, 346, 0, 40)
+
+		Text1.Name = "Text1"
+		Text1.Parent = Notification
+		Text1.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		Text1.BackgroundTransparency = 1.000
+		Text1.Position = UDim2.new(-0.000594122568, 0, 0.0202020202, 0)
+		Text1.Size = UDim2.new(0, 346, 0, 68)
+		Text1.Font = Enum.Font.GothamSemibold
+		Text1.Text = titletext
+		Text1.TextColor3 = Color3.fromRGB(255, 255, 255)
+		Text1.TextSize = 20.000
+
+		Text2.Name = "Text2"
+		Text2.Parent = Notification
+		Text2.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		Text2.BackgroundTransparency = 1.000
+		Text2.Position = UDim2.new(0.106342293, 0, 0.317724228, 0)
+		Text2.Size = UDim2.new(0, 272, 0, 63)
+		Text2.Font = Enum.Font.Gotham
+		Text2.Text = desctext
+		Text2.TextColor3 = Color3.fromRGB(171, 172, 176)
+		Text2.TextSize = 14.000
+		Text2.TextWrapped = true
+
+		AlrightBtn.Name = "AlrightBtn"
+		AlrightBtn.Parent = Notification
+		AlrightBtn.BackgroundColor3 = Color3.fromRGB(114, 137, 228)
+		AlrightBtn.Position = UDim2.new(0.0332369953, 0, 0.789141417, 0)
+		AlrightBtn.Size = UDim2.new(0, 322, 0, 27)
+		AlrightBtn.Font = Enum.Font.Gotham
+		AlrightBtn.Text = btntext
+		AlrightBtn.TextColor3 = Color3.fromRGB(255, 255, 255)
+		AlrightBtn.TextSize = 13.000
+		AlrightBtn.AutoButtonColor = false
+		
+		AlrightCorner.CornerRadius = UDim.new(0, 4)
+		AlrightCorner.Name = "AlrightCorner"
+		AlrightCorner.Parent = AlrightBtn
+		
+		AlrightBtn.MouseButton1Click:Connect(function()
+			TweenService:Create(
+				NotificationHolderMain,
+				TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundTransparency = 1}
+			):Play()
+			Notification:TweenSize(UDim2.new(0, 0, 0, 0), Enum.EasingDirection.Out, Enum.EasingStyle.Quart, .2, true)
+			TweenService:Create(
+				Notification,
+				TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundTransparency = 1}
+			):Play()
+			wait(.2)
+			NotificationHolderMain:Destroy()
+		end)
+		
+		AlrightBtn.MouseEnter:Connect(function()
+			TweenService:Create(
+				AlrightBtn,
+				TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundColor3 = Color3.fromRGB(103,123,196)}
+			):Play()
+		end)
+
+		AlrightBtn.MouseLeave:Connect(function()
+			TweenService:Create(
+				AlrightBtn,
+				TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundColor3 = Color3.fromRGB(114, 137, 228)}
+			):Play()
+		end)
+	end
+
+	MakeDraggable(TopFrame, MainFrame)
+	ServersHoldPadding.PaddingLeft = UDim.new(0, 14)
+	local ServerHold = {}
+	function ServerHold:Server(text, img)
+		local fc = false
+		local currentchanneltoggled = ""
+		local Server = Instance.new("TextButton")
+		local ServerBtnCorner = Instance.new("UICorner")
+		local ServerIco = Instance.new("ImageLabel")
+		local ServerWhiteFrame = Instance.new("Frame")
+		local ServerWhiteFrameCorner = Instance.new("UICorner")
+
+		Server.Name = text .. "Server"
+		Server.Parent = ServersHold
+		Server.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+		Server.Position = UDim2.new(0.125, 0, 0, 0)
+		Server.Size = UDim2.new(0, 47, 0, 47)
+		Server.AutoButtonColor = false
+		Server.Font = Enum.Font.Gotham
+		Server.Text = ""
+		Server.TextColor3 = Color3.fromRGB(255, 255, 255)
+		Server.TextSize = 18.000
+
+		ServerBtnCorner.CornerRadius = UDim.new(1, 0)
+		ServerBtnCorner.Name = "ServerCorner"
+		ServerBtnCorner.Parent = Server
+
+		ServerIco.Name = "ServerIco"
+		ServerIco.Parent = Server
+		ServerIco.AnchorPoint = Vector2.new(0.5, 0.5)
+		ServerIco.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		ServerIco.BackgroundTransparency = 1.000
+		ServerIco.Position = UDim2.new(0.489361703, 0, 0.489361703, 0)
+		ServerIco.Size = UDim2.new(0, 26, 0, 26)
+		ServerIco.Image = ""
+
+		ServerWhiteFrame.Name = "ServerWhiteFrame"
+		ServerWhiteFrame.Parent = Server
+		ServerWhiteFrame.AnchorPoint = Vector2.new(0.5, 0.5)
+		ServerWhiteFrame.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		ServerWhiteFrame.Position = UDim2.new(-0.347378343, 0, 0.502659559, 0)
+		ServerWhiteFrame.Size = UDim2.new(0, 11, 0, 10)
+
+		ServerWhiteFrameCorner.CornerRadius = UDim.new(1, 0)
+		ServerWhiteFrameCorner.Name = "ServerWhiteFrameCorner"
+		ServerWhiteFrameCorner.Parent = ServerWhiteFrame
+		ServersHold.CanvasSize = UDim2.new(0, 0, 0, ServersHoldLayout.AbsoluteContentSize.Y)
+
+		local ServerFrame = Instance.new("Frame")
+		local ServerFrame1 = Instance.new("Frame")
+		local ServerFrame2 = Instance.new("Frame")
+		local ServerTitleFrame = Instance.new("Frame")
+		local ServerTitle = Instance.new("TextLabel")
+		local GlowFrame = Instance.new("Frame")
+		local Glow = Instance.new("ImageLabel")
+		local ServerContentFrame = Instance.new("Frame")
+		local ServerCorner = Instance.new("UICorner")
+		local ChannelTitleFrame = Instance.new("Frame")
+		local Hashtag = Instance.new("TextLabel")
+		local ChannelTitle = Instance.new("TextLabel")
+		local ChannelContentFrame = Instance.new("Frame")
+		local GlowChannel = Instance.new("ImageLabel")
+		local ServerChannelHolder = Instance.new("ScrollingFrame")
+		local ServerChannelHolderLayout = Instance.new("UIListLayout")
+		local ServerChannelHolderPadding = Instance.new("UIPadding")
+
+
+		ServerFrame.Name = "ServerFrame"
+		ServerFrame.Parent = ServersHolder
+		ServerFrame.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+		ServerFrame.BorderSizePixel = 0
+		ServerFrame.ClipsDescendants = true
+		ServerFrame.Position = UDim2.new(0.105726875, 0, 1.01262593, 0)
+		ServerFrame.Size = UDim2.new(0, 609, 0, 373)
+		ServerFrame.Visible = false
+
+		ServerFrame1.Name = "ServerFrame1"
+		ServerFrame1.Parent = ServerFrame
+		ServerFrame1.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+		ServerFrame1.BorderSizePixel = 0
+		ServerFrame1.Position = UDim2.new(0, 0, 0.972290039, 0)
+		ServerFrame1.Size = UDim2.new(0, 12, 0, 10)
+
+		ServerFrame2.Name = "ServerFrame2"
+		ServerFrame2.Parent = ServerFrame
+		ServerFrame2.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+		ServerFrame2.BorderSizePixel = 0
+		ServerFrame2.Position = UDim2.new(0.980295539, 0, 0.972290039, 0)
+		ServerFrame2.Size = UDim2.new(0, 12, 0, 9)
+
+		ServerTitleFrame.Name = "ServerTitleFrame"
+		ServerTitleFrame.Parent = ServerFrame
+		ServerTitleFrame.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+		ServerTitleFrame.BackgroundTransparency = 1.000
+		ServerTitleFrame.BorderSizePixel = 0
+		ServerTitleFrame.Position = UDim2.new(-0.0010054264, 0, -0.000900391256, 0)
+		ServerTitleFrame.Size = UDim2.new(0, 180, 0, 40)
+
+		ServerTitle.Name = "ServerTitle"
+		ServerTitle.Parent = ServerTitleFrame
+		ServerTitle.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		ServerTitle.BackgroundTransparency = 1.000
+		ServerTitle.BorderSizePixel = 0
+		ServerTitle.Position = UDim2.new(0.0751359761, 0, 0, 0)
+		ServerTitle.Size = UDim2.new(0, 97, 0, 39)
+		ServerTitle.Font = Enum.Font.GothamSemibold
+		ServerTitle.Text = text
+		ServerTitle.TextColor3 = Color3.fromRGB(255, 255, 255)
+		ServerTitle.TextSize = 15.000
+		ServerTitle.TextXAlignment = Enum.TextXAlignment.Left
+
+		GlowFrame.Name = "GlowFrame"
+		GlowFrame.Parent = ServerFrame
+		GlowFrame.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+		GlowFrame.BackgroundTransparency = 1.000
+		GlowFrame.BorderSizePixel = 0
+		GlowFrame.Position = UDim2.new(-0.0010054264, 0, -0.000900391256, 0)
+		GlowFrame.Size = UDim2.new(0, 609, 0, 40)
+
+		Glow.Name = "Glow"
+		Glow.Parent = GlowFrame
+		Glow.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		Glow.BackgroundTransparency = 1.000
+		Glow.BorderSizePixel = 0
+		Glow.Position = UDim2.new(0, -15, 0, -15)
+		Glow.Size = UDim2.new(1, 30, 1, 30)
+		Glow.ZIndex = 0
+		Glow.Image = "rbxassetid://4996891970"
+		Glow.ImageColor3 = Color3.fromRGB(15, 15, 15)
+		Glow.ScaleType = Enum.ScaleType.Slice
+		Glow.SliceCenter = Rect.new(20, 20, 280, 280)
+
+		ServerContentFrame.Name = "ServerContentFrame"
+		ServerContentFrame.Parent = ServerFrame
+		ServerContentFrame.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+		ServerContentFrame.BackgroundTransparency = 1.000
+		ServerContentFrame.BorderSizePixel = 0
+		ServerContentFrame.Position = UDim2.new(-0.0010054264, 0, 0.106338218, 0)
+		ServerContentFrame.Size = UDim2.new(0, 180, 0, 333)
+
+		ServerCorner.CornerRadius = UDim.new(0, 9)
+		ServerCorner.Name = "ServerCorner"
+		ServerCorner.Parent = ServerFrame
+
+		ChannelTitleFrame.Name = "ChannelTitleFrame"
+		ChannelTitleFrame.Parent = ServerFrame
+		ChannelTitleFrame.BackgroundColor3 = Color3.fromRGB(54, 57, 63)
+		ChannelTitleFrame.BorderSizePixel = 0
+		ChannelTitleFrame.Position = UDim2.new(0.294561088, 0, -0.000900391256, 0)
+		ChannelTitleFrame.Size = UDim2.new(0, 429, 0, 40)
+
+		Hashtag.Name = "Hashtag"
+		Hashtag.Parent = ChannelTitleFrame
+		Hashtag.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		Hashtag.BackgroundTransparency = 1.000
+		Hashtag.BorderSizePixel = 0
+		Hashtag.Position = UDim2.new(0.0279720277, 0, 0, 0)
+		Hashtag.Size = UDim2.new(0, 19, 0, 39)
+		Hashtag.Font = Enum.Font.Gotham
+		Hashtag.Text = "#"
+		Hashtag.TextColor3 = Color3.fromRGB(114, 118, 125)
+		Hashtag.TextSize = 25.000
+
+		ChannelTitle.Name = "ChannelTitle"
+		ChannelTitle.Parent = ChannelTitleFrame
+		ChannelTitle.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		ChannelTitle.BackgroundTransparency = 1.000
+		ChannelTitle.BorderSizePixel = 0
+		ChannelTitle.Position = UDim2.new(0.0862470865, 0, 0, 0)
+		ChannelTitle.Size = UDim2.new(0, 95, 0, 39)
+		ChannelTitle.Font = Enum.Font.GothamSemibold
+		ChannelTitle.Text = ""
+		ChannelTitle.TextColor3 = Color3.fromRGB(255, 255, 255)
+		ChannelTitle.TextSize = 15.000
+		ChannelTitle.TextXAlignment = Enum.TextXAlignment.Left
+
+		ChannelContentFrame.Name = "ChannelContentFrame"
+		ChannelContentFrame.Parent = ServerFrame
+		ChannelContentFrame.BackgroundColor3 = Color3.fromRGB(54, 57, 63)
+		ChannelContentFrame.BorderSizePixel = 0
+		ChannelContentFrame.ClipsDescendants = true
+		ChannelContentFrame.Position = UDim2.new(0.294561088, 0, 0.106338218, 0)
+		ChannelContentFrame.Size = UDim2.new(0, 429, 0, 333)
+
+		GlowChannel.Name = "GlowChannel"
+		GlowChannel.Parent = ChannelContentFrame
+		GlowChannel.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		GlowChannel.BackgroundTransparency = 1.000
+		GlowChannel.BorderSizePixel = 0
+		GlowChannel.Position = UDim2.new(0, -33, 0, -91)
+		GlowChannel.Size = UDim2.new(1.06396091, 30, 0.228228226, 30)
+		GlowChannel.ZIndex = 0
+		GlowChannel.Image = "rbxassetid://4996891970"
+		GlowChannel.ImageColor3 = Color3.fromRGB(15, 15, 15)
+		GlowChannel.ScaleType = Enum.ScaleType.Slice
+		GlowChannel.SliceCenter = Rect.new(20, 20, 280, 280)
+
+		ServerChannelHolder.Name = "ServerChannelHolder"
+		ServerChannelHolder.Parent = ServerContentFrame
+		ServerChannelHolder.Active = true
+		ServerChannelHolder.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+		ServerChannelHolder.BackgroundTransparency = 1.000
+		ServerChannelHolder.BorderSizePixel = 0
+		ServerChannelHolder.Position = UDim2.new(0.00535549596, 0, 0.0241984241, 0)
+		ServerChannelHolder.Selectable = false
+		ServerChannelHolder.Size = UDim2.new(0, 179, 0, 278)
+		ServerChannelHolder.CanvasSize = UDim2.new(0, 0, 0, 0)
+		ServerChannelHolder.ScrollBarThickness = 4
+		ServerChannelHolder.ScrollBarImageColor3 = Color3.fromRGB(18, 19, 21)
+		ServerChannelHolder.ScrollBarImageTransparency = 1
+
+		ServerChannelHolderLayout.Name = "ServerChannelHolderLayout"
+		ServerChannelHolderLayout.Parent = ServerChannelHolder
+		ServerChannelHolderLayout.SortOrder = Enum.SortOrder.LayoutOrder
+		ServerChannelHolderLayout.Padding = UDim.new(0, 4)
+
+		ServerChannelHolderPadding.Name = "ServerChannelHolderPadding"
+		ServerChannelHolderPadding.Parent = ServerChannelHolder
+		ServerChannelHolderPadding.PaddingLeft = UDim.new(0, 9)
+		
+		ServerChannelHolder.MouseEnter:Connect(function()
+			ServerChannelHolder.ScrollBarImageTransparency = 0
+		end)
+		
+		ServerChannelHolder.MouseLeave:Connect(function()
+			ServerChannelHolder.ScrollBarImageTransparency = 1
+		end)
+
+		Server.MouseEnter:Connect(
+			function()
+				if currentservertoggled ~= Server.Name then
+					TweenService:Create(
+						Server,
+						TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+						{BackgroundColor3 = Color3.fromRGB(114, 137, 228)}
+					):Play()
+					TweenService:Create(
+						ServerBtnCorner,
+						TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+						{CornerRadius = UDim.new(0, 15)}
+					):Play()
+					ServerWhiteFrame:TweenSize(
+						UDim2.new(0, 11, 0, 27),
+						Enum.EasingDirection.Out,
+						Enum.EasingStyle.Quart,
+						.3,
+						true
+					)
+				end
+			end
+		)
+
+		Server.MouseLeave:Connect(
+			function()
+				if currentservertoggled ~= Server.Name then
+					TweenService:Create(
+						Server,
+						TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+						{BackgroundColor3 = Color3.fromRGB(47, 49, 54)}
+					):Play()
+					TweenService:Create(
+						ServerBtnCorner,
+						TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+						{CornerRadius = UDim.new(1, 0)}
+					):Play()
+					ServerWhiteFrame:TweenSize(
+						UDim2.new(0, 11, 0, 10),
+						Enum.EasingDirection.Out,
+						Enum.EasingStyle.Quart,
+						.3,
+						true
+					)
+				end
+			end
+		)
+
+		Server.MouseButton1Click:Connect(
+			function()
+				currentservertoggled = Server.Name
+				for i, v in next, ServersHolder:GetChildren() do
+					if v.Name == "ServerFrame" then
+						v.Visible = false
+					end
+					ServerFrame.Visible = true
+				end
+				for i, v in next, ServersHold:GetChildren() do
+					if v.ClassName == "TextButton" then
+						TweenService:Create(
+							v,
+							TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+							{BackgroundColor3 = Color3.fromRGB(47, 49, 54)}
+						):Play()
+						TweenService:Create(
+							Server,
+							TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+							{BackgroundColor3 = Color3.fromRGB(114, 137, 228)}
+						):Play()
+						TweenService:Create(
+							v.ServerCorner,
+							TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+							{CornerRadius = UDim.new(1, 0)}
+						):Play()
+						TweenService:Create(
+							ServerBtnCorner,
+							TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+							{CornerRadius = UDim.new(0, 15)}
+						):Play()
+						v.ServerWhiteFrame:TweenSize(
+							UDim2.new(0, 11, 0, 10),
+							Enum.EasingDirection.Out,
+							Enum.EasingStyle.Quart,
+							.3,
+							true
+						)
+						ServerWhiteFrame:TweenSize(
+							UDim2.new(0, 11, 0, 46),
+							Enum.EasingDirection.Out,
+							Enum.EasingStyle.Quart,
+							.3,
+							true
+						)
+					end
+				end
+			end
+		)
+
+		if img == "" then
+			Server.Text = string.sub(text, 1, 1)
+		else
+			ServerIco.Image = img
+		end
+
+		if fs == false then
+			TweenService:Create(
+				Server,
+				TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{BackgroundColor3 = Color3.fromRGB(114, 137, 228)}
+			):Play()
+			TweenService:Create(
+				ServerBtnCorner,
+				TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+				{CornerRadius = UDim.new(0, 15)}
+			):Play()
+			ServerWhiteFrame:TweenSize(
+				UDim2.new(0, 11, 0, 46),
+				Enum.EasingDirection.Out,
+				Enum.EasingStyle.Quart,
+				.3,
+				true
+			)
+			ServerFrame.Visible = true
+			Server.Name = text .. "Server"
+			currentservertoggled = Server.Name
+			fs = true
+		end
+		local ChannelHold = {}
+		function ChannelHold:Channel(text)
+			local ChannelBtn = Instance.new("TextButton")
+			local ChannelBtnCorner = Instance.new("UICorner")
+			local ChannelBtnHashtag = Instance.new("TextLabel")
+			local ChannelBtnTitle = Instance.new("TextLabel")
+
+			ChannelBtn.Name = text .. "ChannelBtn"
+			ChannelBtn.Parent = ServerChannelHolder
+			ChannelBtn.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+			ChannelBtn.BorderSizePixel = 0
+			ChannelBtn.Position = UDim2.new(0.24118948, 0, 0.578947365, 0)
+			ChannelBtn.Size = UDim2.new(0, 160, 0, 30)
+			ChannelBtn.AutoButtonColor = false
+			ChannelBtn.Font = Enum.Font.SourceSans
+			ChannelBtn.Text = ""
+			ChannelBtn.TextColor3 = Color3.fromRGB(0, 0, 0)
+			ChannelBtn.TextSize = 14.000
+
+			ChannelBtnCorner.CornerRadius = UDim.new(0, 6)
+			ChannelBtnCorner.Name = "ChannelBtnCorner"
+			ChannelBtnCorner.Parent = ChannelBtn
+
+			ChannelBtnHashtag.Name = "ChannelBtnHashtag"
+			ChannelBtnHashtag.Parent = ChannelBtn
+			ChannelBtnHashtag.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+			ChannelBtnHashtag.BackgroundTransparency = 1.000
+			ChannelBtnHashtag.BorderSizePixel = 0
+			ChannelBtnHashtag.Position = UDim2.new(0.0279720314, 0, 0, 0)
+			ChannelBtnHashtag.Size = UDim2.new(0, 24, 0, 30)
+			ChannelBtnHashtag.Font = Enum.Font.Gotham
+			ChannelBtnHashtag.Text = "#"
+			ChannelBtnHashtag.TextColor3 = Color3.fromRGB(114, 118, 125)
+			ChannelBtnHashtag.TextSize = 21.000
+
+			ChannelBtnTitle.Name = "ChannelBtnTitle"
+			ChannelBtnTitle.Parent = ChannelBtn
+			ChannelBtnTitle.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+			ChannelBtnTitle.BackgroundTransparency = 1.000
+			ChannelBtnTitle.BorderSizePixel = 0
+			ChannelBtnTitle.Position = UDim2.new(0.173747092, 0, -0.166666672, 0)
+			ChannelBtnTitle.Size = UDim2.new(0, 95, 0, 39)
+			ChannelBtnTitle.Font = Enum.Font.Gotham
+			ChannelBtnTitle.Text = text
+			ChannelBtnTitle.TextColor3 = Color3.fromRGB(114, 118, 125)
+			ChannelBtnTitle.TextSize = 14.000
+			ChannelBtnTitle.TextXAlignment = Enum.TextXAlignment.Left
+			ServerChannelHolder.CanvasSize = UDim2.new(0, 0, 0, ServerChannelHolderLayout.AbsoluteContentSize.Y)
+
+			local ChannelHolder = Instance.new("ScrollingFrame")
+			local ChannelHolderLayout = Instance.new("UIListLayout")
+
+			ChannelHolder.Name = "ChannelHolder"
+			ChannelHolder.Parent = ChannelContentFrame
+			ChannelHolder.Active = true
+			ChannelHolder.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+			ChannelHolder.BackgroundTransparency = 1.000
+			ChannelHolder.BorderSizePixel = 0
+			ChannelHolder.Position = UDim2.new(0.0360843192, 0, 0.0241984241, 0)
+			ChannelHolder.Size = UDim2.new(0, 412, 0, 314)
+			ChannelHolder.ScrollBarThickness = 6
+			ChannelHolder.CanvasSize = UDim2.new(0,0,0,0)
+			ChannelHolder.ScrollBarImageTransparency = 0
+			ChannelHolder.ScrollBarImageColor3 = Color3.fromRGB(18, 19, 21)
+			ChannelHolder.Visible = false
+			ChannelHolder.ClipsDescendants = false
+
+			ChannelHolderLayout.Name = "ChannelHolderLayout"
+			ChannelHolderLayout.Parent = ChannelHolder
+			ChannelHolderLayout.SortOrder = Enum.SortOrder.LayoutOrder
+			ChannelHolderLayout.Padding = UDim.new(0, 6)
+			
+			ChannelBtn.MouseEnter:Connect(function()
+				if currentchanneltoggled ~= ChannelBtn.Name then
+				ChannelBtn.BackgroundColor3 = Color3.fromRGB(52,55,60)
+					ChannelBtnTitle.TextColor3 = Color3.fromRGB(220,221,222)
+				end
+			end)
+			
+			ChannelBtn.MouseLeave:Connect(function()
+				if currentchanneltoggled ~= ChannelBtn.Name then
+				ChannelBtn.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+				ChannelBtnTitle.TextColor3 = Color3.fromRGB(114, 118, 125)
+				end
+			end)
+			
+			ChannelBtn.MouseButton1Click:Connect(function()
+				for i, v in next, ChannelContentFrame:GetChildren() do
+					if v.Name == "ChannelHolder" then
+						v.Visible = false
+					end
+					ChannelHolder.Visible = true
+				end
+				for i, v in next, ServerChannelHolder:GetChildren() do
+					if v.ClassName == "TextButton" then
+						v.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+						v.ChannelBtnTitle.TextColor3 = Color3.fromRGB(114, 118, 125)
+					end
+					ServerFrame.Visible = true
+				end
+				ChannelTitle.Text = text
+				ChannelBtn.BackgroundColor3 = Color3.fromRGB(57,60,67)
+				ChannelBtnTitle.TextColor3 = Color3.fromRGB(255,255,255)
+				currentchanneltoggled = ChannelBtn.Name
+			end)
+			
+			if fc == false then
+				fc = true
+				ChannelTitle.Text = text
+				ChannelBtn.BackgroundColor3 = Color3.fromRGB(57,60,67)
+				ChannelBtnTitle.TextColor3 = Color3.fromRGB(255,255,255)
+				currentchanneltoggled = ChannelBtn.Name
+				ChannelHolder.Visible = true
+			end
+			local ChannelContent = {}
+			function ChannelContent:Button(text,callback)
+				local Button = Instance.new("TextButton")
+				local ButtonCorner = Instance.new("UICorner")
+
+				Button.Name = "Button"
+				Button.Parent = ChannelHolder
+				Button.BackgroundColor3 = Color3.fromRGB(114, 137, 228)
+				Button.Size = UDim2.new(0, 401, 0, 30)
+				Button.AutoButtonColor = false
+				Button.Font = Enum.Font.Gotham
+				Button.TextColor3 = Color3.fromRGB(255, 255, 255)
+				Button.TextSize = 14.000
+				Button.Text = text
+
+				ButtonCorner.CornerRadius = UDim.new(0, 4)
+				ButtonCorner.Name = "ButtonCorner"
+				ButtonCorner.Parent = Button
+				
+				Button.MouseEnter:Connect(function()
+					TweenService:Create(
+						Button,
+						TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+						{BackgroundColor3 = Color3.fromRGB(103,123,196)}
+					):Play()
+				end)
+				
+				Button.MouseButton1Click:Connect(function()
+					pcall(callback)
+					Button.TextSize = 0
+					TweenService:Create(
+						Button,
+						TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+						{TextSize = 14}
+					):Play()
+				end)
+				
+				Button.MouseLeave:Connect(function()
+					TweenService:Create(
+						Button,
+						TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+						{BackgroundColor3 = Color3.fromRGB(114, 137, 228)}
+					):Play()
+				end)
+				ChannelHolder.CanvasSize = UDim2.new(0,0,0,ChannelHolderLayout.AbsoluteContentSize.Y)
+			end
+			function ChannelContent:Toggle(text,default,callback)
+				local toggled = false
+				local Toggle = Instance.new("TextButton")
+				local ToggleTitle = Instance.new("TextLabel")
+				local ToggleFrame = Instance.new("Frame")
+				local ToggleFrameCorner = Instance.new("UICorner")
+				local ToggleFrameCircle = Instance.new("Frame")
+				local ToggleFrameCircleCorner = Instance.new("UICorner")
+				local Icon = Instance.new("ImageLabel")
+
+				Toggle.Name = "Toggle"
+				Toggle.Parent = ChannelHolder
+				Toggle.BackgroundColor3 = Color3.fromRGB(54, 57, 63)
+				Toggle.BorderSizePixel = 0
+				Toggle.Position = UDim2.new(0.261979163, 0, 0.190789461, 0)
+				Toggle.Size = UDim2.new(0, 401, 0, 30)
+				Toggle.AutoButtonColor = false
+				Toggle.Font = Enum.Font.Gotham
+				Toggle.Text = ""
+				Toggle.TextColor3 = Color3.fromRGB(255, 255, 255)
+				Toggle.TextSize = 14.000
+
+				ToggleTitle.Name = "ToggleTitle"
+				ToggleTitle.Parent = Toggle
+				ToggleTitle.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				ToggleTitle.BackgroundTransparency = 1.000
+				ToggleTitle.Position = UDim2.new(0, 5, 0, 0)
+				ToggleTitle.Size = UDim2.new(0, 200, 0, 30)
+				ToggleTitle.Font = Enum.Font.Gotham
+				ToggleTitle.Text = text
+				ToggleTitle.TextColor3 = Color3.fromRGB(127, 131, 137)
+				ToggleTitle.TextSize = 14.000
+				ToggleTitle.TextXAlignment = Enum.TextXAlignment.Left
+
+				ToggleFrame.Name = "ToggleFrame"
+				ToggleFrame.Parent = Toggle
+				ToggleFrame.BackgroundColor3 = Color3.fromRGB(114, 118, 125)
+				ToggleFrame.Position = UDim2.new(0.900481343, -5, 0.13300018, 0)
+				ToggleFrame.Size = UDim2.new(0, 40, 0, 21)
+
+				ToggleFrameCorner.CornerRadius = UDim.new(1, 8)
+				ToggleFrameCorner.Name = "ToggleFrameCorner"
+				ToggleFrameCorner.Parent = ToggleFrame
+
+				ToggleFrameCircle.Name = "ToggleFrameCircle"
+				ToggleFrameCircle.Parent = ToggleFrame
+				ToggleFrameCircle.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				ToggleFrameCircle.Position = UDim2.new(0.234999999, -5, 0.133000001, 0)
+				ToggleFrameCircle.Size = UDim2.new(0, 15, 0, 15)
+
+				ToggleFrameCircleCorner.CornerRadius = UDim.new(1, 0)
+				ToggleFrameCircleCorner.Name = "ToggleFrameCircleCorner"
+				ToggleFrameCircleCorner.Parent = ToggleFrameCircle
+
+				Icon.Name = "Icon"
+				Icon.Parent = ToggleFrameCircle
+				Icon.AnchorPoint = Vector2.new(0.5, 0.5)
+				Icon.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				Icon.BackgroundTransparency = 1.000
+				Icon.BorderColor3 = Color3.fromRGB(27, 42, 53)
+				Icon.Position = UDim2.new(0, 8, 0, 8)
+				Icon.Size = UDim2.new(0, 13, 0, 13)
+				Icon.Image = "http://www.roblox.com/asset/?id=6035047409"
+				Icon.ImageColor3 = Color3.fromRGB(114, 118, 125)
+				
+				Toggle.MouseButton1Click:Connect(function()
+					if toggled == false then
+						TweenService:Create(
+							Icon,
+							TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+							{ImageColor3 = Color3.fromRGB(67,181,129)}
+						):Play()
+						TweenService:Create(
+							ToggleFrame,
+							TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+							{BackgroundColor3 = Color3.fromRGB(67,181,129)}
+						):Play()
+						ToggleFrameCircle:TweenPosition(UDim2.new(0.655, -5, 0.133000001, 0), Enum.EasingDirection.Out, Enum.EasingStyle.Quart, .3, true)
+						TweenService:Create(
+							Icon,
+							TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+							{ImageTransparency = 1}
+						):Play()
+						Icon.Image = "http://www.roblox.com/asset/?id=6023426926"
+						wait(.1)
+						TweenService:Create(
+							Icon,
+							TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+							{ImageTransparency = 0}
+						):Play()
+					else
+						TweenService:Create(
+							Icon,
+							TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+							{ImageColor3 = Color3.fromRGB(114, 118, 125)}
+						):Play()
+						TweenService:Create(
+							ToggleFrame,
+							TweenInfo.new(.2, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+							{BackgroundColor3 = Color3.fromRGB(114, 118, 125)}
+						):Play()
+						ToggleFrameCircle:TweenPosition(UDim2.new(0.234999999, -5, 0.133000001, 0), Enum.EasingDirection.Out, Enum.EasingStyle.Quart, .3, true)
+						TweenService:Create(
+							Icon,
+							TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+							{ImageTransparency = 1}
+						):Play()
+						Icon.Image = "http://www.roblox.com/asset/?id=6035047409"
+						wait(.1)
+						TweenService:Create(
+							Icon,
+							TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+							{ImageTransparency = 0}
+						):Play()
+					end
+					toggled = not toggled
+					pcall(callback, toggled)
+				end)
+				
+				ChannelHolder.CanvasSize = UDim2.new(0,0,0,ChannelHolderLayout.AbsoluteContentSize.Y)
+			end
+			
+			function ChannelContent:Slider(text, min, max, start, callback)
+				local SliderFunc = {}
+				local dragging = false
+				local Slider = Instance.new("TextButton")
+				local SliderTitle = Instance.new("TextLabel")
+				local SliderFrame = Instance.new("Frame")
+				local SliderFrameCorner = Instance.new("UICorner")
+				local CurrentValueFrame = Instance.new("Frame")
+				local CurrentValueFrameCorner = Instance.new("UICorner")
+				local Zip = Instance.new("Frame")
+				local ZipCorner = Instance.new("UICorner")
+				local ValueBubble = Instance.new("Frame")
+				local ValueBubbleCorner = Instance.new("UICorner")
+				local SquareBubble = Instance.new("Frame")
+				local GlowBubble = Instance.new("ImageLabel")
+				local ValueLabel = Instance.new("TextLabel")
+
+
+				Slider.Name = "Slider"
+				Slider.Parent = ChannelHolder
+				Slider.BackgroundColor3 = Color3.fromRGB(54, 57, 63)
+				Slider.BorderSizePixel = 0
+				Slider.Position = UDim2.new(0, 0, 0.216560602, 0)
+				Slider.Size = UDim2.new(0, 401, 0, 38)
+				Slider.AutoButtonColor = false
+				Slider.Font = Enum.Font.Gotham
+				Slider.Text = ""
+				Slider.TextColor3 = Color3.fromRGB(255, 255, 255)
+				Slider.TextSize = 14.000
+
+				SliderTitle.Name = "SliderTitle"
+				SliderTitle.Parent = Slider
+				SliderTitle.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				SliderTitle.BackgroundTransparency = 1.000
+				SliderTitle.Position = UDim2.new(0, 5, 0, -4)
+				SliderTitle.Size = UDim2.new(0, 200, 0, 27)
+				SliderTitle.Font = Enum.Font.Gotham
+				SliderTitle.Text = text
+				SliderTitle.TextColor3 = Color3.fromRGB(127, 131, 137)
+				SliderTitle.TextSize = 14.000
+				SliderTitle.TextXAlignment = Enum.TextXAlignment.Left
+
+				SliderFrame.Name = "SliderFrame"
+				SliderFrame.Parent = Slider
+				SliderFrame.AnchorPoint = Vector2.new(0.5, 0.5)
+				SliderFrame.BackgroundColor3 = Color3.fromRGB(79, 84, 92)
+				SliderFrame.Position = UDim2.new(0.497999996, 0, 0.757000029, 0)
+				SliderFrame.Size = UDim2.new(0, 385, 0, 8)
+
+				SliderFrameCorner.Name = "SliderFrameCorner"
+				SliderFrameCorner.Parent = SliderFrame
+
+				CurrentValueFrame.Name = "CurrentValueFrame"
+				CurrentValueFrame.Parent = SliderFrame
+				CurrentValueFrame.BackgroundColor3 = Color3.fromRGB(114, 137, 218)
+				CurrentValueFrame.Size = UDim2.new((start or 0) / max, 0, 0, 8)
+
+				CurrentValueFrameCorner.Name = "CurrentValueFrameCorner"
+				CurrentValueFrameCorner.Parent = CurrentValueFrame
+
+				Zip.Name = "Zip"
+				Zip.Parent = SliderFrame
+				Zip.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				Zip.Position = UDim2.new((start or 0)/max, -6,-0.644999981, 0)
+				Zip.Size = UDim2.new(0, 10, 0, 18)
+				ZipCorner.CornerRadius = UDim.new(0, 3)
+				ZipCorner.Name = "ZipCorner"
+				ZipCorner.Parent = Zip
+
+				ValueBubble.Name = "ValueBubble"
+				ValueBubble.Parent = Zip
+				ValueBubble.AnchorPoint = Vector2.new(0.5, 0.5)
+				ValueBubble.BackgroundColor3 = Color3.fromRGB(38, 38, 38)
+				ValueBubble.Position = UDim2.new(0.5, 0, -1.00800002, 0)
+				ValueBubble.Size = UDim2.new(0, 36, 0, 21)
+				ValueBubble.Visible = false
+				
+	
+				Zip.MouseEnter:Connect(function()
+					if dragging == false then
+						ValueBubble.Visible = true
+					end
+				end)
+				
+				Zip.MouseLeave:Connect(function()
+					if dragging == false then
+						ValueBubble.Visible = false
+					end
+				end)
+	
+
+				ValueBubbleCorner.CornerRadius = UDim.new(0, 3)
+				ValueBubbleCorner.Name = "ValueBubbleCorner"
+				ValueBubbleCorner.Parent = ValueBubble
+
+				SquareBubble.Name = "SquareBubble"
+				SquareBubble.Parent = ValueBubble
+				SquareBubble.AnchorPoint = Vector2.new(0.5, 0.5)
+				SquareBubble.BackgroundColor3 = Color3.fromRGB(38, 38, 38)
+				SquareBubble.BorderSizePixel = 0
+				SquareBubble.Position = UDim2.new(0.493000001, 0, 0.637999971, 0)
+				SquareBubble.Rotation = 45.000
+				SquareBubble.Size = UDim2.new(0, 19, 0, 19)
+
+				GlowBubble.Name = "GlowBubble"
+				GlowBubble.Parent = ValueBubble
+				GlowBubble.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				GlowBubble.BackgroundTransparency = 1.000
+				GlowBubble.BorderSizePixel = 0
+				GlowBubble.Position = UDim2.new(0, -15, 0, -15)
+				GlowBubble.Size = UDim2.new(1, 30, 1, 30)
+				GlowBubble.ZIndex = 0
+				GlowBubble.Image = "rbxassetid://4996891970"
+				GlowBubble.ImageColor3 = Color3.fromRGB(15, 15, 15)
+				GlowBubble.ScaleType = Enum.ScaleType.Slice
+				GlowBubble.SliceCenter = Rect.new(20, 20, 280, 280)
+
+				ValueLabel.Name = "ValueLabel"
+				ValueLabel.Parent = ValueBubble
+				ValueLabel.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				ValueLabel.BackgroundTransparency = 1.000
+				ValueLabel.Size = UDim2.new(0, 36, 0, 21)
+				ValueLabel.Font = Enum.Font.Gotham
+				ValueLabel.Text = tostring(start and math.floor((start / max) * (max - min) + min) or 0)
+				ValueLabel.TextColor3 = Color3.fromRGB(255, 255, 255)
+				ValueLabel.TextSize = 10.000
+				local function move(input)
+					local pos =
+						UDim2.new(
+							math.clamp((input.Position.X - SliderFrame.AbsolutePosition.X) / SliderFrame.AbsoluteSize.X, 0, 1),
+							-6,
+							-0.644999981,
+							0
+						)
+					local pos1 =
+						UDim2.new(
+							math.clamp((input.Position.X - SliderFrame.AbsolutePosition.X) / SliderFrame.AbsoluteSize.X, 0, 1),
+							0,
+							0,
+							8
+						)
+					CurrentValueFrame.Size = pos1
+					Zip.Position = pos
+					local value = math.floor(((pos.X.Scale * max) / max) * (max - min) + min)
+					ValueLabel.Text = tostring(value)
+					pcall(callback, value)
+				end
+				Zip.InputBegan:Connect(
+					function(input)
+						if input.UserInputType == Enum.UserInputType.MouseButton1 then
+							dragging = true
+							ValueBubble.Visible = true
+						end
+					end
+				)
+				Zip.InputEnded:Connect(
+					function(input)
+						if input.UserInputType == Enum.UserInputType.MouseButton1 then
+							dragging = false
+							ValueBubble.Visible = false
+						end
+					end
+				)
+				game:GetService("UserInputService").InputChanged:Connect(
+				function(input)
+					if dragging and input.UserInputType == Enum.UserInputType.MouseMovement then
+						move(input)
+					end
+				end
+				)
+				
+				function SliderFunc:Change(tochange)
+					CurrentValueFrame.Size = UDim2.new((tochange or 0) / max, 0, 0, 8)
+					Zip.Position = UDim2.new((tochange or 0)/max, -6,-0.644999981, 0)
+					ValueLabel.Text = tostring(tochange and math.floor((tochange / max) * (max - min) + min) or 0)
+					pcall(callback, tochange)
+				end
+				
+				ChannelHolder.CanvasSize = UDim2.new(0,0,0,ChannelHolderLayout.AbsoluteContentSize.Y)
+				return SliderFunc
+			end
+			function ChannelContent:Seperator()
+				local Seperator1 = Instance.new("Frame")
+				local Seperator2 = Instance.new("Frame")
+
+				Seperator1.Name = "Seperator1"
+				Seperator1.Parent = ChannelHolder
+				Seperator1.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				Seperator1.BackgroundTransparency = 1.000
+				Seperator1.Position = UDim2.new(0, 0, 0.350318581, 0)
+				Seperator1.Size = UDim2.new(0, 100, 0, 8)
+
+				Seperator2.Name = "Seperator2"
+				Seperator2.Parent = Seperator1
+				Seperator2.BackgroundColor3 = Color3.fromRGB(66, 69, 74)
+				Seperator2.BorderSizePixel = 0
+				Seperator2.Position = UDim2.new(0, 0, 0, 4)
+				Seperator2.Size = UDim2.new(0, 401, 0, 1)
+				ChannelHolder.CanvasSize = UDim2.new(0,0,0,ChannelHolderLayout.AbsoluteContentSize.Y)
+			end
+			function ChannelContent:Dropdown(text, list, callback)
+				local DropFunc = {}
+				local itemcount = 0
+				local framesize = 0
+				local DropTog = false
+				local Dropdown = Instance.new("Frame")
+				local DropdownTitle = Instance.new("TextLabel")
+				local DropdownFrameOutline = Instance.new("Frame")
+				local DropdownFrameOutlineCorner = Instance.new("UICorner")
+				local DropdownFrame = Instance.new("Frame")
+				local DropdownFrameCorner = Instance.new("UICorner")
+				local CurrentSelectedText = Instance.new("TextLabel")
+				local ArrowImg = Instance.new("ImageLabel")
+				local DropdownFrameBtn = Instance.new("TextButton")
+
+				Dropdown.Name = "Dropdown"
+				Dropdown.Parent = ChannelHolder
+				Dropdown.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				Dropdown.BackgroundTransparency = 1.000
+				Dropdown.Position = UDim2.new(0.0796874985, 0, 0.445175439, 0)
+				Dropdown.Size = UDim2.new(0, 403, 0, 73)
+
+				DropdownTitle.Name = "DropdownTitle"
+				DropdownTitle.Parent = Dropdown
+				DropdownTitle.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				DropdownTitle.BackgroundTransparency = 1.000
+				DropdownTitle.Position = UDim2.new(0, 5, 0, 0)
+				DropdownTitle.Size = UDim2.new(0, 200, 0, 29)
+				DropdownTitle.Font = Enum.Font.Gotham
+				DropdownTitle.Text = text
+				DropdownTitle.TextColor3 = Color3.fromRGB(127, 131, 137)
+				DropdownTitle.TextSize = 14.000
+				DropdownTitle.TextXAlignment = Enum.TextXAlignment.Left
+
+				DropdownFrameOutline.Name = "DropdownFrameOutline"
+				DropdownFrameOutline.Parent = DropdownTitle
+				DropdownFrameOutline.AnchorPoint = Vector2.new(0.5, 0.5)
+				DropdownFrameOutline.BackgroundColor3 = Color3.fromRGB(37, 40, 43)
+				DropdownFrameOutline.Position = UDim2.new(0.988442957, 0, 1.6197437, 0)
+				DropdownFrameOutline.Size = UDim2.new(0, 396, 0, 36)
+
+				DropdownFrameOutlineCorner.CornerRadius = UDim.new(0, 3)
+				DropdownFrameOutlineCorner.Name = "DropdownFrameOutlineCorner"
+				DropdownFrameOutlineCorner.Parent = DropdownFrameOutline
+
+				DropdownFrame.Name = "DropdownFrame"
+				DropdownFrame.Parent = DropdownTitle
+				DropdownFrame.BackgroundColor3 = Color3.fromRGB(48, 51, 57)
+				DropdownFrame.ClipsDescendants = true
+				DropdownFrame.Position = UDim2.new(0.00999999978, 0, 1.06638527, 0)
+				DropdownFrame.Selectable = true
+				DropdownFrame.Size = UDim2.new(0, 392, 0, 32)
+
+				DropdownFrameCorner.CornerRadius = UDim.new(0, 3)
+				DropdownFrameCorner.Name = "DropdownFrameCorner"
+				DropdownFrameCorner.Parent = DropdownFrame
+
+				CurrentSelectedText.Name = "CurrentSelectedText"
+				CurrentSelectedText.Parent = DropdownFrame
+				CurrentSelectedText.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				CurrentSelectedText.BackgroundTransparency = 1.000
+				CurrentSelectedText.Position = UDim2.new(0.0178571437, 0, 0, 0)
+				CurrentSelectedText.Size = UDim2.new(0, 193, 0, 32)
+				CurrentSelectedText.Font = Enum.Font.Gotham
+				CurrentSelectedText.Text = "..."
+				CurrentSelectedText.TextColor3 = Color3.fromRGB(212, 212, 212)
+				CurrentSelectedText.TextSize = 14.000
+				CurrentSelectedText.TextXAlignment = Enum.TextXAlignment.Left
+
+				ArrowImg.Name = "ArrowImg"
+				ArrowImg.Parent = CurrentSelectedText
+				ArrowImg.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				ArrowImg.BackgroundTransparency = 1.000
+				ArrowImg.Position = UDim2.new(1.84974098, 0, 0.167428851, 0)
+				ArrowImg.Size = UDim2.new(0, 22, 0, 22)
+				ArrowImg.Image = "http://www.roblox.com/asset/?id=6034818372"
+				ArrowImg.ImageColor3 = Color3.fromRGB(212, 212, 212)
+
+				DropdownFrameBtn.Name = "DropdownFrameBtn"
+				DropdownFrameBtn.Parent = DropdownFrame
+				DropdownFrameBtn.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				DropdownFrameBtn.BackgroundTransparency = 1.000
+				DropdownFrameBtn.Size = UDim2.new(0, 392, 0, 32)
+				DropdownFrameBtn.Font = Enum.Font.SourceSans
+				DropdownFrameBtn.Text = ""
+				DropdownFrameBtn.TextColor3 = Color3.fromRGB(0, 0, 0)
+				DropdownFrameBtn.TextSize = 14.000
+
+				local DropdownFrameMainOutline = Instance.new("Frame")
+				local DropdownFrameMainOutlineCorner = Instance.new("UICorner")
+				local DropdownFrameMain = Instance.new("Frame")
+				local DropdownFrameMainCorner = Instance.new("UICorner")
+				local DropItemHolderLabel = Instance.new("TextLabel")
+				local DropItemHolder = Instance.new("ScrollingFrame")
+				local DropItemHolderLayout = Instance.new("UIListLayout")
+
+				DropdownFrameMainOutline.Name = "DropdownFrameMainOutline"
+				DropdownFrameMainOutline.Parent = DropdownTitle
+				DropdownFrameMainOutline.BackgroundColor3 = Color3.fromRGB(37, 40, 43)
+				DropdownFrameMainOutline.Position = UDim2.new(-0.00155700743, 0, 2.16983342, 0)
+				DropdownFrameMainOutline.Size = UDim2.new(0, 396, 0, 81)
+				DropdownFrameMainOutline.Visible = false
+
+				DropdownFrameMainOutlineCorner.CornerRadius = UDim.new(0, 3)
+				DropdownFrameMainOutlineCorner.Name = "DropdownFrameMainOutlineCorner"
+				DropdownFrameMainOutlineCorner.Parent = DropdownFrameMainOutline
+
+				DropdownFrameMain.Name = "DropdownFrameMain"
+				DropdownFrameMain.Parent = DropdownTitle
+				DropdownFrameMain.BackgroundColor3 = Color3.fromRGB(47, 49, 54)
+				DropdownFrameMain.ClipsDescendants = true
+				DropdownFrameMain.Position = UDim2.new(0.00999999978, 0, 2.2568965, 0)
+				DropdownFrameMain.Selectable = true
+				DropdownFrameMain.Size = UDim2.new(0, 392, 0, 77)
+				DropdownFrameMain.Visible = false
+
+				DropdownFrameMainCorner.CornerRadius = UDim.new(0, 3)
+				DropdownFrameMainCorner.Name = "DropdownFrameMainCorner"
+				DropdownFrameMainCorner.Parent = DropdownFrameMain
+
+				DropItemHolderLabel.Name = "ItemHolderLabel"
+				DropItemHolderLabel.Parent = DropdownFrameMain
+				DropItemHolderLabel.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				DropItemHolderLabel.BackgroundTransparency = 1.000
+				DropItemHolderLabel.Position = UDim2.new(0.0178571437, 0, 0, 0)
+				DropItemHolderLabel.Size = UDim2.new(0, 193, 0, 13)
+				DropItemHolderLabel.Font = Enum.Font.Gotham
+				DropItemHolderLabel.Text = ""
+				DropItemHolderLabel.TextColor3 = Color3.fromRGB(212, 212, 212)
+				DropItemHolderLabel.TextSize = 14.000
+				DropItemHolderLabel.TextXAlignment = Enum.TextXAlignment.Left
+
+				DropItemHolder.Name = "ItemHolder"
+				DropItemHolder.Parent = DropItemHolderLabel
+				DropItemHolder.Active = true
+				DropItemHolder.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				DropItemHolder.BackgroundTransparency = 1.000
+				DropItemHolder.Position = UDim2.new(0, 0, 0.215384638, 0)
+				DropItemHolder.Size = UDim2.new(0, 385, 0, 0)
+				DropItemHolder.CanvasSize = UDim2.new(0, 0, 0, 0)
+				DropItemHolder.ScrollBarThickness = 6
+				DropItemHolder.BorderSizePixel = 0
+				DropItemHolder.ScrollBarImageColor3 = Color3.fromRGB(28, 29, 32)
+
+				DropItemHolderLayout.Name = "ItemHolderLayout"
+				DropItemHolderLayout.Parent = DropItemHolder
+				DropItemHolderLayout.SortOrder = Enum.SortOrder.LayoutOrder
+				DropItemHolderLayout.Padding = UDim.new(0, 0)
+				
+				DropdownFrameBtn.MouseButton1Click:Connect(function()
+					if DropTog == false then
+						DropdownFrameMain.Visible = true
+						DropdownFrameMainOutline.Visible = true
+						Dropdown.Size = UDim2.new(0, 403, 0, 73 + DropdownFrameMainOutline.AbsoluteSize.Y)
+						ChannelHolder.CanvasSize = UDim2.new(0,0,0,ChannelHolderLayout.AbsoluteContentSize.Y)
+						
+					else
+						Dropdown.Size = UDim2.new(0, 403, 0, 73)
+						DropdownFrameMain.Visible = false
+						DropdownFrameMainOutline.Visible = false
+						ChannelHolder.CanvasSize = UDim2.new(0,0,0,ChannelHolderLayout.AbsoluteContentSize.Y)
+					end
+					DropTog = not DropTog
+				end)
+				
+				
+				for i,v in next, list do
+					itemcount = itemcount + 1
+					
+					if itemcount == 1 then
+						framesize = 29
+					elseif itemcount == 2 then
+						framesize = 58
+					elseif itemcount >= 3 then
+						framesize = 87
+					end
+					
+					local Item = Instance.new("TextButton")
+					local ItemCorner = Instance.new("UICorner")
+					local ItemText = Instance.new("TextLabel")
+
+					Item.Name = "Item"
+					Item.Parent = DropItemHolder
+					Item.BackgroundColor3 = Color3.fromRGB(42, 44, 48)
+					Item.Size = UDim2.new(0, 379, 0, 29)
+					Item.AutoButtonColor = false
+					Item.Font = Enum.Font.SourceSans
+					Item.Text = ""
+					Item.TextColor3 = Color3.fromRGB(0, 0, 0)
+					Item.TextSize = 14.000
+					Item.BackgroundTransparency = 1
+
+					ItemCorner.CornerRadius = UDim.new(0, 4)
+					ItemCorner.Name = "ItemCorner"
+					ItemCorner.Parent = Item
+
+					ItemText.Name = "ItemText"
+					ItemText.Parent = Item
+					ItemText.BackgroundColor3 = Color3.fromRGB(42, 44, 48)
+					ItemText.BackgroundTransparency = 1.000
+					ItemText.Position = UDim2.new(0.0211081803, 0, 0, 0)
+					ItemText.Size = UDim2.new(0, 192, 0, 29)
+					ItemText.Font = Enum.Font.Gotham
+					ItemText.TextColor3 = Color3.fromRGB(212, 212, 212)
+					ItemText.TextSize = 14.000
+					ItemText.TextXAlignment = Enum.TextXAlignment.Left
+					ItemText.Text = v
+					
+					Item.MouseEnter:Connect(function()
+						ItemText.TextColor3 = Color3.fromRGB(255,255,255)
+						Item.BackgroundTransparency = 0
+					end)
+					
+					Item.MouseLeave:Connect(function()
+						ItemText.TextColor3 = Color3.fromRGB(212, 212, 212)
+						Item.BackgroundTransparency = 1
+					end)
+					
+					Item.MouseButton1Click:Connect(function()
+						CurrentSelectedText.Text = v
+						pcall(callback, v)
+						Dropdown.Size = UDim2.new(0, 403, 0, 73)
+						DropdownFrameMain.Visible = false
+						DropdownFrameMainOutline.Visible = false
+						ChannelHolder.CanvasSize = UDim2.new(0,0,0,ChannelHolderLayout.AbsoluteContentSize.Y)
+						DropTog = not DropTog
+					end)
+					
+					DropItemHolder.CanvasSize = UDim2.new(0,0,0,DropItemHolderLayout.AbsoluteContentSize.Y)
+					
+					DropItemHolder.Size = UDim2.new(0, 385, 0, framesize)
+					DropdownFrameMain.Size = UDim2.new(0, 392, 0, framesize + 6)
+					DropdownFrameMainOutline.Size = UDim2.new(0, 396, 0, framesize + 10)
+				end
+				
+				ChannelHolder.CanvasSize = UDim2.new(0,0,0,ChannelHolderLayout.AbsoluteContentSize.Y)
+				
+				function DropFunc:Clear()
+					for i,v in next, DropItemHolder:GetChildren() do
+						if v.Name == "Item" then
+							v:Destroy()
+						end
+                    end						
+					
+					CurrentSelectedText.Text = "..."
+					
+					itemcount = 0
+					framesize = 0
+					DropItemHolder.Size = UDim2.new(0, 385, 0, 0)
+					DropdownFrameMain.Size = UDim2.new(0, 392, 0, 0)
+					DropdownFrameMainOutline.Size = UDim2.new(0, 396, 0, 0)
+					Dropdown.Size = UDim2.new(0, 403, 0, 73)
+					DropdownFrameMain.Visible = false
+					DropdownFrameMainOutline.Visible = false
+					ChannelHolder.CanvasSize = UDim2.new(0,0,0,ChannelHolderLayout.AbsoluteContentSize.Y)
+				end
+				
+				function DropFunc:Add(textadd)
+					itemcount = itemcount + 1
+
+					if itemcount == 1 then
+						framesize = 29
+					elseif itemcount == 2 then
+						framesize = 58
+					elseif itemcount >= 3 then
+						framesize = 87
+					end
+
+					local Item = Instance.new("TextButton")
+					local ItemCorner = Instance.new("UICorner")
+					local ItemText = Instance.new("TextLabel")
+
+					Item.Name = "Item"
+					Item.Parent = DropItemHolder
+					Item.BackgroundColor3 = Color3.fromRGB(42, 44, 48)
+					Item.Size = UDim2.new(0, 379, 0, 29)
+					Item.AutoButtonColor = false
+					Item.Font = Enum.Font.SourceSans
+					Item.Text = ""
+					Item.TextColor3 = Color3.fromRGB(0, 0, 0)
+					Item.TextSize = 14.000
+					Item.BackgroundTransparency = 1
+
+					ItemCorner.CornerRadius = UDim.new(0, 4)
+					ItemCorner.Name = "ItemCorner"
+					ItemCorner.Parent = Item
+
+					ItemText.Name = "ItemText"
+					ItemText.Parent = Item
+					ItemText.BackgroundColor3 = Color3.fromRGB(42, 44, 48)
+					ItemText.BackgroundTransparency = 1.000
+					ItemText.Position = UDim2.new(0.0211081803, 0, 0, 0)
+					ItemText.Size = UDim2.new(0, 192, 0, 29)
+					ItemText.Font = Enum.Font.Gotham
+					ItemText.TextColor3 = Color3.fromRGB(212, 212, 212)
+					ItemText.TextSize = 14.000
+					ItemText.TextXAlignment = Enum.TextXAlignment.Left
+					ItemText.Text = textadd
+
+					Item.MouseEnter:Connect(function()
+						ItemText.TextColor3 = Color3.fromRGB(255,255,255)
+						Item.BackgroundTransparency = 0
+					end)
+
+					Item.MouseLeave:Connect(function()
+						ItemText.TextColor3 = Color3.fromRGB(212, 212, 212)
+						Item.BackgroundTransparency = 1
+					end)
+
+					Item.MouseButton1Click:Connect(function()
+						CurrentSelectedText.Text = textadd
+						pcall(callback, textadd)
+						Dropdown.Size = UDim2.new(0, 403, 0, 73)
+						DropdownFrameMain.Visible = false
+						DropdownFrameMainOutline.Visible = false
+						ChannelHolder.CanvasSize = UDim2.new(0,0,0,ChannelHolderLayout.AbsoluteContentSize.Y)
+						DropTog = not DropTog
+					end)
+
+					DropItemHolder.CanvasSize = UDim2.new(0,0,0,DropItemHolderLayout.AbsoluteContentSize.Y)
+
+					DropItemHolder.Size = UDim2.new(0, 385, 0, framesize)
+					DropdownFrameMain.Size = UDim2.new(0, 392, 0, framesize + 6)
+					DropdownFrameMainOutline.Size = UDim2.new(0, 396, 0, framesize + 10)
+				end
+				return DropFunc
+			end
+			function ChannelContent:Colorpicker(text, preset, callback)
+				local OldToggleColor = Color3.fromRGB(0, 0, 0)
+				local OldColor = Color3.fromRGB(0, 0, 0)
+				local OldColorSelectionPosition = nil
+				local OldHueSelectionPosition = nil
+				local ColorH, ColorS, ColorV = 1, 1, 1
+				local RainbowColorPicker = false
+				local ColorPickerInput = nil
+				local ColorInput = nil
+				local HueInput = nil
+				
+				local Colorpicker = Instance.new("Frame")
+				local ColorpickerTitle = Instance.new("TextLabel")
+				local ColorpickerFrameOutline = Instance.new("Frame")
+				local ColorpickerFrameOutlineCorner = Instance.new("UICorner")
+				local ColorpickerFrame = Instance.new("Frame")
+				local ColorpickerFrameCorner = Instance.new("UICorner")
+				local Color = Instance.new("ImageLabel")
+				local ColorCorner = Instance.new("UICorner")
+				local ColorSelection = Instance.new("ImageLabel")
+				local Hue = Instance.new("ImageLabel")
+				local HueCorner = Instance.new("UICorner")
+				local HueGradient = Instance.new("UIGradient")
+				local HueSelection = Instance.new("ImageLabel")
+				local PresetClr = Instance.new("Frame")
+				local PresetClrCorner = Instance.new("UICorner")
+
+				Colorpicker.Name = "Colorpicker"
+				Colorpicker.Parent = ChannelHolder
+				Colorpicker.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				Colorpicker.BackgroundTransparency = 1.000
+				Colorpicker.Position = UDim2.new(0.0895741582, 0, 0.474232763, 0)
+				Colorpicker.Size = UDim2.new(0, 403, 0, 175)
+
+				ColorpickerTitle.Name = "ColorpickerTitle"
+				ColorpickerTitle.Parent = Colorpicker
+				ColorpickerTitle.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				ColorpickerTitle.BackgroundTransparency = 1.000
+				ColorpickerTitle.Position = UDim2.new(0, 5, 0, 0)
+				ColorpickerTitle.Size = UDim2.new(0, 200, 0, 29)
+				ColorpickerTitle.Font = Enum.Font.Gotham
+				ColorpickerTitle.Text = "Colorpicker"
+				ColorpickerTitle.TextColor3 = Color3.fromRGB(127, 131, 137)
+				ColorpickerTitle.TextSize = 14.000
+				ColorpickerTitle.TextXAlignment = Enum.TextXAlignment.Left
+
+				ColorpickerFrameOutline.Name = "ColorpickerFrameOutline"
+				ColorpickerFrameOutline.Parent = ColorpickerTitle
+				ColorpickerFrameOutline.BackgroundColor3 = Color3.fromRGB(37, 40, 43)
+				ColorpickerFrameOutline.Position = UDim2.new(-0.00100000005, 0, 0.991999984, 0)
+				ColorpickerFrameOutline.Size = UDim2.new(0, 238, 0, 139)
+
+				ColorpickerFrameOutlineCorner.CornerRadius = UDim.new(0, 3)
+				ColorpickerFrameOutlineCorner.Name = "ColorpickerFrameOutlineCorner"
+				ColorpickerFrameOutlineCorner.Parent = ColorpickerFrameOutline
+
+				ColorpickerFrame.Name = "ColorpickerFrame"
+				ColorpickerFrame.Parent = ColorpickerTitle
+				ColorpickerFrame.BackgroundColor3 = Color3.fromRGB(54, 57, 63)
+				ColorpickerFrame.ClipsDescendants = true
+				ColorpickerFrame.Position = UDim2.new(0.00999999978, 0, 1.06638515, 0)
+				ColorpickerFrame.Selectable = true
+				ColorpickerFrame.Size = UDim2.new(0, 234, 0, 135)
+
+				ColorpickerFrameCorner.CornerRadius = UDim.new(0, 3)
+				ColorpickerFrameCorner.Name = "ColorpickerFrameCorner"
+				ColorpickerFrameCorner.Parent = ColorpickerFrame
+
+				Color.Name = "Color"
+				Color.Parent = ColorpickerFrame
+				Color.BackgroundColor3 = Color3.fromRGB(255, 0, 4)
+				Color.Position = UDim2.new(0, 10, 0, 10)
+				Color.Size = UDim2.new(0, 154, 0, 118)
+				Color.ZIndex = 10
+				Color.Image = "rbxassetid://4155801252"
+
+				ColorCorner.CornerRadius = UDim.new(0, 3)
+				ColorCorner.Name = "ColorCorner"
+				ColorCorner.Parent = Color
+
+				ColorSelection.Name = "ColorSelection"
+				ColorSelection.Parent = Color
+				ColorSelection.AnchorPoint = Vector2.new(0.5, 0.5)
+				ColorSelection.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				ColorSelection.BackgroundTransparency = 1.000
+				ColorSelection.Position = UDim2.new(preset and select(3, Color3.toHSV(preset)))
+				ColorSelection.Size = UDim2.new(0, 18, 0, 18)
+				ColorSelection.Image = "http://www.roblox.com/asset/?id=4805639000"
+				ColorSelection.ScaleType = Enum.ScaleType.Fit
+
+				Hue.Name = "Hue"
+				Hue.Parent = ColorpickerFrame
+				Hue.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				Hue.Position = UDim2.new(0, 171, 0, 10)
+				Hue.Size = UDim2.new(0, 18, 0, 118)
+
+				HueCorner.CornerRadius = UDim.new(0, 3)
+				HueCorner.Name = "HueCorner"
+				HueCorner.Parent = Hue
+
+				HueGradient.Color = ColorSequence.new {
+					ColorSequenceKeypoint.new(0.00, Color3.fromRGB(255, 0, 4)),
+					ColorSequenceKeypoint.new(0.20, Color3.fromRGB(234, 255, 0)),
+					ColorSequenceKeypoint.new(0.40, Color3.fromRGB(21, 255, 0)),
+					ColorSequenceKeypoint.new(0.60, Color3.fromRGB(0, 255, 255)),
+					ColorSequenceKeypoint.new(0.80, Color3.fromRGB(0, 17, 255)),
+					ColorSequenceKeypoint.new(0.90, Color3.fromRGB(255, 0, 251)),
+					ColorSequenceKeypoint.new(1.00, Color3.fromRGB(255, 0, 4))
+				}				
+				HueGradient.Rotation = 270
+				HueGradient.Name = "HueGradient"
+				HueGradient.Parent = Hue
+
+				HueSelection.Name = "HueSelection"
+				HueSelection.Parent = Hue
+				HueSelection.AnchorPoint = Vector2.new(0.5, 0.5)
+				HueSelection.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				HueSelection.BackgroundTransparency = 1.000
+				HueSelection.Position = UDim2.new(0.48, 0, 1 - select(1, Color3.toHSV(preset)))
+				HueSelection.Size = UDim2.new(0, 18, 0, 18)
+				HueSelection.Image = "http://www.roblox.com/asset/?id=4805639000"
+
+				PresetClr.Name = "PresetClr"
+				PresetClr.Parent = ColorpickerFrame
+				PresetClr.BackgroundColor3 = preset
+				PresetClr.Position = UDim2.new(0.846153855, 0, 0.0740740746, 0)
+				PresetClr.Size = UDim2.new(0, 25, 0, 25)
+
+				PresetClrCorner.CornerRadius = UDim.new(0, 3)
+				PresetClrCorner.Name = "PresetClrCorner"
+				PresetClrCorner.Parent = PresetClr
+				
+				local function UpdateColorPicker(nope)
+					PresetClr.BackgroundColor3 = Color3.fromHSV(ColorH, ColorS, ColorV)
+					Color.BackgroundColor3 = Color3.fromHSV(ColorH, 1, 1)
+
+					pcall(callback, PresetClr.BackgroundColor3)
+				end
+
+				ColorH =
+					1 -
+					(math.clamp(HueSelection.AbsolutePosition.Y - Hue.AbsolutePosition.Y, 0, Hue.AbsoluteSize.Y) /
+						Hue.AbsoluteSize.Y)
+				ColorS =
+					(math.clamp(ColorSelection.AbsolutePosition.X - Color.AbsolutePosition.X, 0, Color.AbsoluteSize.X) /
+						Color.AbsoluteSize.X)
+				ColorV =
+					1 -
+					(math.clamp(ColorSelection.AbsolutePosition.Y - Color.AbsolutePosition.Y, 0, Color.AbsoluteSize.Y) /
+						Color.AbsoluteSize.Y)
+
+				PresetClr.BackgroundColor3 = preset
+				Color.BackgroundColor3 = preset
+				pcall(callback, PresetClr.BackgroundColor3)
+
+				Color.InputBegan:Connect(
+					function(input)
+						if input.UserInputType == Enum.UserInputType.MouseButton1 then
+
+							if ColorInput then
+								ColorInput:Disconnect()
+							end
+
+							ColorInput =
+								RunService.RenderStepped:Connect(
+									function()
+									local ColorX =
+										(math.clamp(Mouse.X - Color.AbsolutePosition.X, 0, Color.AbsoluteSize.X) /
+											Color.AbsoluteSize.X)
+									local ColorY =
+										(math.clamp(Mouse.Y - Color.AbsolutePosition.Y, 0, Color.AbsoluteSize.Y) /
+											Color.AbsoluteSize.Y)
+
+									ColorSelection.Position = UDim2.new(ColorX, 0, ColorY, 0)
+									ColorS = ColorX
+									ColorV = 1 - ColorY
+
+									UpdateColorPicker(true)
+								end
+								)
+						end
+					end
+				)
+
+				Color.InputEnded:Connect(
+					function(input)
+						if input.UserInputType == Enum.UserInputType.MouseButton1 then
+							if ColorInput then
+								ColorInput:Disconnect()
+							end
+						end
+					end
+				)
+
+				Hue.InputBegan:Connect(
+					function(input)
+						if input.UserInputType == Enum.UserInputType.MouseButton1 then
+
+
+							if HueInput then
+								HueInput:Disconnect()
+							end
+
+							HueInput =
+								RunService.RenderStepped:Connect(
+									function()
+									local HueY =
+										(math.clamp(Mouse.Y - Hue.AbsolutePosition.Y, 0, Hue.AbsoluteSize.Y) /
+											Hue.AbsoluteSize.Y)
+
+									HueSelection.Position = UDim2.new(0.48, 0, HueY, 0)
+									ColorH = 1 - HueY
+
+									UpdateColorPicker(true)
+								end
+								)
+						end
+					end
+				)
+
+				Hue.InputEnded:Connect(
+					function(input)
+						if input.UserInputType == Enum.UserInputType.MouseButton1 then
+							if HueInput then
+								HueInput:Disconnect()
+							end
+						end
+					end
+				)
+				
+				ChannelHolder.CanvasSize = UDim2.new(0,0,0,ChannelHolderLayout.AbsoluteContentSize.Y)
+			end
+			
+			function ChannelContent:Textbox(text, placetext, disapper, callback)
+				local Textbox = Instance.new("Frame")
+				local TextboxTitle = Instance.new("TextLabel")
+				local TextboxFrameOutline = Instance.new("Frame")
+				local TextboxFrameOutlineCorner = Instance.new("UICorner")
+				local TextboxFrame = Instance.new("Frame")
+				local TextboxFrameCorner = Instance.new("UICorner")
+				local TextBox = Instance.new("TextBox")
+
+				Textbox.Name = "Textbox"
+				Textbox.Parent = ChannelHolder
+				Textbox.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				Textbox.BackgroundTransparency = 1.000
+				Textbox.Position = UDim2.new(0.0796874985, 0, 0.445175439, 0)
+				Textbox.Size = UDim2.new(0, 403, 0, 73)
+
+				TextboxTitle.Name = "TextboxTitle"
+				TextboxTitle.Parent = Textbox
+				TextboxTitle.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				TextboxTitle.BackgroundTransparency = 1.000
+				TextboxTitle.Position = UDim2.new(0, 5, 0, 0)
+				TextboxTitle.Size = UDim2.new(0, 200, 0, 29)
+				TextboxTitle.Font = Enum.Font.Gotham
+				TextboxTitle.Text = text
+				TextboxTitle.TextColor3 = Color3.fromRGB(127, 131, 137)
+				TextboxTitle.TextSize = 14.000
+				TextboxTitle.TextXAlignment = Enum.TextXAlignment.Left
+
+				TextboxFrameOutline.Name = "TextboxFrameOutline"
+				TextboxFrameOutline.Parent = TextboxTitle
+				TextboxFrameOutline.AnchorPoint = Vector2.new(0.5, 0.5)
+				TextboxFrameOutline.BackgroundColor3 = Color3.fromRGB(37, 40, 43)
+				TextboxFrameOutline.Position = UDim2.new(0.988442957, 0, 1.6197437, 0)
+				TextboxFrameOutline.Size = UDim2.new(0, 396, 0, 36)
+
+				TextboxFrameOutlineCorner.CornerRadius = UDim.new(0, 3)
+				TextboxFrameOutlineCorner.Name = "TextboxFrameOutlineCorner"
+				TextboxFrameOutlineCorner.Parent = TextboxFrameOutline
+
+				TextboxFrame.Name = "TextboxFrame"
+				TextboxFrame.Parent = TextboxTitle
+				TextboxFrame.BackgroundColor3 = Color3.fromRGB(48, 51, 57)
+				TextboxFrame.ClipsDescendants = true
+				TextboxFrame.Position = UDim2.new(0.00999999978, 0, 1.06638527, 0)
+				TextboxFrame.Selectable = true
+				TextboxFrame.Size = UDim2.new(0, 392, 0, 32)
+
+				TextboxFrameCorner.CornerRadius = UDim.new(0, 3)
+				TextboxFrameCorner.Name = "TextboxFrameCorner"
+				TextboxFrameCorner.Parent = TextboxFrame
+
+				TextBox.Parent = TextboxFrame
+				TextBox.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				TextBox.BackgroundTransparency = 1.000
+				TextBox.Position = UDim2.new(0.0178571437, 0, 0, 0)
+				TextBox.Size = UDim2.new(0, 377, 0, 32)
+				TextBox.Font = Enum.Font.Gotham
+				TextBox.PlaceholderColor3 = Color3.fromRGB(91, 95, 101)
+				TextBox.PlaceholderText = placetext
+				TextBox.Text = ""
+				TextBox.TextColor3 = Color3.fromRGB(193, 195, 197)
+				TextBox.TextSize = 14.000
+				TextBox.TextXAlignment = Enum.TextXAlignment.Left
+				
+				TextBox.Focused:Connect(function()
+					TweenService:Create(
+						TextboxFrameOutline,
+						TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+						{BackgroundColor3 = Color3.fromRGB(114, 137, 228)}
+					):Play()
+				end)
+				
+				TextBox.FocusLost:Connect(function(ep)
+					TweenService:Create(
+						TextboxFrameOutline,
+						TweenInfo.new(.3, Enum.EasingStyle.Quad, Enum.EasingDirection.Out),
+						{BackgroundColor3 = Color3.fromRGB(37, 40, 43)}
+					):Play()
+					if ep then
+						if #TextBox.Text > 0 then
+							pcall(callback, TextBox.Text)
+							if disapper then
+								TextBox.Text = ""
+							end
+						end
+					end
+				end)
+				
+				ChannelHolder.CanvasSize = UDim2.new(0,0,0,ChannelHolderLayout.AbsoluteContentSize.Y)
+			end
+			
+			function ChannelContent:Label(text)
+				local Label = Instance.new("TextButton")
+				local LabelTitle = Instance.new("TextLabel")
+
+				Label.Name = "Label"
+				Label.Parent = ChannelHolder
+				Label.BackgroundColor3 = Color3.fromRGB(54, 57, 63)
+				Label.BorderSizePixel = 0
+				Label.Position = UDim2.new(0.261979163, 0, 0.190789461, 0)
+				Label.Size = UDim2.new(0, 401, 0, 30)
+				Label.AutoButtonColor = false
+				Label.Font = Enum.Font.Gotham
+				Label.Text = ""
+				Label.TextColor3 = Color3.fromRGB(255, 255, 255)
+				Label.TextSize = 14.000
+
+				LabelTitle.Name = "LabelTitle"
+				LabelTitle.Parent = Label
+				LabelTitle.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				LabelTitle.BackgroundTransparency = 1.000
+				LabelTitle.Position = UDim2.new(0, 5, 0, 0)
+				LabelTitle.Size = UDim2.new(0, 200, 0, 30)
+				LabelTitle.Font = Enum.Font.Gotham
+				LabelTitle.Text = text
+				LabelTitle.TextColor3 = Color3.fromRGB(127, 131, 137)
+				LabelTitle.TextSize = 14.000
+				LabelTitle.TextXAlignment = Enum.TextXAlignment.Left
+				
+				ChannelHolder.CanvasSize = UDim2.new(0,0,0,ChannelHolderLayout.AbsoluteContentSize.Y)
+			end
+			
+			function ChannelContent:Bind(text, presetbind, callback)
+				local Key = presetbind.Name
+				local Keybind = Instance.new("TextButton")
+				local KeybindTitle = Instance.new("TextLabel")
+				local KeybindText = Instance.new("TextLabel")
+
+				Keybind.Name = "Keybind"
+				Keybind.Parent = ChannelHolder
+				Keybind.BackgroundColor3 = Color3.fromRGB(54, 57, 63)
+				Keybind.BorderSizePixel = 0
+				Keybind.Position = UDim2.new(0.261979163, 0, 0.190789461, 0)
+				Keybind.Size = UDim2.new(0, 401, 0, 30)
+				Keybind.AutoButtonColor = false
+				Keybind.Font = Enum.Font.Gotham
+				Keybind.Text = ""
+				Keybind.TextColor3 = Color3.fromRGB(255, 255, 255)
+				Keybind.TextSize = 14.000
+
+				KeybindTitle.Name = "KeybindTitle"
+				KeybindTitle.Parent = Keybind
+				KeybindTitle.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				KeybindTitle.BackgroundTransparency = 1.000
+				KeybindTitle.Position = UDim2.new(0, 5, 0, 0)
+				KeybindTitle.Size = UDim2.new(0, 200, 0, 30)
+				KeybindTitle.Font = Enum.Font.Gotham
+				KeybindTitle.Text = text
+				KeybindTitle.TextColor3 = Color3.fromRGB(127, 131, 137)
+				KeybindTitle.TextSize = 14.000
+				KeybindTitle.TextXAlignment = Enum.TextXAlignment.Left
+
+				KeybindText.Name = "KeybindText"
+				KeybindText.Parent = Keybind
+				KeybindText.BackgroundColor3 = Color3.fromRGB(255, 255, 255)
+				KeybindText.BackgroundTransparency = 1.000
+				KeybindText.Position = UDim2.new(0, 316, 0, 0)
+				KeybindText.Size = UDim2.new(0, 85, 0, 30)
+				KeybindText.Font = Enum.Font.Gotham
+				KeybindText.Text = presetbind.Name
+				KeybindText.TextColor3 = Color3.fromRGB(127, 131, 137)
+				KeybindText.TextSize = 14.000
+				KeybindText.TextXAlignment = Enum.TextXAlignment.Right
+				
+				Keybind.MouseButton1Click:Connect(function()
+					KeybindText.Text = "..."
+					local inputwait = game:GetService("UserInputService").InputBegan:wait()
+					if inputwait.KeyCode.Name ~= "Unknown" then
+						KeybindText.Text = inputwait.KeyCode.Name
+						Key = inputwait.KeyCode.Name
+					end
+				end)
+				
+				game:GetService("UserInputService").InputBegan:connect(
+				function(current, pressed)
+					if not pressed then
+						if current.KeyCode.Name == Key then
+							pcall(callback)
+						end
+					end
+				end
+				)
+				ChannelHolder.CanvasSize = UDim2.new(0,0,0,ChannelHolderLayout.AbsoluteContentSize.Y)
+			end
+			
+			return ChannelContent
+		end
+		
+		return ChannelHold
+	end
+	return ServerHold
+end
+return DiscordLib
