@@ -119,27 +119,28 @@ MainFrame.BorderSizePixel = 0
 MainFrame.ClipsDescendants = true
 MainFrame.Position = UDim2.new(0.5, 0, 0.5, 0)
 MainFrame.Size = UDim2.new(0, 681, 0, 396)
-MainFrame.BackgroundTransparency = 1 -- làm trong suốt khung chính
+MainFrame.BackgroundTransparency = 1
 
--- Ảnh nền
 local Background = Instance.new("ImageLabel")
 Background.Name = "Background"
 Background.Parent = MainFrame
 Background.Size = UDim2.new(1,0,1,0)
 Background.Position = UDim2.new(0,0,0,0)
-Background.Image = "rbxassetid://88482275038439" -- ID ảnh bạn muốn
+Background.Image = "rbxassetid://88482275038439"
 Background.BackgroundTransparency = 1
 Background.ImageTransparency = 0
 Background.ScaleType = Enum.ScaleType.Crop
-Background.ZIndex = 0 -- luôn nằm dưới cùng
+Background.ZIndex = 0
 
--- Làm trong suốt tất cả frame con (trừ ảnh nền)
 task.defer(function()
     for _,v in pairs(MainFrame:GetDescendants()) do
         if v:IsA("Frame") or v:IsA("ScrollingFrame") then
             v.BackgroundTransparency = 1
+            v.BorderSizePixel = 0
         elseif v:IsA("ImageLabel") and v ~= Background then
             v.ImageTransparency = 1
+        elseif v:IsA("TextLabel") then
+            v.BackgroundTransparency = 1
         end
     end
 end)
