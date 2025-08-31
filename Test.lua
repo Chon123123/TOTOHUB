@@ -143,6 +143,20 @@ task.defer(function()
             v.BackgroundTransparency = 1
         end
     end
+    -- khung đen cho Button/Toggle
+    for _,v in pairs(MainFrame:GetDescendants()) do
+        if v:IsA("TextButton") then
+            v.BackgroundColor3 = Color3.fromRGB(20,20,20)
+            v.BackgroundTransparency = 0
+            v.BorderSizePixel = 0
+            v.Size = UDim2.new(1, -20, 0, 30)
+        elseif v:IsA("Frame") and v:FindFirstChildWhichIsA("TextLabel") and v:FindFirstChildWhichIsA("ImageButton") then
+            v.BackgroundColor3 = Color3.fromRGB(20,20,20)
+            v.BackgroundTransparency = 0
+            v.BorderSizePixel = 0
+            v.Size = UDim2.new(1, -20, 0, 30)
+        end
+    end
 end)
 
 	TopFrame.Name = "TopFrame"
