@@ -113,18 +113,21 @@ function DiscordLib:Window(text)
 	local TopFrameHolder = Instance.new("Frame")
 
 	MainFrame.Name = "MainFrame"
-	MainFrame.Parent = Discord
-	MainFrame.AnchorPoint = Vector2.new(0.5, 0.5)
-	MainFrame.BorderSizePixel = 0
-	MainFrame.ClipsDescendants = true
-	MainFrame.Position = UDim2.new(0.5, 0, 0.5, 0)
-	MainFrame.Size = UDim2.new(0, 681, 0, 396)
-	local Background = Instance.new("ImageLabel", MainFrame)
+MainFrame.Parent = Discord
+MainFrame.AnchorPoint = Vector2.new(0.5, 0.5)
+MainFrame.BorderSizePixel = 0
+MainFrame.ClipsDescendants = true
+MainFrame.Position = UDim2.new(0.5, 0, 0.5, 0)
+MainFrame.Size = UDim2.new(0, 681, 0, 396)
+MainFrame.BackgroundTransparency = 1 -- làm trong suốt
+
+local Background = Instance.new("ImageLabel", MainFrame)
 Background.Size = UDim2.new(1,0,1,0)
 Background.Position = UDim2.new(0,0,0,0)
 Background.Image = "rbxassetid://88482275038439"
 Background.BackgroundTransparency = 1
 Background.ScaleType = Enum.ScaleType.Crop
+Background.ZIndex = 0
 
 	TopFrame.Name = "TopFrame"
 	TopFrame.Parent = MainFrame
